@@ -1,0 +1,500 @@
+---
+title: "\"Embrace 9 Festive Feasts  Watch Holiday Epics at Zero Cost Online\""
+date: 2024-05-20 18:25:54
+updated: 2024-05-22 12:24:54
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes Embrace 9 Festive Feasts: Watch Holiday Epics at Zero Cost Online\""
+excerpt: "\"This Article Describes Embrace 9 Festive Feasts: Watch Holiday Epics at Zero Cost Online\""
+keywords: "\"Festive Holiday Feasts,Free Holiday Films,No-Cost Movie Viewing,Zero Price Screenings,Holiday Film Fest,Epic Holidays Online,Festive Movies Free\""
+thumbnail: https://www.lifewire.com/thmb/1jUHY3GVMr2JD3cJzw8ZvK2gu9Q=/1000x333/filters:no_upscale():max_bytes(150000):strip_icc()/HowTo_Phones-4986cbb71eec409fb586a37e3e0fc33b.png
+---
+
+## Embrace 9 Festive Feasts: Watch Holiday Epics at Zero Cost Online
+
+# Watch 9 Free Full Length Christmas Movies On Youtube
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
+
+### 1. The nutcracker 1990
+
+The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+### 2. A smoky mountain Christmas
+
+A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+### 3. Ernest saves Christmas
+
+This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+### 4. A Christmas story
+
+A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+### 5. Richie Rich's Christmas wish
+
+In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+### 6. On the second day of Christmas
+
+This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+### 7. Santa Who?
+
+Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+### 8. A Christmas Carol
+
+In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+### 9. Miracle on 34th street
+
+In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
+
+### 1. The nutcracker 1990
+
+The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+### 2. A smoky mountain Christmas
+
+A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+### 3. Ernest saves Christmas
+
+This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+### 4. A Christmas story
+
+A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+### 5. Richie Rich's Christmas wish
+
+In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+### 6. On the second day of Christmas
+
+This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+### 7. Santa Who?
+
+Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+### 8. A Christmas Carol
+
+In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+### 9. Miracle on 34th street
+
+In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
+
+### 1. The nutcracker 1990
+
+The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+### 2. A smoky mountain Christmas
+
+A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+### 3. Ernest saves Christmas
+
+This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+### 4. A Christmas story
+
+A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+### 5. Richie Rich's Christmas wish
+
+In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+### 6. On the second day of Christmas
+
+This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+### 7. Santa Who?
+
+Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+### 8. A Christmas Carol
+
+In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+### 9. Miracle on 34th street
+
+In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
+
+### 1. The nutcracker 1990
+
+The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+### 2. A smoky mountain Christmas
+
+A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+### 3. Ernest saves Christmas
+
+This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
+
+### 4. A Christmas story
+
+A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+### 5. Richie Rich's Christmas wish
+
+In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
+
+### 6. On the second day of Christmas
+
+This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+### 7. Santa Who?
+
+Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+### 8. A Christmas Carol
+
+In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+### 9. Miracle on 34th street
+
+In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+## The Fundamentals of Quality Streaming: How to Do It Right with WireCast and Youtube
+
+# How to live stream to youtube with wirecast?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Are you trying to use wirecast to stream to youtube? You are in the right place, here is our step by step guide to go live on youtube with wirecast.
+
+**Step 1:** First of all you need to login to your YouTube Creator Studio and then select Live Streaming option from available options on your screen.
+
+![streaming-events ](https://images.wondershare.com/filmora/article-images/streaming-events.jpg)
+
+**Step 2:** Once you enter into the live streaming option then your application will ask you to schedule a new event; follow this option.
+
+![new event ](https://images.wondershare.com/filmora/article-images/new-event.jpg)
+
+**Step 3:** Now you need to enter few basic details about your video that you are going to live stream. Do not forget to choose custom option under the Type category available on bottom right side of screen.
+
+![ select custom](https://images.wondershare.com/filmora/article-images/select-custom.jpg)
+
+**Step 4:** It is time to hit the create event option.
+
+![create event ](https://images.wondershare.com/filmora/article-images/create-event.jpg)
+
+**Step 5:** Your system will now take you to the camera settings; here you need to enter your thumbnail. It can be done directly by using browse option.
+
+![ Add your thumbnail](https://images.wondershare.com/filmora/article-images/add-your-thumbnail.jpg)
+
+**Step 6:** Now you need to select ‘basic ingestion’ option and secondly select ‘other encoders’ option from second set of information.
+
+![ other encoders](https://images.wondershare.com/filmora/article-images/other-encoders.jpg)
+
+**Step 7:** Once you have completed above settings then you need to save all the changes and then move to the live control room on your screen.
+
+**Step 8:** Open the wirecast software tool on your device and then simply move to the output settings. Hit the authenticate option, it will soon ask you to enter the YouTube login detail.
+
+![via browser ](https://images.wondershare.com/filmora/article-images/via-browser.jpg)
+
+**Step 9:** As soon as you sign in with your account using browser, then your settings will be ready on screen. Simply hit Ok.
+
+![ like below ](https://images.wondershare.com/filmora/article-images/like-below.jpg)
+
+**Step 10:** It is time to make your video source or content ready for streaming. You need to hit on the stream button that is available on top portion of screen.
+
+![ stream button](https://images.wondershare.com/filmora/article-images/stream-button.jpg)
+
+**Step 11:** Now simply move to the YouTube event page and start streaming your content.
+
+![event page ](https://images.wondershare.com/filmora/article-images/event-page.jpg)
+
+**Step 12:** Once you content for streaming is finished then click the stop streaming button that appears in red color on screen. You will also get information about duration of your video that is going live.
+
+![finished the streaming ](https://images.wondershare.com/filmora/article-images/finished-the-streaming.jpg)
+
+**Step 13:** When your streaming process ends then video will be saved to video manager. You can view it easily at later stage.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Are you trying to use wirecast to stream to youtube? You are in the right place, here is our step by step guide to go live on youtube with wirecast.
+
+**Step 1:** First of all you need to login to your YouTube Creator Studio and then select Live Streaming option from available options on your screen.
+
+![streaming-events ](https://images.wondershare.com/filmora/article-images/streaming-events.jpg)
+
+**Step 2:** Once you enter into the live streaming option then your application will ask you to schedule a new event; follow this option.
+
+![new event ](https://images.wondershare.com/filmora/article-images/new-event.jpg)
+
+**Step 3:** Now you need to enter few basic details about your video that you are going to live stream. Do not forget to choose custom option under the Type category available on bottom right side of screen.
+
+![ select custom](https://images.wondershare.com/filmora/article-images/select-custom.jpg)
+
+**Step 4:** It is time to hit the create event option.
+
+![create event ](https://images.wondershare.com/filmora/article-images/create-event.jpg)
+
+**Step 5:** Your system will now take you to the camera settings; here you need to enter your thumbnail. It can be done directly by using browse option.
+
+![ Add your thumbnail](https://images.wondershare.com/filmora/article-images/add-your-thumbnail.jpg)
+
+**Step 6:** Now you need to select ‘basic ingestion’ option and secondly select ‘other encoders’ option from second set of information.
+
+![ other encoders](https://images.wondershare.com/filmora/article-images/other-encoders.jpg)
+
+**Step 7:** Once you have completed above settings then you need to save all the changes and then move to the live control room on your screen.
+
+**Step 8:** Open the wirecast software tool on your device and then simply move to the output settings. Hit the authenticate option, it will soon ask you to enter the YouTube login detail.
+
+![via browser ](https://images.wondershare.com/filmora/article-images/via-browser.jpg)
+
+**Step 9:** As soon as you sign in with your account using browser, then your settings will be ready on screen. Simply hit Ok.
+
+![ like below ](https://images.wondershare.com/filmora/article-images/like-below.jpg)
+
+**Step 10:** It is time to make your video source or content ready for streaming. You need to hit on the stream button that is available on top portion of screen.
+
+![ stream button](https://images.wondershare.com/filmora/article-images/stream-button.jpg)
+
+**Step 11:** Now simply move to the YouTube event page and start streaming your content.
+
+![event page ](https://images.wondershare.com/filmora/article-images/event-page.jpg)
+
+**Step 12:** Once you content for streaming is finished then click the stop streaming button that appears in red color on screen. You will also get information about duration of your video that is going live.
+
+![finished the streaming ](https://images.wondershare.com/filmora/article-images/finished-the-streaming.jpg)
+
+**Step 13:** When your streaming process ends then video will be saved to video manager. You can view it easily at later stage.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Are you trying to use wirecast to stream to youtube? You are in the right place, here is our step by step guide to go live on youtube with wirecast.
+
+**Step 1:** First of all you need to login to your YouTube Creator Studio and then select Live Streaming option from available options on your screen.
+
+![streaming-events ](https://images.wondershare.com/filmora/article-images/streaming-events.jpg)
+
+**Step 2:** Once you enter into the live streaming option then your application will ask you to schedule a new event; follow this option.
+
+![new event ](https://images.wondershare.com/filmora/article-images/new-event.jpg)
+
+**Step 3:** Now you need to enter few basic details about your video that you are going to live stream. Do not forget to choose custom option under the Type category available on bottom right side of screen.
+
+![ select custom](https://images.wondershare.com/filmora/article-images/select-custom.jpg)
+
+**Step 4:** It is time to hit the create event option.
+
+![create event ](https://images.wondershare.com/filmora/article-images/create-event.jpg)
+
+**Step 5:** Your system will now take you to the camera settings; here you need to enter your thumbnail. It can be done directly by using browse option.
+
+![ Add your thumbnail](https://images.wondershare.com/filmora/article-images/add-your-thumbnail.jpg)
+
+**Step 6:** Now you need to select ‘basic ingestion’ option and secondly select ‘other encoders’ option from second set of information.
+
+![ other encoders](https://images.wondershare.com/filmora/article-images/other-encoders.jpg)
+
+**Step 7:** Once you have completed above settings then you need to save all the changes and then move to the live control room on your screen.
+
+**Step 8:** Open the wirecast software tool on your device and then simply move to the output settings. Hit the authenticate option, it will soon ask you to enter the YouTube login detail.
+
+![via browser ](https://images.wondershare.com/filmora/article-images/via-browser.jpg)
+
+**Step 9:** As soon as you sign in with your account using browser, then your settings will be ready on screen. Simply hit Ok.
+
+![ like below ](https://images.wondershare.com/filmora/article-images/like-below.jpg)
+
+**Step 10:** It is time to make your video source or content ready for streaming. You need to hit on the stream button that is available on top portion of screen.
+
+![ stream button](https://images.wondershare.com/filmora/article-images/stream-button.jpg)
+
+**Step 11:** Now simply move to the YouTube event page and start streaming your content.
+
+![event page ](https://images.wondershare.com/filmora/article-images/event-page.jpg)
+
+**Step 12:** Once you content for streaming is finished then click the stop streaming button that appears in red color on screen. You will also get information about duration of your video that is going live.
+
+![finished the streaming ](https://images.wondershare.com/filmora/article-images/finished-the-streaming.jpg)
+
+**Step 13:** When your streaming process ends then video will be saved to video manager. You can view it easily at later stage.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Are you trying to use wirecast to stream to youtube? You are in the right place, here is our step by step guide to go live on youtube with wirecast.
+
+**Step 1:** First of all you need to login to your YouTube Creator Studio and then select Live Streaming option from available options on your screen.
+
+![streaming-events ](https://images.wondershare.com/filmora/article-images/streaming-events.jpg)
+
+**Step 2:** Once you enter into the live streaming option then your application will ask you to schedule a new event; follow this option.
+
+![new event ](https://images.wondershare.com/filmora/article-images/new-event.jpg)
+
+**Step 3:** Now you need to enter few basic details about your video that you are going to live stream. Do not forget to choose custom option under the Type category available on bottom right side of screen.
+
+![ select custom](https://images.wondershare.com/filmora/article-images/select-custom.jpg)
+
+**Step 4:** It is time to hit the create event option.
+
+![create event ](https://images.wondershare.com/filmora/article-images/create-event.jpg)
+
+**Step 5:** Your system will now take you to the camera settings; here you need to enter your thumbnail. It can be done directly by using browse option.
+
+![ Add your thumbnail](https://images.wondershare.com/filmora/article-images/add-your-thumbnail.jpg)
+
+**Step 6:** Now you need to select ‘basic ingestion’ option and secondly select ‘other encoders’ option from second set of information.
+
+![ other encoders](https://images.wondershare.com/filmora/article-images/other-encoders.jpg)
+
+**Step 7:** Once you have completed above settings then you need to save all the changes and then move to the live control room on your screen.
+
+**Step 8:** Open the wirecast software tool on your device and then simply move to the output settings. Hit the authenticate option, it will soon ask you to enter the YouTube login detail.
+
+![via browser ](https://images.wondershare.com/filmora/article-images/via-browser.jpg)
+
+**Step 9:** As soon as you sign in with your account using browser, then your settings will be ready on screen. Simply hit Ok.
+
+![ like below ](https://images.wondershare.com/filmora/article-images/like-below.jpg)
+
+**Step 10:** It is time to make your video source or content ready for streaming. You need to hit on the stream button that is available on top portion of screen.
+
+![ stream button](https://images.wondershare.com/filmora/article-images/stream-button.jpg)
+
+**Step 11:** Now simply move to the YouTube event page and start streaming your content.
+
+![event page ](https://images.wondershare.com/filmora/article-images/event-page.jpg)
+
+**Step 12:** Once you content for streaming is finished then click the stop streaming button that appears in red color on screen. You will also get information about duration of your video that is going live.
+
+![finished the streaming ](https://images.wondershare.com/filmora/article-images/finished-the-streaming.jpg)
+
+**Step 13:** When your streaming process ends then video will be saved to video manager. You can view it easily at later stage.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>

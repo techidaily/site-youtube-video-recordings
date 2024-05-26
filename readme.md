@@ -1,6 +1,6 @@
-# TechiDaily
+# Youtube Video Recordings Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://youtube-video-recordings.techidaily.com](https://youtube-video-recordings.techidaily.com)
 
 ## Publish
 

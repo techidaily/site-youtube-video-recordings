@@ -1,0 +1,716 @@
+---
+title: "\"[Updated] Elevating Your Content  6 Steps to Higher YouTube Visibility\""
+date: 2024-05-24 14:53:25
+updated: 2024-05-26 11:46:22
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] Elevating Your Content: 6 Steps to Higher YouTube Visibility\""
+excerpt: "\"This Article Describes [Updated] Elevating Your Content: 6 Steps to Higher YouTube Visibility\""
+keywords: "YouTube Visibility Tips,Enhance Content Reach,Elevate Video Presence,Boosting Engagement Growth,Content Optimization Strategy,Improve Viewer Retention,Video Popularity Boost"
+thumbnail: https://www.lifewire.com/thmb/PMVQJXnIFRUNfZBHZ5eU9JJ7-Ow=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/bestcarapps-5c06e60d46e0fb000125f08a.jpg
+---
+
+## Elevating Your Content: 6 Steps to Higher YouTube Visibility
+
+# How to Get Your YouTube Video Seen - 6 Easy Steps
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+With an estimated 60 hours of video being uploaded to YouTube every minute you might be left wondering how to get your YouTube video seen in the huge sea of content. The good news is that a large number of these videos are not optimized in the correct format and taking some extra time to make sure that every video you post is well optimized for YouTube’s search engine can give you an instant advantage.
+
+Here’s how you can get your YouTube video ranked higher in search results and attract more views in 6 easy steps.
+
+* [Step 1: Find Good Keywords for Your YouTube Videos](#one)
+* [Step 2: Make Full Use of Your Video's Tags](#two)
+* [Step 3: Post a Transcript in Your Video Description](#three)
+* [Step 4: Write Searchable YouTube Video Titles](#four)
+* [Step 5: Optimize Your Video Description for YouTube SEO](#five)
+* [Step 6: Use Custom Video Thumbnails](#six)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Find Good Keywords for Your YouTube Videos
+
+The keywords that you choose to use with your video will be the greatest factors in determining whether your video will actually be found by viewers searching for content like yours on YouTube. You need to be intelligent and choose strong keywords that are highly related to both your video and your niche on YouTube. Without the use of good keywords, your video will simply become lost in the endless stream of content being uploaded to YouTube, and audiences who might enjoy it will never get a chance to see it.
+
+Consider doing some keyword research into your video’s subject using the Google Keyword Planner in or a variety of other[keyword tools](https://tools.techidaily.com/wondershare/filmora/download/). Make sure the most important keywords are in your tags, title, and description.
+
+## 2\. Make Full Use of Your Video's Tags
+
+Tags are essential. A lot of creators either skip tags or only put in 1-5, and their actions will benefit you if you choose to use a lot.
+
+Loading up your tags with keywords that are relevant to your video and genre will help your video appear in the viewer’s search results, which will earn you a lot more views. When users are looking for specific information, like how to recover lost data, just including things like ‘lost data’, ‘data recovery’, and even the full phrase ‘how to recover lost data’ in your video’s tags will give you a greater chance to actually appear in search engine results.
+
+Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
+
+## 3\. Post a Transcript in Your Video Description
+
+If you have a script or a transcript for your entire video you should consider posting it in the description of your video in order to improve your search engine ranking. This can also help for users that would like to have a written article to accompany your video and for indexing your video in search engine results. There are so many people that don't make proper use of their video descriptions on YouTube that doing so will give you an advantage.
+
+## 4\. Write Searchable YouTube Video Tiles
+
+By including your 1 or 2 most important keywords in the title of your video you will help YouTube sort your video into the correct search results. Generally, your most important keywords will be things like the name of the game you’re playing or the brand of makeup you’re reviewing.
+
+Try to write titles that are searchable and which also get potential viewers excited about your content. Do not try to be mysterious or clickbait-y in your video title. Big channels can be very successful with those strategies because they’re already guaranteed a certain number of views, but this will almost always backfire for small channels.
+
+Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
+
+## 5\. Optimize your Video Description for YouTube SEO
+
+Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
+
+If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
+
+## 6\. Use Custom Video Thumbnails
+
+A [custom thumbnail](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent way to make your videos stand out ([check out these awesome thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)). A good thumbnail is its own piece of quality, customized, visual content that has the power to draw in audiences from search engine results. Make sure to take thumbnail-specific photos and perfect those images with text and graphics in Photoshop or a free alternative like Canva.
+
+Custom thumbnails come with new metadata for your video and they can often be indexed in Google image searches along with the video content that you create. This means that you will have access to a text search via Google (your video title and description), video searches via Google, a video search via YouTube, and an image search via Google too.
+
+In order to[create a thumbnail that stands out](https://tools.techidaily.com/wondershare/filmora/download/) and attracts more views, you should first search for your video’s title on YouTube and see what kinds of thumbnails come up. You want your thumbnail to be enough like the results that viewers recognize it as being on the same topic, and different enough that it doesn’t fade into the crowd (a good strategy is to use a splash of color the other creators haven’t included).
+
+If you are interested in generating more traffic to any YouTube video be sure to follow these 6 steps for how to get your YouTube video seen (and check out [4 more here!](https://tools.techidaily.com/wondershare/filmora/download/)).
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+With an estimated 60 hours of video being uploaded to YouTube every minute you might be left wondering how to get your YouTube video seen in the huge sea of content. The good news is that a large number of these videos are not optimized in the correct format and taking some extra time to make sure that every video you post is well optimized for YouTube’s search engine can give you an instant advantage.
+
+Here’s how you can get your YouTube video ranked higher in search results and attract more views in 6 easy steps.
+
+* [Step 1: Find Good Keywords for Your YouTube Videos](#one)
+* [Step 2: Make Full Use of Your Video's Tags](#two)
+* [Step 3: Post a Transcript in Your Video Description](#three)
+* [Step 4: Write Searchable YouTube Video Titles](#four)
+* [Step 5: Optimize Your Video Description for YouTube SEO](#five)
+* [Step 6: Use Custom Video Thumbnails](#six)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Find Good Keywords for Your YouTube Videos
+
+The keywords that you choose to use with your video will be the greatest factors in determining whether your video will actually be found by viewers searching for content like yours on YouTube. You need to be intelligent and choose strong keywords that are highly related to both your video and your niche on YouTube. Without the use of good keywords, your video will simply become lost in the endless stream of content being uploaded to YouTube, and audiences who might enjoy it will never get a chance to see it.
+
+Consider doing some keyword research into your video’s subject using the Google Keyword Planner in or a variety of other[keyword tools](https://tools.techidaily.com/wondershare/filmora/download/). Make sure the most important keywords are in your tags, title, and description.
+
+## 2\. Make Full Use of Your Video's Tags
+
+Tags are essential. A lot of creators either skip tags or only put in 1-5, and their actions will benefit you if you choose to use a lot.
+
+Loading up your tags with keywords that are relevant to your video and genre will help your video appear in the viewer’s search results, which will earn you a lot more views. When users are looking for specific information, like how to recover lost data, just including things like ‘lost data’, ‘data recovery’, and even the full phrase ‘how to recover lost data’ in your video’s tags will give you a greater chance to actually appear in search engine results.
+
+Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
+
+## 3\. Post a Transcript in Your Video Description
+
+If you have a script or a transcript for your entire video you should consider posting it in the description of your video in order to improve your search engine ranking. This can also help for users that would like to have a written article to accompany your video and for indexing your video in search engine results. There are so many people that don't make proper use of their video descriptions on YouTube that doing so will give you an advantage.
+
+## 4\. Write Searchable YouTube Video Tiles
+
+By including your 1 or 2 most important keywords in the title of your video you will help YouTube sort your video into the correct search results. Generally, your most important keywords will be things like the name of the game you’re playing or the brand of makeup you’re reviewing.
+
+Try to write titles that are searchable and which also get potential viewers excited about your content. Do not try to be mysterious or clickbait-y in your video title. Big channels can be very successful with those strategies because they’re already guaranteed a certain number of views, but this will almost always backfire for small channels.
+
+Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
+
+## 5\. Optimize your Video Description for YouTube SEO
+
+Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
+
+If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
+
+## 6\. Use Custom Video Thumbnails
+
+A [custom thumbnail](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent way to make your videos stand out ([check out these awesome thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)). A good thumbnail is its own piece of quality, customized, visual content that has the power to draw in audiences from search engine results. Make sure to take thumbnail-specific photos and perfect those images with text and graphics in Photoshop or a free alternative like Canva.
+
+Custom thumbnails come with new metadata for your video and they can often be indexed in Google image searches along with the video content that you create. This means that you will have access to a text search via Google (your video title and description), video searches via Google, a video search via YouTube, and an image search via Google too.
+
+In order to[create a thumbnail that stands out](https://tools.techidaily.com/wondershare/filmora/download/) and attracts more views, you should first search for your video’s title on YouTube and see what kinds of thumbnails come up. You want your thumbnail to be enough like the results that viewers recognize it as being on the same topic, and different enough that it doesn’t fade into the crowd (a good strategy is to use a splash of color the other creators haven’t included).
+
+If you are interested in generating more traffic to any YouTube video be sure to follow these 6 steps for how to get your YouTube video seen (and check out [4 more here!](https://tools.techidaily.com/wondershare/filmora/download/)).
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+With an estimated 60 hours of video being uploaded to YouTube every minute you might be left wondering how to get your YouTube video seen in the huge sea of content. The good news is that a large number of these videos are not optimized in the correct format and taking some extra time to make sure that every video you post is well optimized for YouTube’s search engine can give you an instant advantage.
+
+Here’s how you can get your YouTube video ranked higher in search results and attract more views in 6 easy steps.
+
+* [Step 1: Find Good Keywords for Your YouTube Videos](#one)
+* [Step 2: Make Full Use of Your Video's Tags](#two)
+* [Step 3: Post a Transcript in Your Video Description](#three)
+* [Step 4: Write Searchable YouTube Video Titles](#four)
+* [Step 5: Optimize Your Video Description for YouTube SEO](#five)
+* [Step 6: Use Custom Video Thumbnails](#six)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Find Good Keywords for Your YouTube Videos
+
+The keywords that you choose to use with your video will be the greatest factors in determining whether your video will actually be found by viewers searching for content like yours on YouTube. You need to be intelligent and choose strong keywords that are highly related to both your video and your niche on YouTube. Without the use of good keywords, your video will simply become lost in the endless stream of content being uploaded to YouTube, and audiences who might enjoy it will never get a chance to see it.
+
+Consider doing some keyword research into your video’s subject using the Google Keyword Planner in or a variety of other[keyword tools](https://tools.techidaily.com/wondershare/filmora/download/). Make sure the most important keywords are in your tags, title, and description.
+
+## 2\. Make Full Use of Your Video's Tags
+
+Tags are essential. A lot of creators either skip tags or only put in 1-5, and their actions will benefit you if you choose to use a lot.
+
+Loading up your tags with keywords that are relevant to your video and genre will help your video appear in the viewer’s search results, which will earn you a lot more views. When users are looking for specific information, like how to recover lost data, just including things like ‘lost data’, ‘data recovery’, and even the full phrase ‘how to recover lost data’ in your video’s tags will give you a greater chance to actually appear in search engine results.
+
+Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
+
+## 3\. Post a Transcript in Your Video Description
+
+If you have a script or a transcript for your entire video you should consider posting it in the description of your video in order to improve your search engine ranking. This can also help for users that would like to have a written article to accompany your video and for indexing your video in search engine results. There are so many people that don't make proper use of their video descriptions on YouTube that doing so will give you an advantage.
+
+## 4\. Write Searchable YouTube Video Tiles
+
+By including your 1 or 2 most important keywords in the title of your video you will help YouTube sort your video into the correct search results. Generally, your most important keywords will be things like the name of the game you’re playing or the brand of makeup you’re reviewing.
+
+Try to write titles that are searchable and which also get potential viewers excited about your content. Do not try to be mysterious or clickbait-y in your video title. Big channels can be very successful with those strategies because they’re already guaranteed a certain number of views, but this will almost always backfire for small channels.
+
+Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
+
+## 5\. Optimize your Video Description for YouTube SEO
+
+Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
+
+If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
+
+## 6\. Use Custom Video Thumbnails
+
+A [custom thumbnail](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent way to make your videos stand out ([check out these awesome thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)). A good thumbnail is its own piece of quality, customized, visual content that has the power to draw in audiences from search engine results. Make sure to take thumbnail-specific photos and perfect those images with text and graphics in Photoshop or a free alternative like Canva.
+
+Custom thumbnails come with new metadata for your video and they can often be indexed in Google image searches along with the video content that you create. This means that you will have access to a text search via Google (your video title and description), video searches via Google, a video search via YouTube, and an image search via Google too.
+
+In order to[create a thumbnail that stands out](https://tools.techidaily.com/wondershare/filmora/download/) and attracts more views, you should first search for your video’s title on YouTube and see what kinds of thumbnails come up. You want your thumbnail to be enough like the results that viewers recognize it as being on the same topic, and different enough that it doesn’t fade into the crowd (a good strategy is to use a splash of color the other creators haven’t included).
+
+If you are interested in generating more traffic to any YouTube video be sure to follow these 6 steps for how to get your YouTube video seen (and check out [4 more here!](https://tools.techidaily.com/wondershare/filmora/download/)).
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+With an estimated 60 hours of video being uploaded to YouTube every minute you might be left wondering how to get your YouTube video seen in the huge sea of content. The good news is that a large number of these videos are not optimized in the correct format and taking some extra time to make sure that every video you post is well optimized for YouTube’s search engine can give you an instant advantage.
+
+Here’s how you can get your YouTube video ranked higher in search results and attract more views in 6 easy steps.
+
+* [Step 1: Find Good Keywords for Your YouTube Videos](#one)
+* [Step 2: Make Full Use of Your Video's Tags](#two)
+* [Step 3: Post a Transcript in Your Video Description](#three)
+* [Step 4: Write Searchable YouTube Video Titles](#four)
+* [Step 5: Optimize Your Video Description for YouTube SEO](#five)
+* [Step 6: Use Custom Video Thumbnails](#six)
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 1\. Find Good Keywords for Your YouTube Videos
+
+The keywords that you choose to use with your video will be the greatest factors in determining whether your video will actually be found by viewers searching for content like yours on YouTube. You need to be intelligent and choose strong keywords that are highly related to both your video and your niche on YouTube. Without the use of good keywords, your video will simply become lost in the endless stream of content being uploaded to YouTube, and audiences who might enjoy it will never get a chance to see it.
+
+Consider doing some keyword research into your video’s subject using the Google Keyword Planner in or a variety of other[keyword tools](https://tools.techidaily.com/wondershare/filmora/download/). Make sure the most important keywords are in your tags, title, and description.
+
+## 2\. Make Full Use of Your Video's Tags
+
+Tags are essential. A lot of creators either skip tags or only put in 1-5, and their actions will benefit you if you choose to use a lot.
+
+Loading up your tags with keywords that are relevant to your video and genre will help your video appear in the viewer’s search results, which will earn you a lot more views. When users are looking for specific information, like how to recover lost data, just including things like ‘lost data’, ‘data recovery’, and even the full phrase ‘how to recover lost data’ in your video’s tags will give you a greater chance to actually appear in search engine results.
+
+Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
+
+## 3\. Post a Transcript in Your Video Description
+
+If you have a script or a transcript for your entire video you should consider posting it in the description of your video in order to improve your search engine ranking. This can also help for users that would like to have a written article to accompany your video and for indexing your video in search engine results. There are so many people that don't make proper use of their video descriptions on YouTube that doing so will give you an advantage.
+
+## 4\. Write Searchable YouTube Video Tiles
+
+By including your 1 or 2 most important keywords in the title of your video you will help YouTube sort your video into the correct search results. Generally, your most important keywords will be things like the name of the game you’re playing or the brand of makeup you’re reviewing.
+
+Try to write titles that are searchable and which also get potential viewers excited about your content. Do not try to be mysterious or clickbait-y in your video title. Big channels can be very successful with those strategies because they’re already guaranteed a certain number of views, but this will almost always backfire for small channels.
+
+Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
+
+## 5\. Optimize your Video Description for YouTube SEO
+
+Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
+
+If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
+
+## 6\. Use Custom Video Thumbnails
+
+A [custom thumbnail](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent way to make your videos stand out ([check out these awesome thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)). A good thumbnail is its own piece of quality, customized, visual content that has the power to draw in audiences from search engine results. Make sure to take thumbnail-specific photos and perfect those images with text and graphics in Photoshop or a free alternative like Canva.
+
+Custom thumbnails come with new metadata for your video and they can often be indexed in Google image searches along with the video content that you create. This means that you will have access to a text search via Google (your video title and description), video searches via Google, a video search via YouTube, and an image search via Google too.
+
+In order to[create a thumbnail that stands out](https://tools.techidaily.com/wondershare/filmora/download/) and attracts more views, you should first search for your video’s title on YouTube and see what kinds of thumbnails come up. You want your thumbnail to be enough like the results that viewers recognize it as being on the same topic, and different enough that it doesn’t fade into the crowd (a good strategy is to use a splash of color the other creators haven’t included).
+
+If you are interested in generating more traffic to any YouTube video be sure to follow these 6 steps for how to get your YouTube video seen (and check out [4 more here!](https://tools.techidaily.com/wondershare/filmora/download/)).
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+## The Unseen Factors in Determining a Video’s View Count on YouTube
+
+# How Does YouTube Count Views? It's Not as Simple as You Think
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+How does YouTube count views? It’s not as simple as the number of clicks your video gets. If someone sits and refreshes your video over and over without letting it play for any significant time, those refreshes won’t be recorded as views. There is a lot more that goes into the calculation.
+
+1. [Not Everyone Who Clicks Adds to Your View Count](#one)
+2. [How Does YouTube Count Views](#two)
+3. [How Does YouTube's View Count Algorithm Work?](#three)
+4. [Account Tracking Factors - Some Viewers Don't Count](#four)
+5. [The Skip & Skim](#five)
+6. [Frozen YouTube View Counts](#six)
+7. [The 301 Mark](#seven)
+
+## Best YouTube Video Editor - Filmora
+
+After you have created your YouTube channel, do you want to edit videos and upload your first video? Here we recommend using Filmora to easily edit YouTube videos.
+
+You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
+
+## 1\. Not Everyone Who Clicks Adds to Your View Count
+
+YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
+
+![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
+
+## 2\. How Does YouTube Count Views?
+
+YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
+
+Once this window of time passes, it is likely that you will see the view counter start to update a lot more frequently. The counter could still revert to updating slower and more hesitantly, though, if YouTube’s algorithm thinks it’s detecting something fishy.
+
+At times, your view count can even be frozen temporarily until the algorithm can validate the views you are receiving. This is done to ensure a fair and positive experience for everyone who creates content. View counts can be adjusted by the algorithm in either direction.
+
+You May Also Like:
+[ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 3\. How Does YouTube’s View Count Algorithm Work?
+
+Termed by many as one of the most boggling algorithms of all time, it is really hard to decode the complete dynamics of the YouTube view count algorithm.
+
+There are some tests you can run yourself to try to unpack it.
+
+If you upload a video and then [set it as unlisted](https://tools.techidaily.com/wondershare/filmora/download/) it won’t get any public views so you can experiment by doing things like watching for different lengths of time and seeing what gets counted.
+
+You’ll have to use a computer in a different location and make sure the account is not the same as the one you used to upload the video. Now, you need to watch the video for roughly 15 seconds. The key here is to keep it less than 30 seconds. You will see that the view did not add to the count. If you repeat this process on multiple computers at varying locations and with different accounts and you are likely to find the same result.
+
+However, if you watch it for 30 seconds or longer it is likely that the count will go up.
+
+We are adding ‘likely’ here because, despite this 30-second rule which has been decoded, there are other factors that might contribute to whether a view is counted as well as other automated scanning techniques at play.
+
+Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
+
+## 4\. Account Tracking Factors - Some Viewers Don't Count
+
+Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
+
+One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
+
+Any bot-like action will result in an account’s views do not be added to your view count.
+
+## 5\. The Skip & Skim
+
+It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+## 6\. Frozen YouTube View Counts
+
+Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
+
+You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
+
+## 7\. The 301 Mark
+
+You may have seen a lot of videos that have a stagnant count of 301 views. The algorithm behind YouTube’s view counting system believes that any video which has fetched higher than 300 views has the ability to impact people’s perception of quality on YouTube. They do not want the homepage to be crowded with artificially popular videos.
+
+This is why view counts are often frozen at 301\. The employees at YouTube then manually verify whether the views obtained so far are legitimate or fake. Once the employees are sure that the views are legit, the counter is unfrozen and you will see an upward swing.
+
+During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
+
+## Conclusion
+
+In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
+
+If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+How does YouTube count views? It’s not as simple as the number of clicks your video gets. If someone sits and refreshes your video over and over without letting it play for any significant time, those refreshes won’t be recorded as views. There is a lot more that goes into the calculation.
+
+1. [Not Everyone Who Clicks Adds to Your View Count](#one)
+2. [How Does YouTube Count Views](#two)
+3. [How Does YouTube's View Count Algorithm Work?](#three)
+4. [Account Tracking Factors - Some Viewers Don't Count](#four)
+5. [The Skip & Skim](#five)
+6. [Frozen YouTube View Counts](#six)
+7. [The 301 Mark](#seven)
+
+## Best YouTube Video Editor - Filmora
+
+After you have created your YouTube channel, do you want to edit videos and upload your first video? Here we recommend using Filmora to easily edit YouTube videos.
+
+You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
+
+## 1\. Not Everyone Who Clicks Adds to Your View Count
+
+YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
+
+![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
+
+## 2\. How Does YouTube Count Views?
+
+YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
+
+Once this window of time passes, it is likely that you will see the view counter start to update a lot more frequently. The counter could still revert to updating slower and more hesitantly, though, if YouTube’s algorithm thinks it’s detecting something fishy.
+
+At times, your view count can even be frozen temporarily until the algorithm can validate the views you are receiving. This is done to ensure a fair and positive experience for everyone who creates content. View counts can be adjusted by the algorithm in either direction.
+
+You May Also Like:
+[ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 3\. How Does YouTube’s View Count Algorithm Work?
+
+Termed by many as one of the most boggling algorithms of all time, it is really hard to decode the complete dynamics of the YouTube view count algorithm.
+
+There are some tests you can run yourself to try to unpack it.
+
+If you upload a video and then [set it as unlisted](https://tools.techidaily.com/wondershare/filmora/download/) it won’t get any public views so you can experiment by doing things like watching for different lengths of time and seeing what gets counted.
+
+You’ll have to use a computer in a different location and make sure the account is not the same as the one you used to upload the video. Now, you need to watch the video for roughly 15 seconds. The key here is to keep it less than 30 seconds. You will see that the view did not add to the count. If you repeat this process on multiple computers at varying locations and with different accounts and you are likely to find the same result.
+
+However, if you watch it for 30 seconds or longer it is likely that the count will go up.
+
+We are adding ‘likely’ here because, despite this 30-second rule which has been decoded, there are other factors that might contribute to whether a view is counted as well as other automated scanning techniques at play.
+
+Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
+
+## 4\. Account Tracking Factors - Some Viewers Don't Count
+
+Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
+
+One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
+
+Any bot-like action will result in an account’s views do not be added to your view count.
+
+## 5\. The Skip & Skim
+
+It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+## 6\. Frozen YouTube View Counts
+
+Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
+
+You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
+
+## 7\. The 301 Mark
+
+You may have seen a lot of videos that have a stagnant count of 301 views. The algorithm behind YouTube’s view counting system believes that any video which has fetched higher than 300 views has the ability to impact people’s perception of quality on YouTube. They do not want the homepage to be crowded with artificially popular videos.
+
+This is why view counts are often frozen at 301\. The employees at YouTube then manually verify whether the views obtained so far are legitimate or fake. Once the employees are sure that the views are legit, the counter is unfrozen and you will see an upward swing.
+
+During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
+
+## Conclusion
+
+In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
+
+If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+How does YouTube count views? It’s not as simple as the number of clicks your video gets. If someone sits and refreshes your video over and over without letting it play for any significant time, those refreshes won’t be recorded as views. There is a lot more that goes into the calculation.
+
+1. [Not Everyone Who Clicks Adds to Your View Count](#one)
+2. [How Does YouTube Count Views](#two)
+3. [How Does YouTube's View Count Algorithm Work?](#three)
+4. [Account Tracking Factors - Some Viewers Don't Count](#four)
+5. [The Skip & Skim](#five)
+6. [Frozen YouTube View Counts](#six)
+7. [The 301 Mark](#seven)
+
+## Best YouTube Video Editor - Filmora
+
+After you have created your YouTube channel, do you want to edit videos and upload your first video? Here we recommend using Filmora to easily edit YouTube videos.
+
+You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
+
+## 1\. Not Everyone Who Clicks Adds to Your View Count
+
+YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
+
+![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
+
+## 2\. How Does YouTube Count Views?
+
+YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
+
+Once this window of time passes, it is likely that you will see the view counter start to update a lot more frequently. The counter could still revert to updating slower and more hesitantly, though, if YouTube’s algorithm thinks it’s detecting something fishy.
+
+At times, your view count can even be frozen temporarily until the algorithm can validate the views you are receiving. This is done to ensure a fair and positive experience for everyone who creates content. View counts can be adjusted by the algorithm in either direction.
+
+You May Also Like:
+[ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 3\. How Does YouTube’s View Count Algorithm Work?
+
+Termed by many as one of the most boggling algorithms of all time, it is really hard to decode the complete dynamics of the YouTube view count algorithm.
+
+There are some tests you can run yourself to try to unpack it.
+
+If you upload a video and then [set it as unlisted](https://tools.techidaily.com/wondershare/filmora/download/) it won’t get any public views so you can experiment by doing things like watching for different lengths of time and seeing what gets counted.
+
+You’ll have to use a computer in a different location and make sure the account is not the same as the one you used to upload the video. Now, you need to watch the video for roughly 15 seconds. The key here is to keep it less than 30 seconds. You will see that the view did not add to the count. If you repeat this process on multiple computers at varying locations and with different accounts and you are likely to find the same result.
+
+However, if you watch it for 30 seconds or longer it is likely that the count will go up.
+
+We are adding ‘likely’ here because, despite this 30-second rule which has been decoded, there are other factors that might contribute to whether a view is counted as well as other automated scanning techniques at play.
+
+Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
+
+## 4\. Account Tracking Factors - Some Viewers Don't Count
+
+Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
+
+One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
+
+Any bot-like action will result in an account’s views do not be added to your view count.
+
+## 5\. The Skip & Skim
+
+It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+## 6\. Frozen YouTube View Counts
+
+Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
+
+You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
+
+## 7\. The 301 Mark
+
+You may have seen a lot of videos that have a stagnant count of 301 views. The algorithm behind YouTube’s view counting system believes that any video which has fetched higher than 300 views has the ability to impact people’s perception of quality on YouTube. They do not want the homepage to be crowded with artificially popular videos.
+
+This is why view counts are often frozen at 301\. The employees at YouTube then manually verify whether the views obtained so far are legitimate or fake. Once the employees are sure that the views are legit, the counter is unfrozen and you will see an upward swing.
+
+During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
+
+## Conclusion
+
+In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
+
+If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+How does YouTube count views? It’s not as simple as the number of clicks your video gets. If someone sits and refreshes your video over and over without letting it play for any significant time, those refreshes won’t be recorded as views. There is a lot more that goes into the calculation.
+
+1. [Not Everyone Who Clicks Adds to Your View Count](#one)
+2. [How Does YouTube Count Views](#two)
+3. [How Does YouTube's View Count Algorithm Work?](#three)
+4. [Account Tracking Factors - Some Viewers Don't Count](#four)
+5. [The Skip & Skim](#five)
+6. [Frozen YouTube View Counts](#six)
+7. [The 301 Mark](#seven)
+
+## Best YouTube Video Editor - Filmora
+
+After you have created your YouTube channel, do you want to edit videos and upload your first video? Here we recommend using Filmora to easily edit YouTube videos.
+
+You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
+
+## 1\. Not Everyone Who Clicks Adds to Your View Count
+
+YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
+
+![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
+
+## 2\. How Does YouTube Count Views?
+
+YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
+
+Once this window of time passes, it is likely that you will see the view counter start to update a lot more frequently. The counter could still revert to updating slower and more hesitantly, though, if YouTube’s algorithm thinks it’s detecting something fishy.
+
+At times, your view count can even be frozen temporarily until the algorithm can validate the views you are receiving. This is done to ensure a fair and positive experience for everyone who creates content. View counts can be adjusted by the algorithm in either direction.
+
+You May Also Like:
+[ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## 3\. How Does YouTube’s View Count Algorithm Work?
+
+Termed by many as one of the most boggling algorithms of all time, it is really hard to decode the complete dynamics of the YouTube view count algorithm.
+
+There are some tests you can run yourself to try to unpack it.
+
+If you upload a video and then [set it as unlisted](https://tools.techidaily.com/wondershare/filmora/download/) it won’t get any public views so you can experiment by doing things like watching for different lengths of time and seeing what gets counted.
+
+You’ll have to use a computer in a different location and make sure the account is not the same as the one you used to upload the video. Now, you need to watch the video for roughly 15 seconds. The key here is to keep it less than 30 seconds. You will see that the view did not add to the count. If you repeat this process on multiple computers at varying locations and with different accounts and you are likely to find the same result.
+
+However, if you watch it for 30 seconds or longer it is likely that the count will go up.
+
+We are adding ‘likely’ here because, despite this 30-second rule which has been decoded, there are other factors that might contribute to whether a view is counted as well as other automated scanning techniques at play.
+
+Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
+
+## 4\. Account Tracking Factors - Some Viewers Don't Count
+
+Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
+
+One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
+
+Any bot-like action will result in an account’s views do not be added to your view count.
+
+## 5\. The Skip & Skim
+
+It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+## 6\. Frozen YouTube View Counts
+
+Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
+
+You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
+
+## 7\. The 301 Mark
+
+You may have seen a lot of videos that have a stagnant count of 301 views. The algorithm behind YouTube’s view counting system believes that any video which has fetched higher than 300 views has the ability to impact people’s perception of quality on YouTube. They do not want the homepage to be crowded with artificially popular videos.
+
+This is why view counts are often frozen at 301\. The employees at YouTube then manually verify whether the views obtained so far are legitimate or fake. Once the employees are sure that the views are legit, the counter is unfrozen and you will see an upward swing.
+
+During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
+
+## Conclusion
+
+In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
+
+If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
