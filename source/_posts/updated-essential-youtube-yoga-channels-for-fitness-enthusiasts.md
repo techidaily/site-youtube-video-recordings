@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Essential YouTube Yoga Channels for Fitness Enthusiasts"
-date: 2024-05-25T13:25:24.611Z
-updated: 2024-05-26T13:25:24.611Z
+date: 2024-06-09T08:54:56.761Z
+updated: 2024-06-10T08:54:56.761Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Essential YouTube Yoga Channels for Fitness Enthusiasts"
 excerpt: "This Article Describes [Updated] Essential YouTube Yoga Channels for Fitness Enthusiasts"
 keywords: "YouTube Yoga Routines,Fitness Yoga Tutorials,Beginner Yoga Guides,Advanced Yoga Practices,Home Yoga Sessions,Healthy Living Channels,Yoga for Wellness"
-thumbnail: https://www.lifewire.com/thmb/bEojajcVOmaMDVv4xG-kC_soHHk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-81522363-5683a5573df78ccc15cabf56.jpg
+thumbnail: https://thmb.techidaily.com/58d1c82f33ff87a2a49ef482dc26ca840416cdee7dcea0bf9addd82da02902e0.jpg
 ---
 
 ## Essential YouTube Yoga Channels for Fitness Enthusiasts

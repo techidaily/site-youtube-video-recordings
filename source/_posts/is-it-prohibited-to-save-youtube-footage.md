@@ -1,7 +1,7 @@
 ---
 title: "Is It Prohibited to Save YouTube Footage?"
-date: 2024-05-25T12:18:09.071Z
-updated: 2024-05-26T12:18:09.071Z
+date: 2024-06-09T08:54:53.800Z
+updated: 2024-06-10T08:54:53.800Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Is It Prohibited to Save YouTube Footage?"
 excerpt: "This Article Describes Is It Prohibited to Save YouTube Footage?"
 keywords: "YouTube Copying Law,Saving YouTube Videos,Content Ownership,Video Rights,Legal YouTube Use,Online Media Policy,Public Domain Footage"
-thumbnail: https://www.lifewire.com/thmb/Pb5zO1GNPyBGQRr3Uny72CPxxAc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/004-how-to-see-everyone-on-google-meet-5088410-3eeb6cb239b84b20a4eb9c000cf45dd7.jpg
+thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e985940c7f874a6ef2e9aec11a.jpg
 ---
 
 ## Is It Prohibited to Save YouTube Footage?

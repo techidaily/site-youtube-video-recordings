@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Affordable Acoustic Amps and Mics for Video Voyagers"
-date: 2024-05-25T13:09:18.697Z
-updated: 2024-05-26T13:09:18.697Z
+date: 2024-06-09T08:54:52.808Z
+updated: 2024-06-10T08:54:52.808Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Affordable Acoustic Amps and Mics for Video Voyagers"
 excerpt: "This Article Describes [Updated] Affordable Acoustic Amps and Mics for Video Voyagers"
 keywords: "\"Low-Cost Audio Gear,Budget Amplifiers,Inexpensive Microphones,Affordable Acoustic Devices,Economical Sound Systems,Value Audio Equipment,Cheap Video Recording Tools\""
-thumbnail: https://www.lifewire.com/thmb/riQ401xbxJMZKiTqef_vRiggGjk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-534057825-5804eb115f9b5805c2b42f4c.jpg
+thumbnail: https://thmb.techidaily.com/1285640821abadae64475db5187a42bfa0d643a297eba82ebbb288218a3b2d87.jpg
 ---
 
 ## Affordable Acoustic Amps and Mics for Video Voyagers

@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Video Magic Summit"
-date: 2024-05-25T12:33:59.803Z
-updated: 2024-05-26T12:33:59.803Z
+date: 2024-06-09T08:54:57.393Z
+updated: 2024-06-10T08:54:57.393Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Crafting Video Magic Summit"
 excerpt: "This Article Describes [New] Crafting Video Magic Summit"
 keywords: "Video Magic Workshop,Crafted Visual Content,Video Production Mastery,Creative Video Tech,Digital Media Summit,Videography Innovation,Specialized Video Design"
-thumbnail: https://www.lifewire.com/thmb/jJkMZHBw1UWMNPiFSMrpeNwRPjY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ArtificalIntelligenceChatbotConcept-c0e491e36fae46ef84b670334af5095f.jpg
+thumbnail: https://thmb.techidaily.com/b7ac3fecaf39cbf4ad53ade68b5607328fb5fc5fabf85fb01691cb6e94c786a0.jpg
 ---
 
 ## Crafting Video Magic Summit

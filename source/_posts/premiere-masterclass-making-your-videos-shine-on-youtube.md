@@ -1,7 +1,7 @@
 ---
 title: "\"Premiere Masterclass  Making Your Videos Shine on YouTube\""
-date: 2024-05-25T12:45:13.467Z
-updated: 2024-05-26T12:45:13.467Z
+date: 2024-06-09T08:54:53.083Z
+updated: 2024-06-10T08:54:53.083Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Premiere Masterclass: Making Your Videos Shine on YouTube\""
 excerpt: "\"This Article Describes Premiere Masterclass: Making Your Videos Shine on YouTube\""
 keywords: "Video Masterclass,YouTubing Tips,YouTube Marketing,Premiere Techniques,Content Promotion,Video Production,Shine Bright Videos"
-thumbnail: https://www.lifewire.com/thmb/85rwStNr21lvFIjCfmY8ErdogYI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/wimbledonlivestream-c22d5eefbf8f40e9b25ba4cab1734ece.jpg
+thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c12bd8c02f2b01f747786c25.jpg
 ---
 
 ## Premiere Masterclass: Making Your Videos Shine on YouTube

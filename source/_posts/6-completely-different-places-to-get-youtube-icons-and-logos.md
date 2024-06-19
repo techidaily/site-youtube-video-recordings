@@ -1,7 +1,7 @@
 ---
 title: "6 Completely Different Places to Get YouTube Icons and Logos"
-date: 2024-05-25T11:15:39.677Z
-updated: 2024-05-26T11:15:39.677Z
+date: 2024-06-09T08:54:42.635Z
+updated: 2024-06-10T08:54:42.635Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes 6 Completely Different Places to Get YouTube Icons and Logos"
 excerpt: "This Article Describes 6 Completely Different Places to Get YouTube Icons and Logos"
 keywords: "YouTuber Icons Designs,Logo Creation Services,Iconic Video Symbols,Unique YouTube Logos,Creative Video Iconography,Diverse Icon Providers,Bespoke Video Branding"
-thumbnail: https://www.lifewire.com/thmb/ZoFksP-ijfTY1R_eJS-zfSIgOQc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/the-12-best-group-video-call-apps-in-2020-bd94fd657b5643088166b1df441b8614.jpg
+thumbnail: https://thmb.techidaily.com/a770835b076eb6b9f15ef9eaa24a0d7865dfb16a5caaa3e52196c91037b09546.jpg
 ---
 
 ## 6 Completely Different Places to Get YouTube Icons and Logos

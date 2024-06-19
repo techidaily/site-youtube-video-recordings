@@ -1,7 +1,7 @@
 ---
 title: "[New] Enlarge Your Video's Thumbnail on YouTube Easily"
-date: 2024-05-25T12:41:16.770Z
-updated: 2024-05-26T12:41:16.770Z
+date: 2024-06-09T08:54:56.450Z
+updated: 2024-06-10T08:54:56.450Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Enlarge Your Video's Thumbnail on YouTube Easily"
 excerpt: "This Article Describes [New] Enlarge Your Video's Thumbnail on YouTube Easily"
 keywords: "Thumbnail Enlargement,YouTube Video Imagery,Easy Thumbnail Upgrade,YouTube Image Resize,Enhance Video Thumbs,Optimizing Video Icons,Larger Video Thumbnails"
-thumbnail: https://www.lifewire.com/thmb/FSEnoGCMAP0T58dNwB2d4-upLhA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-688982955-596fff12519de200112ef724.jpg
+thumbnail: https://thmb.techidaily.com/445d6c97ace4ef05d63cde4f33374d4b0783e76d1e91d61e1ddb527be75674b2.jpg
 ---
 
 ## Enlarge Your Video's Thumbnail on YouTube Easily

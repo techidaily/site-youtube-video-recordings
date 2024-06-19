@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Adding Emojis in YouTube Discussions"
-date: 2024-05-25T12:00:47.045Z
-updated: 2024-05-26T12:00:47.045Z
+date: 2024-06-09T08:54:51.184Z
+updated: 2024-06-10T08:54:51.184Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, Adding Emojis in YouTube Discussions"
 excerpt: "This Article Describes In 2024, Adding Emojis in YouTube Discussions"
 keywords: "YouTube Emoji Use,Video Chat Emojis,Emoji Conversations,Expressive Media,Online GIFs for YT,Digital Symbol Talking,Encoded Discussion Cues"
-thumbnail: https://www.lifewire.com/thmb/EAqZr-HjkZo5i0jwoEEUqZxRCpc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1437209125-b47ae60035f248e2b01b781f50f919c1.jpg
+thumbnail: https://thmb.techidaily.com/6190a0016cd0db6cebefe5acaadd207d01333c2584c8d35c887e62fae8bb62c7.jpg
 ---
 
 ## Adding Emojis in YouTube Discussions

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channel Your Creativity  Crafting YouTube Trailers in Filmora\""
-date: 2024-05-25T12:31:35.678Z
-updated: 2024-05-26T12:31:35.678Z
+date: 2024-06-09T08:54:56.142Z
+updated: 2024-06-10T08:54:56.142Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Channel Your Creativity: Crafting YouTube Trailers in Filmora\""
 excerpt: "\"This Article Describes [New] Channel Your Creativity: Crafting YouTube Trailers in Filmora\""
 keywords: "Filmora Trailer Making,Creative Video Production,YouTube Trailer Craft,Digital Media Channeling,Filmmaker Creativity Boost,Trailer Editing Software,Artistic Video Content"
-thumbnail: https://www.lifewire.com/thmb/DwsDy9imoz85_yJbP3D7n-APAnE=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed2-60f231b72c19491683c2166c9285b34d.jpg
+thumbnail: https://thmb.techidaily.com/9c2b7ca2e1893d88d6bb8597241a29c970bfa10f3bf7e355bd7f5437be375738.jpg
 ---
 
 ## Channel Your Creativity: Crafting YouTube Trailers in Filmora

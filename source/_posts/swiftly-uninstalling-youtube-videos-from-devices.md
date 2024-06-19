@@ -1,7 +1,7 @@
 ---
 title: "Swiftly Uninstalling YouTube Videos From Devices"
-date: 2024-05-25T12:53:30.858Z
-updated: 2024-05-26T12:53:30.858Z
+date: 2024-06-09T08:54:45.161Z
+updated: 2024-06-10T08:54:45.161Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Swiftly Uninstalling YouTube Videos From Devices"
 excerpt: "This Article Describes Swiftly Uninstalling YouTube Videos From Devices"
 keywords: "Uninstall YouTube,Remove YouTube Video,Delete YouTube App,Unlink YouTube Device,Erase YouTube Tracks,Disconnect YouTube Playback,Extract YouTube Content"
-thumbnail: https://www.lifewire.com/thmb/AH9mqPzoPDVMP3GVRyEpC5WN6uM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/yandex_eng_logo-56a289a13df78cf772774ad4.png
+thumbnail: https://thmb.techidaily.com/4bc09bf00dd16476adc7181e127ad6390edb7499dd05b4708d5bc6f8d46016ec.png
 ---
 
 ## Swiftly Uninstalling YouTube Videos From Devices

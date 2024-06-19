@@ -1,7 +1,7 @@
 ---
 title: "\"Getting Started with Stylish Mac-Made YouTube Vids\""
-date: 2024-05-25T11:55:21.199Z
-updated: 2024-05-26T11:55:21.199Z
+date: 2024-06-09T08:54:52.509Z
+updated: 2024-06-10T08:54:52.509Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Getting Started with Stylish Mac-Made YouTube Vids\""
 excerpt: "\"This Article Describes Getting Started with Stylish Mac-Made YouTube Vids\""
 keywords: "\"YouTube Creation Basics,DIY Mac Video Making,Mac Vid Production Tips,Creative YouTube Content,Mac Users' Video Editing,Stylish Mac-Made Vids Guide,Easy Mac Videos for YouTubers\""
-thumbnail: https://www.lifewire.com/thmb/t_bI7HCvhkb8SqhKHeK7E2E9LWo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1271990303-32f5706e9f8f4bdf940b6eedc13f5e67.jpg
+thumbnail: https://thmb.techidaily.com/4285b91a5eec460b353e6cabe3924d845457ea4dd57027d124c1eda481947485.jpg
 ---
 
 ## Getting Started with Stylish Mac-Made YouTube Vids

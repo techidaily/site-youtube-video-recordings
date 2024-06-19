@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breakdown  Fundamental Aspects of ASMR Videos\""
-date: 2024-05-25T12:29:59.931Z
-updated: 2024-05-26T12:29:59.931Z
+date: 2024-06-09T08:54:44.509Z
+updated: 2024-06-10T08:54:44.509Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Breakdown: Fundamental Aspects of ASMR Videos\""
 excerpt: "\"This Article Describes [New] Breakdown: Fundamental Aspects of ASMR Videos\""
 keywords: "ASMR Essentials,ASMR Basics,ASMR Principles,ASMR Understanding,ASMR Core Ideas,ASMR Fundamentals,Key ASMR Concepts"
-thumbnail: https://www.lifewire.com/thmb/osG7bQcVuGFDS_MApSBWwP3z7wI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/BA65442_HighRes-56a4b3f45f9b58b7d0d863c3-8c99b3e2f2ce4616bcf6df547f73cb76.jpg
+thumbnail: https://thmb.techidaily.com/47c87681ac372431d1a474c8317d79b86d7b096b7381c52dc39eb2ace8244b33.jpg
 ---
 
 ## Breakdown: Fundamental Aspects of ASMR Videos

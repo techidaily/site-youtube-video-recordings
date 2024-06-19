@@ -1,7 +1,7 @@
 ---
 title: "\"A Filmmaker's Companion  The Journey From Capturing to Post-Production of 360 Videos\""
-date: 2024-05-25T11:16:42.796Z
-updated: 2024-05-26T11:16:42.796Z
+date: 2024-06-09T08:54:53.030Z
+updated: 2024-06-10T08:54:53.030Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes A Filmmaker's Companion: The Journey From Capturing to Post-Production of 360 Videos\""
 excerpt: "\"This Article Describes A Filmmaker's Companion: The Journey From Capturing to Post-Production of 360 Videos\""
 keywords: "\"Filmmaking Guide 360,360 Video Production,360 Filmmaking Tips,VR Video Editing Process,Post-Production for 360,Capturing in 360 Videos,Finalizing 360 Films\""
-thumbnail: https://www.lifewire.com/thmb/Wnjr5d8PWtLhZKZOlT7PSsWhqZ8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/YoungAsianmanusinglaptopandreadingnewspaperonplane-59960904685fbe00103478bd.jpg
+thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c63be7c3be4720f86eba5080f.jpg
 ---
 
 ## A Filmmaker's Companion: The Journey From Capturing to Post-Production of 360 Videos

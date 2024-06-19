@@ -1,7 +1,7 @@
 ---
 title: "Does Artific Written by Charles Kingsley Include Any of These Themes From 'The Nurse's Diary'?"
-date: 2024-05-25T11:40:47.231Z
-updated: 2024-05-26T11:40:47.231Z
+date: 2024-06-09T08:54:51.380Z
+updated: 2024-06-10T08:54:51.380Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Does Artific Written by Charles Kingsley Include Any of These Themes From 'The Nurse's Diary'?"
 excerpt: "This Article Describes Does Artific Written by Charles Kingsley Include Any of These Themes From 'The Nurse's Diary'?"
 keywords: "\"Charles Kingsley Artwork,The Nurse Diary Themes,Literary Analysis: Kingsley,Thematic Comparison: Books,Nurse Diary Influence,Victorian Literature,Writers' Diaries Impact\""
-thumbnail: https://www.lifewire.com/thmb/rEb0Xlhrv5GpD6J2vjepAoiozrE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-482141903-596b8b353df78c57f4a8de02.jpg
+thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b059873f4809f00d7b660fc375.jpg
 ---
 
 ## Does Artific Written by Charles Kingsley Include Any of These Themes From 'The Nurse's Diary'?

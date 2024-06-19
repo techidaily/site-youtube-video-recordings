@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Ensuring Visibility  Fixing Missing Shorts Thumbnails\""
-date: 2024-05-25T12:15:30.137Z
-updated: 2024-05-26T12:15:30.137Z
+date: 2024-06-09T08:54:50.377Z
+updated: 2024-06-10T08:54:50.377Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Ensuring Visibility: Fixing Missing Shorts Thumbnails\""
 excerpt: "\"This Article Describes In 2024, Ensuring Visibility: Fixing Missing Shorts Thumbnails\""
 keywords: "Thumbnail Visibility,Image Shortage Fix,Google Image Thumbnails,Thumbnails Optimization,Ensure Image Preview,Image Display Resolution,Shorts Image Correction"
-thumbnail: https://www.lifewire.com/thmb/5sZ2IYbS1Vq7ZwEoK_PsppTsHS4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed1-e3445b89ed8d4c268efdc8be28e16417.png
+thumbnail: https://thmb.techidaily.com/412d065764cb0ba50733f600b7a0dabb6c2d4fd117a0cc25cd8642bbb251c9cc.png
 ---
 
 ## Ensuring Visibility: Fixing Missing Shorts Thumbnails

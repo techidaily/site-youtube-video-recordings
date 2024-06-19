@@ -1,7 +1,7 @@
 ---
 title: "Tailoring Your Viewing Experience with YouTube TV"
-date: 2024-05-25T12:53:59.199Z
-updated: 2024-05-26T12:53:59.199Z
+date: 2024-06-09T08:54:50.892Z
+updated: 2024-06-10T08:54:50.892Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Tailoring Your Viewing Experience with YouTube TV"
 excerpt: "This Article Describes Tailoring Your Viewing Experience with YouTube TV"
 keywords: "Personalized YouTube,Custom Watching,TV Streaming,YouTube Subscription,Online Television,Video Access,Curated Channels"
-thumbnail: https://www.lifewire.com/thmb/XV2DVVK-WUARc5HX9NbKMjUKlUo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-73cf43c8e3ae418bb426cb3b0b450125.png
+thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a8ac533f579ade7f75a2ecaa.png
 ---
 
 ## Tailoring Your Viewing Experience with YouTube TV

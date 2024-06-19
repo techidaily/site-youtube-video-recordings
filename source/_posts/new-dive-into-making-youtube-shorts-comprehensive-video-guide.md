@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Dive Into Making YouTube Shorts  Comprehensive Video Guide\""
-date: 2024-05-25T12:37:13.070Z
-updated: 2024-05-26T12:37:13.070Z
+date: 2024-06-09T08:54:53.188Z
+updated: 2024-06-10T08:54:53.188Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Dive Into Making YouTube Shorts: Comprehensive Video Guide\""
 excerpt: "\"This Article Describes [New] Dive Into Making YouTube Shorts: Comprehensive Video Guide\""
 keywords: "\"YouTube Short Creation,Video Content Strategies,Short-Form Video Tips,Engaging Short Videos,Making YouTube Clips,Professional Shorts Guide,Streaming Video Techniques\""
-thumbnail: https://www.lifewire.com/thmb/GvWjSDcEKmdxyQaXV-cNfcaqzYg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/rtx408011-595ec7d7992e4f4fa7dbfd5097cf3f52.jpg
+thumbnail: https://thmb.techidaily.com/bc869d9d43a6e8eaba8010b4b670a5dfb48692bbace90e7ba999d6674c090e3f.jpg
 ---
 
 ## Dive Into Making YouTube Shorts: Comprehensive Video Guide

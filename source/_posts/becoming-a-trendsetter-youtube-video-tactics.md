@@ -1,7 +1,7 @@
 ---
 title: "\"Becoming a Trendsetter  YouTube Video Tactics\""
-date: 2024-05-25T11:21:56.521Z
-updated: 2024-05-26T11:21:56.521Z
+date: 2024-06-09T08:54:52.005Z
+updated: 2024-06-10T08:54:52.005Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Becoming a Trendsetter: YouTube Video Tactics\""
 excerpt: "\"This Article Describes Becoming a Trendsetter: YouTube Video Tactics\""
 keywords: "Trendsetting on YouTube,YouTube Video Tactics,Engaging YouTube Audiences,Content Creation for Trends,Influencer Video Strategies,Viral Video Techniques,Video Marketing Tips"
-thumbnail: https://www.lifewire.com/thmb/TYGiT5X9QiOC8P7-lx0tWOT-IQI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/airpodbatterylevelonandroid-15c1db7e9fac43248d130a42540c12a6.jpg
+thumbnail: https://thmb.techidaily.com/98061f90f0702266772c41039bf7505ea26afb88709675b4845f86d9c07123c1.jpg
 ---
 
 ## Becoming a Trendsetter: YouTube Video Tactics

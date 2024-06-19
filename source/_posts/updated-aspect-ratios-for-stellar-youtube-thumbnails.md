@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Aspect Ratios for Stellar Youtube Thumbnails"
-date: 2024-05-25T13:10:03.789Z
-updated: 2024-05-26T13:10:03.789Z
+date: 2024-06-09T08:54:57.345Z
+updated: 2024-06-10T08:54:57.345Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Aspect Ratios for Stellar Youtube Thumbnails"
 excerpt: "This Article Describes [Updated] Aspect Ratios for Stellar Youtube Thumbnails"
 keywords: "YT Thumbnail Ratios,Perfect Thumbnail Aspect,Optimal Video Size,Enhance Video Appeal,Engaging Video Layouts,Best Thumbnail Practices,Improve View Counts"
-thumbnail: https://www.lifewire.com/thmb/dDS1dpRsYd-e6LEYR10Kqw81GEQ=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/Navepoint12U-593077095f9b589eb4760ed7.jpg
+thumbnail: https://thmb.techidaily.com/6aaf83c5a09999402e25379b87750585dedbdeb12f25c6a6196a672ab852e088.jpg
 ---
 
 ## Aspect Ratios for Stellar Youtube Thumbnails

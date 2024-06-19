@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Average Income for Popular YouTube Creators"
-date: 2024-05-25T13:10:30.517Z
-updated: 2024-05-26T13:10:30.517Z
+date: 2024-06-09T08:54:48.896Z
+updated: 2024-06-10T08:54:48.896Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Average Income for Popular YouTube Creators"
 excerpt: "This Article Describes [Updated] Average Income for Popular YouTube Creators"
 keywords: "YouTubers' Earnings Average,Popular YouTubers Income,Average Vid Creator Salary,YouTube Fans Revenue Share,Creative Content Earning Norm,Viral Video Maker Pay Scales,Viewership Income Range"
-thumbnail: https://www.lifewire.com/thmb/eYcaBBIZ1vACwviFbibN_RqgtSY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/man-measuring-tv-size-102761115-getty-5bf8513246e0fb008321de5f.jpg
+thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed98794f1ba27d0b681ad3c785.jpg
 ---
 
 ## Average Income for Popular YouTube Creators

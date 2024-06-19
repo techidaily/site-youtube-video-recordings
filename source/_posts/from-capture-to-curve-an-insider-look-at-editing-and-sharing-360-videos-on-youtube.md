@@ -1,7 +1,7 @@
 ---
 title: "\"From Capture to Curve  An Insider Look at Editing and Sharing 360° Videos on YouTube\""
-date: 2024-05-25T11:54:00.215Z
-updated: 2024-05-26T11:54:00.215Z
+date: 2024-06-09T08:54:45.412Z
+updated: 2024-06-10T08:54:45.412Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes From Capture to Curve: An Insider Look at Editing and Sharing 360° Videos on YouTube\""
 excerpt: "\"This Article Describes From Capture to Curve: An Insider Look at Editing and Sharing 360° Videos on YouTube\""
 keywords: "\"360-Degree Video Editing,YouTube Video Sharing,YouTube 360 Content,Video Curve Processing,Editing 360° Videos,Curve in Video Editing,Insider Video Creation\""
-thumbnail: https://www.lifewire.com/thmb/dMPS7xdJyHFzVyJkCHD1luzOMsY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1307216070-0e099dda13034522b872849a6b02d975.jpg
+thumbnail: https://thmb.techidaily.com/cf88e87b734b5b9f59ddbd2f8f99680f9b1ec3ba8de831308f2fd3fe15c5bbed.jpg
 ---
 
 ## From Capture to Curve: An Insider Look at Editing and Sharing 360° Videos on YouTube

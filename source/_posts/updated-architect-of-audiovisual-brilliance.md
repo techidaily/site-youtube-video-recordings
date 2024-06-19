@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Architect of Audiovisual Brilliance"
-date: 2024-05-25T13:09:56.336Z
-updated: 2024-05-26T13:09:56.336Z
+date: 2024-06-09T08:54:47.208Z
+updated: 2024-06-10T08:54:47.208Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Architect of Audiovisual Brilliance"
 excerpt: "This Article Describes [Updated] Architect of Audiovisual Brilliance"
 keywords: "\"Audio Visual Design Expert,Vivid Creative Architect,Audiovisual Creation Leader,Dynamic Video Artisan,Immersive Media Innovator,Brilliant A/V Engineer,Sound-Visual Design Genius\""
-thumbnail: https://www.lifewire.com/thmb/9W5WO_ywvBNq_CBfexvVw3IvbV4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/womanusinglaptopfrustrated_small-5c50cd76c9e77c00016f382a.jpg
+thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
 ---
 
 ## Architect of Audiovisual Brilliance

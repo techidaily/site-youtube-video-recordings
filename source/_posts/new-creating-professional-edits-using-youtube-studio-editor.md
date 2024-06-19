@@ -1,7 +1,7 @@
 ---
 title: "[New] Creating Professional Edits Using YouTube Studio Editor"
-date: 2024-05-25T12:34:23.473Z
-updated: 2024-05-26T12:34:23.473Z
+date: 2024-06-09T08:54:42.205Z
+updated: 2024-06-10T08:54:42.205Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Creating Professional Edits Using YouTube Studio Editor"
 excerpt: "This Article Describes [New] Creating Professional Edits Using YouTube Studio Editor"
 keywords: "Edit Professionally With YouTube,YouTube Studio Editing Tips,Video Editing in YouTube Studio,Professional Video Editing Tools,YouTube Studio Edit Features,Advanced YouTube Editing Techniques,Enhance Videos Using YouTube Editor"
-thumbnail: https://www.lifewire.com/thmb/MWrfCTY-4SoWWvIjxq98B6he7IY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/icooker-tv-safety-straps-xxyy-577acfff3df78cb62c554ad1.jpg
+thumbnail: https://thmb.techidaily.com/95e300018e980291f8509be45c3e360fa38c440741dbce7d87b862e7e88474bb.jpg
 ---
 
 ## Creating Professional Edits Using YouTube Studio Editor
