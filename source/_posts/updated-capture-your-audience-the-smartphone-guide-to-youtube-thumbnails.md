@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Capture Your Audience  The Smartphone Guide to YouTube Thumbnails\""
-date: 2024-05-25T13:13:56.260Z
-updated: 2024-05-26T13:13:56.260Z
+date: 2024-06-26T00:20:21.217Z
+updated: 2024-06-27T00:20:21.217Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Capture Your Audience: The Smartphone Guide to YouTube Thumbnails\""
 excerpt: "\"This Article Describes [Updated] Capture Your Audience: The Smartphone Guide to YouTube Thumbnails\""
 keywords: "YouTubE Thumbnails Guide,Capture Audience Smartphones,Engaging YouTube Thumbnail Tips,Mobile Thumbnail Design Advice,YouTube Video Attractiveness,Effective Thumbnail Strategies,Boosting View Counts Thumbnails"
-thumbnail: https://www.lifewire.com/thmb/sx5hd7He1vcpR0KajATX8cwq3zM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Twitter-and-X-4c4103f6bc3c42e0b7197b60a50317ca.jpg
+thumbnail: https://thmb.techidaily.com/1b366750108562524d82d4ae59a489c50fa84a81f8bcbe092ec793162bb9610d.jpg
 ---
 
 ## Capture Your Audience: The Smartphone Guide to YouTube Thumbnails
@@ -371,9 +371,7 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 ## Tackling Negative Comments: A Content Creator's Mantra
 
-# How To Deal with YouTube Trolls and Negative Comments
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Deal with YouTube Trolls and Negative Comments ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

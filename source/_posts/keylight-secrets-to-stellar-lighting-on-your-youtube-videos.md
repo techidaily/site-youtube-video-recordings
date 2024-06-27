@@ -1,7 +1,7 @@
 ---
 title: "\"Keylight  Secrets to Stellar Lighting on Your YouTube Videos\""
-date: 2024-05-25T12:18:41.511Z
-updated: 2024-05-26T12:18:41.511Z
+date: 2024-06-26T00:20:53.636Z
+updated: 2024-06-27T00:20:53.636Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes Keylight: Secrets to Stellar Lighting on Your YouTube Videos\""
 excerpt: "\"This Article Describes Keylight: Secrets to Stellar Lighting on Your YouTube Videos\""
 keywords: "YouTube Lighting Tips,Keylight Techniques,Video Lighting Secrets,Professional Video Illumination,Enhancing Video Brightness,Stellar Light for Videos,Improve Online Video Shine"
-thumbnail: https://www.lifewire.com/thmb/j1p_eafOIBzeuVMoFiTu1Hxzxe4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Familyroadtrip_Maskot_Getty-c760389eb6e64d6682aa79ceb9552967.jpg
+thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f4a1f3aaa3fc523cba06c6cc.jpg
 ---
 
 ## Keylight: Secrets to Stellar Lighting on Your YouTube Videos
 
-# How To Light Your YouTube Video
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How To Light Your YouTube Video ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -45,7 +43,7 @@ The best thing about window lighting is that it’s free. The worst thing about 
 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
-![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+![YouTube Video Lighting](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -128,7 +126,7 @@ The best thing about window lighting is that it’s free. The worst thing about 
 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
-![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+![YouTube Video Lighting](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -211,7 +209,7 @@ The best thing about window lighting is that it’s free. The worst thing about 
 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
-![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+![YouTube Video Lighting](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -294,7 +292,7 @@ The best thing about window lighting is that it’s free. The worst thing about 
 
 Window lighting for me was especially difficult to work with because I live in a very rainy and cloudy city, Vancouver, Canada, where we pretty much just get three months of good sun.
 
-![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
+![YouTube Video Lighting](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
@@ -366,9 +364,7 @@ Follow @Richard Bennett
 
 ## Unveiling the Path: Starting with Your YouTube Identity
 
-# How to Create a YouTube Account
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create a YouTube Account ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

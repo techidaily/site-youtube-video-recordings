@@ -1,7 +1,7 @@
 ---
 title: "[New] Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension"
-date: 2024-05-25T12:42:41.254Z
-updated: 2024-05-26T12:42:41.254Z
+date: 2024-06-26T00:20:40.501Z
+updated: 2024-06-27T00:20:40.501Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension"
 excerpt: "This Article Describes [New] Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension"
 keywords: "Youtube Banner Tips,Optimal Channels Art Sizes,Max Banner Pixel Heights,Channel Art Guidelines,YouTube Banners Best Practices,Digital Video Art Dimensions,Effective YouTubes Designs"
-thumbnail: https://www.lifewire.com/thmb/DjoCtc_PCQcwqqKtzrLBasNfNLQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ball-958950_1920-b2d63a2acf5d438cbb65e04cba952c7e.jpg
+thumbnail: https://thmb.techidaily.com/de4f0312e209bc69406fe77be7db4ffab9fd4723c69e6ec9a49854fd1e940559.jpg
 ---
 
 ## Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension
@@ -49,21 +49,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -73,9 +67,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -85,9 +77,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -163,21 +153,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -187,9 +171,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -199,9 +181,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -277,21 +257,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -301,9 +275,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -313,9 +285,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -391,21 +361,15 @@ For the best results on all devices, your YouTube banner size should be:
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on TVs**
 
- 2560 x 1440 px
+ 2560 x 1440 px ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
 
- ![entire banner size](https://images.wondershare.com/filmora/article-images/entire-banner-size1.jpg)
-
-YouTube will display your entire channel art on TVs
-
- ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
+YouTube will display your entire channel art on TVs ![tv dimension display](https://images.wondershare.com/filmora/article-images/tv-dimension-display2.jpg)
 
 Here’s what our YouTube channel art example would look like on a TV.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Smaller Desktop Monitors and Mobile Phones**
 
- 1546 x 423 px
-
- ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
+ 1546 x 423 px ![desktop minimum dimension](https://images.wondershare.com/filmora/article-images/desktop-minimum-mobile3.jpg)
 
 On small desktop monitors and mobile devices, YouTube will display less than 20% of your entire channel art, the center area measuring a width of 1546 pixels and a height of 423 pixels. You want to make sure that your text and logo make it into this part.
 
@@ -415,9 +379,7 @@ Here’s what our YouTube channel art example would look like on a mobile phone.
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Tablets**
 
-1855 x 423 px
-
-![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
+1855 x 423 px ![tablet dimension](https://images.wondershare.com/filmora/article-images/tablet-dimension5.jpg)
 
 On tablet devices, YouTube will display around 20% more of your channel art, just to the sides of your smaller desktop monitor and mobile device area.
 
@@ -427,9 +389,7 @@ Here’s what our YouTube channel art example would look like on a tablet device
 
 #### **YouTube Channel Art/Banner Dimensions Displayed on Larger Desktop Monitors**
 
- 2560 x 423 px
-
- ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
+ 2560 x 423 px ![desktop max dimension](https://images.wondershare.com/filmora/article-images/desktop-max-dimension7.jpg)
 
 On larger desktop monitors, YouTube will display the entire width of your channel art but not the upper and lower part.
 
@@ -490,9 +450,7 @@ Follow @Richard Bennett
 
 ## The Social Media Symphony: Composing Jake Paul's YouTube Success
 
-# Jake Paul's YouTube Success Story - All You Need to Know
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Jake Paul's YouTube Success Story - All You Need to Know ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -562,7 +520,7 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
-### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
+### Get the ultimate guide to growing your YouTube subscribers
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
@@ -644,7 +602,7 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
-### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
+### Get the ultimate guide to growing your YouTube subscribers
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
@@ -726,7 +684,7 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
-### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
+### Get the ultimate guide to growing your YouTube subscribers
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
@@ -808,7 +766,7 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
-### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
+### Get the ultimate guide to growing your YouTube subscribers
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 

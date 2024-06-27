@@ -1,7 +1,7 @@
 ---
 title: "\"Budget-Friendly Methods for YouTube Card Creation for 2024\""
-date: 2024-05-25T11:26:29.113Z
-updated: 2024-05-26T11:26:29.113Z
+date: 2024-06-26T00:20:41.453Z
+updated: 2024-06-27T00:20:41.453Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes Budget-Friendly Methods for YouTube Card Creation for 2024\""
 excerpt: "\"This Article Describes Budget-Friendly Methods for YouTube Card Creation for 2024\""
 keywords: "\"Budget Video Cards,YouTube Cost-Effective Tips,Economical Card Making Guide,DIY Low-Cost YouTube Content,Frugal Video Creation Techniques,Affordable Content Production,Thrifty Media Tools\""
-thumbnail: https://www.lifewire.com/thmb/BW2Lher3W3SF0AiM8EKoxi1zUQw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-597071115-37c5865742de421eafc8b7da4cc5a618.jpg
+thumbnail: https://thmb.techidaily.com/92ce41ef8b05767b09e5cccf1de47f0c1a1c9c1b0cd1ef1d90d54872beba93f1.jpg
 ---
 
 ## Budget-Friendly Methods for YouTube Card Creation
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -148,7 +146,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -191,7 +189,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -246,7 +244,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -289,7 +287,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -344,7 +342,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -387,7 +385,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.

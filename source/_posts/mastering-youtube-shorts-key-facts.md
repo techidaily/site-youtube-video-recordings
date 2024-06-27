@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering YouTube Shorts  Key Facts\""
-date: 2024-05-25T12:21:33.390Z
-updated: 2024-05-26T12:21:33.390Z
+date: 2024-06-26T00:20:48.428Z
+updated: 2024-06-27T00:20:48.428Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Mastering YouTube Shorts: Key Facts\""
 excerpt: "\"This Article Describes Mastering YouTube Shorts: Key Facts\""
 keywords: "YouTubShortMastery,YouTubeShortFacts,ShortTubeStrategies,VideoShortKeyPoints,EngagingYouTubeSnips,ShortVideoOptimization,ViralYTShorts"
-thumbnail: https://www.lifewire.com/thmb/Jz4ZKPDnqHGvdTa0nIbce_kihiw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/blackiphonescreen-565bb1bcd29b4b2dba8e452a50ee1213.jpg
+thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960550c4309b2e36a11fd875c9.jpg
 ---
 
 ## Mastering YouTube Shorts: Key Facts
@@ -334,9 +334,7 @@ Now it is time for you to pick the right YouTube shorts description for your vid
 
 ## Free Cash Flow Estimator Apps
 
-# Free YouTube Money Calculators-Calculate YouTube Money
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# Free YouTube Money Calculators-Calculate YouTube Money ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

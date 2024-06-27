@@ -1,7 +1,7 @@
 ---
 title: "\"Simplify Your Internet Experience  Step-by-Step Guide to Disabling Youtube on Devices\""
-date: 2024-05-25T12:49:27.356Z
-updated: 2024-05-26T12:49:27.356Z
+date: 2024-06-26T00:20:51.529Z
+updated: 2024-06-27T00:20:51.529Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes Simplify Your Internet Experience: Step-by-Step Guide to Disabling Youtube on Devices\""
 excerpt: "\"This Article Describes Simplify Your Internet Experience: Step-by-Step Guide to Disabling Youtube on Devices\""
 keywords: "Simplify Web Usage,Optimize Online Browsing,Ease Digital Interface,Streamline Internet Access,Cut YouTube Distraction,Limit Youtube on Devices,Control Video Playback"
-thumbnail: https://www.lifewire.com/thmb/0xgLnS3M6CP4FiP4I-VE1zFOiLo=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-use-a-ps5-controller-on-your-pc-or-mac-5089439-b56739aa27bd48858200878a6b64f952.jpg
+thumbnail: https://thmb.techidaily.com/0c4c453f95a612f76b387ff712305941e5398ae6df028882ef27bbdd6859fdde.jpg
 ---
 
 ## Simplify Your Internet Experience: Step-by-Step Guide to Disabling Youtube on Devices
 
-# How to Block YouTube Channels on Computer and Mobile Phones
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Block YouTube Channels on Computer and Mobile Phones ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -89,9 +87,7 @@ thumbnail: https://www.lifewire.com/thmb/0xgLnS3M6CP4FiP4I-VE1zFOiLo=/360x240/fi
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -195,9 +191,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -301,9 +295,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -407,9 +399,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.

@@ -1,7 +1,7 @@
 ---
 title: "\"Viral Video Vanguard  YouTube's Powerful Personalities\""
-date: 2024-05-25T13:26:22.765Z
-updated: 2024-05-26T13:26:22.765Z
+date: 2024-06-26T00:20:38.893Z
+updated: 2024-06-27T00:20:38.893Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Viral Video Vanguard: YouTube's Powerful Personalities\""
 excerpt: "\"This Article Describes Viral Video Vanguard: YouTube's Powerful Personalities\""
 keywords: "Viral YouTubers,Popular Vid Crew,Online Content Stars,Trending Video Influencers,YouTube Sensations,Hit Video Creators,Streaming Visionaries"
-thumbnail: https://www.lifewire.com/thmb/CdwM_EpT_yc3Xntve3NUsnu0_u8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/windows11parentalcontrols-4de29d5d81e7432b89c5de2e2133ce70.jpg
+thumbnail: https://thmb.techidaily.com/d00f8f89497ceffd0abb3141cb4e3658817be8d659619b87570cab49fe038d18.jpg
 ---
 
 ## Viral Video Vanguard: YouTube's Powerful Personalities

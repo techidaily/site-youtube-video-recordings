@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Design  Top 5 3D Intro Makers\""
-date: 2024-05-25T12:35:01.425Z
-updated: 2024-05-26T12:35:01.425Z
+date: 2024-06-26T00:20:42.288Z
+updated: 2024-06-27T00:20:42.288Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes [New] Cutting-Edge Design: Top 5 3D Intro Makers\""
 excerpt: "\"This Article Describes [New] Cutting-Edge Design: Top 5 3D Intro Makers\""
 keywords: "3D Prototyping Tools,Innovative 3D Designs,Advanced 3D Creators,Premium 3D Intro Makers,Top 3D Model Systems,Leading 3D Intro Maker,Elite 3D Visualizers"
-thumbnail: https://www.lifewire.com/thmb/M8nTiwLLAFZesyB_EbKXIxGR1nU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1148422594-c785d515e0a34d2dba107f88fb475071.jpg
+thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816dfbd913fea0d2186dd349bdd.jpg
 ---
 
 ## Cutting-Edge Design: Top 5 3D Intro Makers
 
-# Top 5 3D Intro Makers for YouTube Videos
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 5 3D Intro Makers for YouTube Videos ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -32,7 +30,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
-#### 1. [Panzoid](https://panzoid.com/)
+#### 1. Panzoid
 
 **Price:** Free
 
@@ -40,7 +38,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 This is an online platform that features hundreds of templates created by the platform’s users. Some of these templates are free to use, while some creators ask for a credit if you want to open your video with their intro. Each of the templates can be customized in accordance with the demands of your project from the platform’s Clipmaker, and you can even create your own account where you can save all your projects. After you’ve selected an intro you like, you can pick a new environment, insert new text and change its font, size or appearance, among other things. You can also adjust the Position, Rotation or Shake options in the Camera menu, and you can upload your own music, apply the fade in and fade out sound effects or adjust the sound volume from the Audio tab. When done, you should head over to the Download menu where you choose the Render Mode, and the format of the file you’re rendering before you save a watermark-free video to your computer.
 
-#### 2. [Blender](https://www.blender.org/)
+#### 2. Blender
 
 **Price:** Free
 
@@ -48,7 +46,7 @@ This is an online platform that features hundreds of templates created by the pl
 
 Creating visual effects, tracking objects or making 3D intros for your YouTube videos are just a few, among numerous things you can do with Blender. This is an open source software, which means that anyone who is skillful enough can become a contributor. Moreover, you can develop the tools and add-ons on your own and customize the interface in virtually any way you want. Nonetheless, you must be a proficient 3D modeler and animator in order to be able to use Blender to create 3D intros for your YouTube videos, as the tools the software offers can be overwhelming for inexperienced users. On the other hand, Blender may be one of the best 3D creation suites around, so if you have plenty of experience with modeling, animation, compositing or motion tracking you should try creating 3D intros with this powerful software.
 
-#### 3. [Renderforest](https://www.renderforest.com/)
+#### 3. Renderforest
 
 **Price:** Free, subscription plans start at $9,99 for a single export
 
@@ -56,7 +54,7 @@ Creating visual effects, tracking objects or making 3D intros for your YouTube v
 
 You can use Renderforest for much more than just making intros, as the platform offers the tools for logo creation, video editing, and website design. The platform also contains a huge intro the collection you can use free of charge. What’s more, you can customize each intro by changing the text, adjusting its colors or adding a voice-over. Renderforest lets you use its music library to create a soundtrack for the intro, or you can upload your own music from a computer and add it to the intro you’re making. Downloading the intros and all other videos you make with Renderforest is not possible unless you create an account. In addition, all the visual content you produce with the free version of Renderforest is going to be watermarked and in relatively poor resolution, which is why you have to select a subscription plan that allows you to get rid of the watermark and download videos in high-resolution.
 
-#### 4. [MotionDen](https://motionden.com/)
+#### 4. MotionDen
 
 **Price:** Free, subscription plans start at $9,00
 
@@ -64,7 +62,7 @@ You can use Renderforest for much more than just making intros, as the platform 
 
 Making 2D animations, birthday videos, commercials, logo animations or 3D intros for YouTube videos on the MotionDen platform is easy. There are hundreds of templates organized in categories and you just have to go to YouTube Intros category and select the intro you’d like to add to your YouTube video. You must create an account on the MotionDen platform, if you want to customize your videos before you download them. Keep in mind that you can only edit and download one intro for free and that you must choose a subscription plan in order to be able to fully customize the 3D YouTube intro you’ve selected and download it to your computer without a watermark. MotionDen is a great source of material for all YouTube content creators who don’t want to spend a lot of time creating 3D intros from scratch and would rather quickly customize a template before adding it to their project.
 
-#### 5. [Intro Maker for YouTube](https://play.google.com/store/apps/details?id=com.ryzenrise.intromaker&hl=en)
+#### 5. Intro Maker for YouTube
 
 **Price:** Free, but offers in-app purchases
 
@@ -98,7 +96,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
-#### 1. [Panzoid](https://panzoid.com/)
+#### 1. Panzoid
 
 **Price:** Free
 
@@ -106,7 +104,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 This is an online platform that features hundreds of templates created by the platform’s users. Some of these templates are free to use, while some creators ask for a credit if you want to open your video with their intro. Each of the templates can be customized in accordance with the demands of your project from the platform’s Clipmaker, and you can even create your own account where you can save all your projects. After you’ve selected an intro you like, you can pick a new environment, insert new text and change its font, size or appearance, among other things. You can also adjust the Position, Rotation or Shake options in the Camera menu, and you can upload your own music, apply the fade in and fade out sound effects or adjust the sound volume from the Audio tab. When done, you should head over to the Download menu where you choose the Render Mode, and the format of the file you’re rendering before you save a watermark-free video to your computer.
 
-#### 2. [Blender](https://www.blender.org/)
+#### 2. Blender
 
 **Price:** Free
 
@@ -114,7 +112,7 @@ This is an online platform that features hundreds of templates created by the pl
 
 Creating visual effects, tracking objects or making 3D intros for your YouTube videos are just a few, among numerous things you can do with Blender. This is an open source software, which means that anyone who is skillful enough can become a contributor. Moreover, you can develop the tools and add-ons on your own and customize the interface in virtually any way you want. Nonetheless, you must be a proficient 3D modeler and animator in order to be able to use Blender to create 3D intros for your YouTube videos, as the tools the software offers can be overwhelming for inexperienced users. On the other hand, Blender may be one of the best 3D creation suites around, so if you have plenty of experience with modeling, animation, compositing or motion tracking you should try creating 3D intros with this powerful software.
 
-#### 3. [Renderforest](https://www.renderforest.com/)
+#### 3. Renderforest
 
 **Price:** Free, subscription plans start at $9,99 for a single export
 
@@ -122,7 +120,7 @@ Creating visual effects, tracking objects or making 3D intros for your YouTube v
 
 You can use Renderforest for much more than just making intros, as the platform offers the tools for logo creation, video editing, and website design. The platform also contains a huge intro the collection you can use free of charge. What’s more, you can customize each intro by changing the text, adjusting its colors or adding a voice-over. Renderforest lets you use its music library to create a soundtrack for the intro, or you can upload your own music from a computer and add it to the intro you’re making. Downloading the intros and all other videos you make with Renderforest is not possible unless you create an account. In addition, all the visual content you produce with the free version of Renderforest is going to be watermarked and in relatively poor resolution, which is why you have to select a subscription plan that allows you to get rid of the watermark and download videos in high-resolution.
 
-#### 4. [MotionDen](https://motionden.com/)
+#### 4. MotionDen
 
 **Price:** Free, subscription plans start at $9,00
 
@@ -130,7 +128,7 @@ You can use Renderforest for much more than just making intros, as the platform 
 
 Making 2D animations, birthday videos, commercials, logo animations or 3D intros for YouTube videos on the MotionDen platform is easy. There are hundreds of templates organized in categories and you just have to go to YouTube Intros category and select the intro you’d like to add to your YouTube video. You must create an account on the MotionDen platform, if you want to customize your videos before you download them. Keep in mind that you can only edit and download one intro for free and that you must choose a subscription plan in order to be able to fully customize the 3D YouTube intro you’ve selected and download it to your computer without a watermark. MotionDen is a great source of material for all YouTube content creators who don’t want to spend a lot of time creating 3D intros from scratch and would rather quickly customize a template before adding it to their project.
 
-#### 5. [Intro Maker for YouTube](https://play.google.com/store/apps/details?id=com.ryzenrise.intromaker&hl=en)
+#### 5. Intro Maker for YouTube
 
 **Price:** Free, but offers in-app purchases
 
@@ -164,7 +162,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
-#### 1. [Panzoid](https://panzoid.com/)
+#### 1. Panzoid
 
 **Price:** Free
 
@@ -172,7 +170,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 This is an online platform that features hundreds of templates created by the platform’s users. Some of these templates are free to use, while some creators ask for a credit if you want to open your video with their intro. Each of the templates can be customized in accordance with the demands of your project from the platform’s Clipmaker, and you can even create your own account where you can save all your projects. After you’ve selected an intro you like, you can pick a new environment, insert new text and change its font, size or appearance, among other things. You can also adjust the Position, Rotation or Shake options in the Camera menu, and you can upload your own music, apply the fade in and fade out sound effects or adjust the sound volume from the Audio tab. When done, you should head over to the Download menu where you choose the Render Mode, and the format of the file you’re rendering before you save a watermark-free video to your computer.
 
-#### 2. [Blender](https://www.blender.org/)
+#### 2. Blender
 
 **Price:** Free
 
@@ -180,7 +178,7 @@ This is an online platform that features hundreds of templates created by the pl
 
 Creating visual effects, tracking objects or making 3D intros for your YouTube videos are just a few, among numerous things you can do with Blender. This is an open source software, which means that anyone who is skillful enough can become a contributor. Moreover, you can develop the tools and add-ons on your own and customize the interface in virtually any way you want. Nonetheless, you must be a proficient 3D modeler and animator in order to be able to use Blender to create 3D intros for your YouTube videos, as the tools the software offers can be overwhelming for inexperienced users. On the other hand, Blender may be one of the best 3D creation suites around, so if you have plenty of experience with modeling, animation, compositing or motion tracking you should try creating 3D intros with this powerful software.
 
-#### 3. [Renderforest](https://www.renderforest.com/)
+#### 3. Renderforest
 
 **Price:** Free, subscription plans start at $9,99 for a single export
 
@@ -188,7 +186,7 @@ Creating visual effects, tracking objects or making 3D intros for your YouTube v
 
 You can use Renderforest for much more than just making intros, as the platform offers the tools for logo creation, video editing, and website design. The platform also contains a huge intro the collection you can use free of charge. What’s more, you can customize each intro by changing the text, adjusting its colors or adding a voice-over. Renderforest lets you use its music library to create a soundtrack for the intro, or you can upload your own music from a computer and add it to the intro you’re making. Downloading the intros and all other videos you make with Renderforest is not possible unless you create an account. In addition, all the visual content you produce with the free version of Renderforest is going to be watermarked and in relatively poor resolution, which is why you have to select a subscription plan that allows you to get rid of the watermark and download videos in high-resolution.
 
-#### 4. [MotionDen](https://motionden.com/)
+#### 4. MotionDen
 
 **Price:** Free, subscription plans start at $9,00
 
@@ -196,7 +194,7 @@ You can use Renderforest for much more than just making intros, as the platform 
 
 Making 2D animations, birthday videos, commercials, logo animations or 3D intros for YouTube videos on the MotionDen platform is easy. There are hundreds of templates organized in categories and you just have to go to YouTube Intros category and select the intro you’d like to add to your YouTube video. You must create an account on the MotionDen platform, if you want to customize your videos before you download them. Keep in mind that you can only edit and download one intro for free and that you must choose a subscription plan in order to be able to fully customize the 3D YouTube intro you’ve selected and download it to your computer without a watermark. MotionDen is a great source of material for all YouTube content creators who don’t want to spend a lot of time creating 3D intros from scratch and would rather quickly customize a template before adding it to their project.
 
-#### 5. [Intro Maker for YouTube](https://play.google.com/store/apps/details?id=com.ryzenrise.intromaker&hl=en)
+#### 5. Intro Maker for YouTube
 
 **Price:** Free, but offers in-app purchases
 
@@ -230,7 +228,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
-#### 1. [Panzoid](https://panzoid.com/)
+#### 1. Panzoid
 
 **Price:** Free
 
@@ -238,7 +236,7 @@ Creating 3D animations from scratch is far from easy since you are going to need
 
 This is an online platform that features hundreds of templates created by the platform’s users. Some of these templates are free to use, while some creators ask for a credit if you want to open your video with their intro. Each of the templates can be customized in accordance with the demands of your project from the platform’s Clipmaker, and you can even create your own account where you can save all your projects. After you’ve selected an intro you like, you can pick a new environment, insert new text and change its font, size or appearance, among other things. You can also adjust the Position, Rotation or Shake options in the Camera menu, and you can upload your own music, apply the fade in and fade out sound effects or adjust the sound volume from the Audio tab. When done, you should head over to the Download menu where you choose the Render Mode, and the format of the file you’re rendering before you save a watermark-free video to your computer.
 
-#### 2. [Blender](https://www.blender.org/)
+#### 2. Blender
 
 **Price:** Free
 
@@ -246,7 +244,7 @@ This is an online platform that features hundreds of templates created by the pl
 
 Creating visual effects, tracking objects or making 3D intros for your YouTube videos are just a few, among numerous things you can do with Blender. This is an open source software, which means that anyone who is skillful enough can become a contributor. Moreover, you can develop the tools and add-ons on your own and customize the interface in virtually any way you want. Nonetheless, you must be a proficient 3D modeler and animator in order to be able to use Blender to create 3D intros for your YouTube videos, as the tools the software offers can be overwhelming for inexperienced users. On the other hand, Blender may be one of the best 3D creation suites around, so if you have plenty of experience with modeling, animation, compositing or motion tracking you should try creating 3D intros with this powerful software.
 
-#### 3. [Renderforest](https://www.renderforest.com/)
+#### 3. Renderforest
 
 **Price:** Free, subscription plans start at $9,99 for a single export
 
@@ -254,7 +252,7 @@ Creating visual effects, tracking objects or making 3D intros for your YouTube v
 
 You can use Renderforest for much more than just making intros, as the platform offers the tools for logo creation, video editing, and website design. The platform also contains a huge intro the collection you can use free of charge. What’s more, you can customize each intro by changing the text, adjusting its colors or adding a voice-over. Renderforest lets you use its music library to create a soundtrack for the intro, or you can upload your own music from a computer and add it to the intro you’re making. Downloading the intros and all other videos you make with Renderforest is not possible unless you create an account. In addition, all the visual content you produce with the free version of Renderforest is going to be watermarked and in relatively poor resolution, which is why you have to select a subscription plan that allows you to get rid of the watermark and download videos in high-resolution.
 
-#### 4. [MotionDen](https://motionden.com/)
+#### 4. MotionDen
 
 **Price:** Free, subscription plans start at $9,00
 
@@ -262,7 +260,7 @@ You can use Renderforest for much more than just making intros, as the platform 
 
 Making 2D animations, birthday videos, commercials, logo animations or 3D intros for YouTube videos on the MotionDen platform is easy. There are hundreds of templates organized in categories and you just have to go to YouTube Intros category and select the intro you’d like to add to your YouTube video. You must create an account on the MotionDen platform, if you want to customize your videos before you download them. Keep in mind that you can only edit and download one intro for free and that you must choose a subscription plan in order to be able to fully customize the 3D YouTube intro you’ve selected and download it to your computer without a watermark. MotionDen is a great source of material for all YouTube content creators who don’t want to spend a lot of time creating 3D intros from scratch and would rather quickly customize a template before adding it to their project.
 
-#### 5. [Intro Maker for YouTube](https://play.google.com/store/apps/details?id=com.ryzenrise.intromaker&hl=en)
+#### 5. Intro Maker for YouTube
 
 **Price:** Free, but offers in-app purchases
 
@@ -298,9 +296,7 @@ Follow @Richard Bennett
 
 ## Strategic Trailer Planning for Increased Channels' Profitability
 
-# How to Create a YouTube Channel Trailer to Increase Revenue
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Create a YouTube Channel Trailer to Increase Revenue ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -339,7 +335,7 @@ Follow @Richard Bennett
 
 ## Part 3: Best Channel YouTube Trailer Maker
 
-### 1. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Wondershare Filmora
 
  Searching for a free and powerful video editing tool that you can use on both Windows and Mac computers? Wondershare Filmora may be the ideal program for you. It is very easy to use, even for beginners who do not have that much editing experience.
 
@@ -352,7 +348,7 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### 2. [WeVideo](https://www.wevideo.com/)
+### 2. WeVideo
 
  Hoping to edit content while you are on the go? By using a less powerful laptop, library computer or a friend’s device, you could edit your trailer within a couple hours. WeVideo is an online video editor that makes it so easy to edit videos in up to 4K resolution.
 
@@ -364,7 +360,7 @@ Follow @Richard Bennett
 
 ![Wevideo](https://images.wondershare.com/filmora/article-images/Wevideo.JPG)
 
-### 3. [Virtual Dub](http://www.virtualdub.org/)
+### 3. Virtual Dub
 
  If you are seeking something that is open source and free, you may be interested in Virtual Dub. It is a completely free and open source program that you can use for quick capturing, encoding and editing video.
 
@@ -451,7 +447,7 @@ Follow @Richard Bennett
 
 ## Part 3: Best Channel YouTube Trailer Maker
 
-### 1. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Wondershare Filmora
 
  Searching for a free and powerful video editing tool that you can use on both Windows and Mac computers? Wondershare Filmora may be the ideal program for you. It is very easy to use, even for beginners who do not have that much editing experience.
 
@@ -464,7 +460,7 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### 2. [WeVideo](https://www.wevideo.com/)
+### 2. WeVideo
 
  Hoping to edit content while you are on the go? By using a less powerful laptop, library computer or a friend’s device, you could edit your trailer within a couple hours. WeVideo is an online video editor that makes it so easy to edit videos in up to 4K resolution.
 
@@ -476,7 +472,7 @@ Follow @Richard Bennett
 
 ![Wevideo](https://images.wondershare.com/filmora/article-images/Wevideo.JPG)
 
-### 3. [Virtual Dub](http://www.virtualdub.org/)
+### 3. Virtual Dub
 
  If you are seeking something that is open source and free, you may be interested in Virtual Dub. It is a completely free and open source program that you can use for quick capturing, encoding and editing video.
 
@@ -563,7 +559,7 @@ Follow @Richard Bennett
 
 ## Part 3: Best Channel YouTube Trailer Maker
 
-### 1. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Wondershare Filmora
 
  Searching for a free and powerful video editing tool that you can use on both Windows and Mac computers? Wondershare Filmora may be the ideal program for you. It is very easy to use, even for beginners who do not have that much editing experience.
 
@@ -576,7 +572,7 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### 2. [WeVideo](https://www.wevideo.com/)
+### 2. WeVideo
 
  Hoping to edit content while you are on the go? By using a less powerful laptop, library computer or a friend’s device, you could edit your trailer within a couple hours. WeVideo is an online video editor that makes it so easy to edit videos in up to 4K resolution.
 
@@ -588,7 +584,7 @@ Follow @Richard Bennett
 
 ![Wevideo](https://images.wondershare.com/filmora/article-images/Wevideo.JPG)
 
-### 3. [Virtual Dub](http://www.virtualdub.org/)
+### 3. Virtual Dub
 
  If you are seeking something that is open source and free, you may be interested in Virtual Dub. It is a completely free and open source program that you can use for quick capturing, encoding and editing video.
 
@@ -675,7 +671,7 @@ Follow @Richard Bennett
 
 ## Part 3: Best Channel YouTube Trailer Maker
 
-### 1. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Wondershare Filmora
 
  Searching for a free and powerful video editing tool that you can use on both Windows and Mac computers? Wondershare Filmora may be the ideal program for you. It is very easy to use, even for beginners who do not have that much editing experience.
 
@@ -688,7 +684,7 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### 2. [WeVideo](https://www.wevideo.com/)
+### 2. WeVideo
 
  Hoping to edit content while you are on the go? By using a less powerful laptop, library computer or a friend’s device, you could edit your trailer within a couple hours. WeVideo is an online video editor that makes it so easy to edit videos in up to 4K resolution.
 
@@ -700,7 +696,7 @@ Follow @Richard Bennett
 
 ![Wevideo](https://images.wondershare.com/filmora/article-images/Wevideo.JPG)
 
-### 3. [Virtual Dub](http://www.virtualdub.org/)
+### 3. Virtual Dub
 
  If you are seeking something that is open source and free, you may be interested in Virtual Dub. It is a completely free and open source program that you can use for quick capturing, encoding and editing video.
 

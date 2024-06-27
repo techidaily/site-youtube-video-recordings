@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting Powerful Partnerships  A Guide to Choosing YouTube Allies\""
-date: 2024-05-25T11:05:50.350Z
-updated: 2024-05-26T11:05:50.350Z
+date: 2024-06-26T00:20:15.861Z
+updated: 2024-06-27T00:20:15.861Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Crafting Powerful Partnerships: A Guide to Choosing YouTube Allies\""
 excerpt: "\"This Article Describes 2024 Approved: Crafting Powerful Partnerships: A Guide to Choosing YouTube Allies\""
 keywords: "\"Partnership Building,YouTube Collaboration,Strategic Channel Partners,Content Alliance Planning,Ally Selection Guide,Influencer Teamwork,Co-Branding Video Tactics\""
-thumbnail: https://www.lifewire.com/thmb/MKk-90YHRjjdWtcB0KiFaftz0HE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Featured-Roku-Channel-Wall-TV-8642282-a29d8c11f145487dbf3682e2be258c52.jpg
+thumbnail: https://thmb.techidaily.com/bd1f3164b21938808543fb77a181f9a976b01572cf9b49cfe1852edc61f82d53.jpg
 ---
 
 ## Crafting Powerful Partnerships: A Guide to Choosing YouTube Allies
@@ -29,21 +29,21 @@ thumbnail: https://www.lifewire.com/thmb/MKk-90YHRjjdWtcB0KiFaftz0HE=/400x300/fi
 The following is a guide to **YouTube collaborations** \- specifically, it's a list of tips for finding and approaching collab partners. Here are videos from 4 YouTubers who have done successful collabs about how they were able to get other creators to work with them.
 
 1. **[Tips from Tech YouTuber Roberto Blake](#blake)**  
-   1. _[Approach people you already have a relationship with](#askfriends)_  
-   2. _[Think about what your potential partner could have to offer your existing subscribers](#offer)_  
-   3. _[Create quality content consistently](#qualitycontent)_
+   1. _ [Approach people you already have a relationship with](#askfriends) _  
+   2. _ [Think about what your potential partner could have to offer your existing subscribers](#offer) _  
+   3. _ [Create quality content consistently](#qualitycontent) _
 2. **[Tips from YouTube Guru Nick Nimmin](#Nimmin)**  
-   1. _[Use the person’s name when you contact them](#usename)_  
-   2. _[Keep it simple](#simple)_  
-   3. _[Have ideas](#ideas)_
+   1. _ [Use the person’s name when you contact them](#usename) _  
+   2. _ [Keep it simple](#simple) _  
+   3. _ [Have ideas](#ideas) _
 3. **[Tips from Freelancer / Lifestyle Vlogger Amy Schmittauer](#schmittauer)**  
-   1. _[Networking is important in finding collab partners](#networking)_  
-   2. _[Don’t stray too far from your other content](#dontstray)_  
-   3. _[Thank the people you work with in your videos](#thankpeople)_
+   1. _ [Networking is important in finding collab partners](#networking) _  
+   2. _ [Don’t stray too far from your other content](#dontstray) _  
+   3. _ [Thank the people you work with in your videos](#thankpeople) _
 4. **[Tips from Lifestyle and Fashion YouTuber MyLifeAsEva](#gutowski)**  
-   1. _[Don’t approach other YouTubers as a ‘fan’](#notafan)_  
-   2. _[Ask questions](#ask)_  
-   3. _[Use Twitter](#twitter)_
+   1. _ [Don’t approach other YouTubers as a ‘fan’](#notafan) _  
+   2. _ [Ask questions](#ask) _  
+   3. _ [Use Twitter](#twitter) _
 
  Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
@@ -136,21 +136,21 @@ Follow @Richard Bennett
 The following is a guide to **YouTube collaborations** \- specifically, it's a list of tips for finding and approaching collab partners. Here are videos from 4 YouTubers who have done successful collabs about how they were able to get other creators to work with them.
 
 1. **[Tips from Tech YouTuber Roberto Blake](#blake)**  
-   1. _[Approach people you already have a relationship with](#askfriends)_  
-   2. _[Think about what your potential partner could have to offer your existing subscribers](#offer)_  
-   3. _[Create quality content consistently](#qualitycontent)_
+   1. _ [Approach people you already have a relationship with](#askfriends) _  
+   2. _ [Think about what your potential partner could have to offer your existing subscribers](#offer) _  
+   3. _ [Create quality content consistently](#qualitycontent) _
 2. **[Tips from YouTube Guru Nick Nimmin](#Nimmin)**  
-   1. _[Use the person’s name when you contact them](#usename)_  
-   2. _[Keep it simple](#simple)_  
-   3. _[Have ideas](#ideas)_
+   1. _ [Use the person’s name when you contact them](#usename) _  
+   2. _ [Keep it simple](#simple) _  
+   3. _ [Have ideas](#ideas) _
 3. **[Tips from Freelancer / Lifestyle Vlogger Amy Schmittauer](#schmittauer)**  
-   1. _[Networking is important in finding collab partners](#networking)_  
-   2. _[Don’t stray too far from your other content](#dontstray)_  
-   3. _[Thank the people you work with in your videos](#thankpeople)_
+   1. _ [Networking is important in finding collab partners](#networking) _  
+   2. _ [Don’t stray too far from your other content](#dontstray) _  
+   3. _ [Thank the people you work with in your videos](#thankpeople) _
 4. **[Tips from Lifestyle and Fashion YouTuber MyLifeAsEva](#gutowski)**  
-   1. _[Don’t approach other YouTubers as a ‘fan’](#notafan)_  
-   2. _[Ask questions](#ask)_  
-   3. _[Use Twitter](#twitter)_
+   1. _ [Don’t approach other YouTubers as a ‘fan’](#notafan) _  
+   2. _ [Ask questions](#ask) _  
+   3. _ [Use Twitter](#twitter) _
 
  Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
@@ -243,21 +243,21 @@ Follow @Richard Bennett
 The following is a guide to **YouTube collaborations** \- specifically, it's a list of tips for finding and approaching collab partners. Here are videos from 4 YouTubers who have done successful collabs about how they were able to get other creators to work with them.
 
 1. **[Tips from Tech YouTuber Roberto Blake](#blake)**  
-   1. _[Approach people you already have a relationship with](#askfriends)_  
-   2. _[Think about what your potential partner could have to offer your existing subscribers](#offer)_  
-   3. _[Create quality content consistently](#qualitycontent)_
+   1. _ [Approach people you already have a relationship with](#askfriends) _  
+   2. _ [Think about what your potential partner could have to offer your existing subscribers](#offer) _  
+   3. _ [Create quality content consistently](#qualitycontent) _
 2. **[Tips from YouTube Guru Nick Nimmin](#Nimmin)**  
-   1. _[Use the person’s name when you contact them](#usename)_  
-   2. _[Keep it simple](#simple)_  
-   3. _[Have ideas](#ideas)_
+   1. _ [Use the person’s name when you contact them](#usename) _  
+   2. _ [Keep it simple](#simple) _  
+   3. _ [Have ideas](#ideas) _
 3. **[Tips from Freelancer / Lifestyle Vlogger Amy Schmittauer](#schmittauer)**  
-   1. _[Networking is important in finding collab partners](#networking)_  
-   2. _[Don’t stray too far from your other content](#dontstray)_  
-   3. _[Thank the people you work with in your videos](#thankpeople)_
+   1. _ [Networking is important in finding collab partners](#networking) _  
+   2. _ [Don’t stray too far from your other content](#dontstray) _  
+   3. _ [Thank the people you work with in your videos](#thankpeople) _
 4. **[Tips from Lifestyle and Fashion YouTuber MyLifeAsEva](#gutowski)**  
-   1. _[Don’t approach other YouTubers as a ‘fan’](#notafan)_  
-   2. _[Ask questions](#ask)_  
-   3. _[Use Twitter](#twitter)_
+   1. _ [Don’t approach other YouTubers as a ‘fan’](#notafan) _  
+   2. _ [Ask questions](#ask) _  
+   3. _ [Use Twitter](#twitter) _
 
  Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
@@ -350,21 +350,21 @@ Follow @Richard Bennett
 The following is a guide to **YouTube collaborations** \- specifically, it's a list of tips for finding and approaching collab partners. Here are videos from 4 YouTubers who have done successful collabs about how they were able to get other creators to work with them.
 
 1. **[Tips from Tech YouTuber Roberto Blake](#blake)**  
-   1. _[Approach people you already have a relationship with](#askfriends)_  
-   2. _[Think about what your potential partner could have to offer your existing subscribers](#offer)_  
-   3. _[Create quality content consistently](#qualitycontent)_
+   1. _ [Approach people you already have a relationship with](#askfriends) _  
+   2. _ [Think about what your potential partner could have to offer your existing subscribers](#offer) _  
+   3. _ [Create quality content consistently](#qualitycontent) _
 2. **[Tips from YouTube Guru Nick Nimmin](#Nimmin)**  
-   1. _[Use the person’s name when you contact them](#usename)_  
-   2. _[Keep it simple](#simple)_  
-   3. _[Have ideas](#ideas)_
+   1. _ [Use the person’s name when you contact them](#usename) _  
+   2. _ [Keep it simple](#simple) _  
+   3. _ [Have ideas](#ideas) _
 3. **[Tips from Freelancer / Lifestyle Vlogger Amy Schmittauer](#schmittauer)**  
-   1. _[Networking is important in finding collab partners](#networking)_  
-   2. _[Don’t stray too far from your other content](#dontstray)_  
-   3. _[Thank the people you work with in your videos](#thankpeople)_
+   1. _ [Networking is important in finding collab partners](#networking) _  
+   2. _ [Don’t stray too far from your other content](#dontstray) _  
+   3. _ [Thank the people you work with in your videos](#thankpeople) _
 4. **[Tips from Lifestyle and Fashion YouTuber MyLifeAsEva](#gutowski)**  
-   1. _[Don’t approach other YouTubers as a ‘fan’](#notafan)_  
-   2. _[Ask questions](#ask)_  
-   3. _[Use Twitter](#twitter)_
+   1. _ [Don’t approach other YouTubers as a ‘fan’](#notafan) _  
+   2. _ [Ask questions](#ask) _  
+   3. _ [Use Twitter](#twitter) _
 
  Also, check out these tips on **[how to grow your channel using collab videos](https://tools.techidaily.com/wondershare/filmora/download/)**.
 
@@ -462,9 +462,7 @@ Follow @Richard Bennett
 
 ## How to Manage YouTube Video Comments for Enhanced Privacy
 
-# How to Turn on or off Comments on YouTube
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+# How to Turn on or off Comments on YouTube ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
 
@@ -484,13 +482,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -502,19 +500,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -554,7 +552,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -572,7 +570,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -612,13 +610,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -630,19 +628,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -682,7 +680,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -700,7 +698,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -740,13 +738,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -758,19 +756,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -810,7 +808,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -828,7 +826,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -868,13 +866,13 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
 
@@ -886,19 +884,19 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
 
@@ -938,7 +936,7 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
@@ -956,7 +954,7 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 

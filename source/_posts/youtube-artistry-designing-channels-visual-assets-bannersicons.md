@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Artistry  Designing Channels' Visual Assets (Banners/Icons)\""
-date: 2024-05-25T13:28:08.216Z
-updated: 2024-05-26T13:28:08.216Z
+date: 2024-06-26T00:20:52.513Z
+updated: 2024-06-27T00:20:52.513Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes YouTube Artistry: Designing Channels' Visual Assets (Banners/Icons)\""
 excerpt: "\"This Article Describes YouTube Artistry: Designing Channels' Visual Assets (Banners/Icons)\""
 keywords: "Channel Artwork Design,YouTube Creative Banners,Icon Design for YouTube,Visual Asset Creation,YouTube Channels Icons,Designing Online Video Graphics,VFX for YouTubers"
-thumbnail: https://www.lifewire.com/thmb/qdWCuId5DyuBqTJlERLz_aWgrdc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/treesize-free-58d99ef85f9b58468331d12f.png
+thumbnail: https://thmb.techidaily.com/fa0f0d9aa480a84d4958b92625d7efd743147dd9e7afea427f137746eefc2011.png
 ---
 
 ## YouTube Artistry: Designing Channels' Visual Assets (Banners/Icons)

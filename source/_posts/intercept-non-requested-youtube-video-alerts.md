@@ -1,7 +1,7 @@
 ---
 title: "\"Intercept Non-Requested YouTube Video Alerts\""
-date: 2024-05-25T12:17:50.996Z
-updated: 2024-05-26T12:17:50.996Z
+date: 2024-06-26T00:20:53.722Z
+updated: 2024-06-27T00:20:53.722Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes Intercept Non-Requested YouTube Video Alerts\""
 excerpt: "\"This Article Describes Intercept Non-Requested YouTube Video Alerts\""
 keywords: "\"YouTube Video Pullup,Unrequested Alert YTVideo,Intercept YouTube Video,Requestless Video Notifications,YouTube Video Hide-Notify,Non-Requested Video Alerts,Silent YTVideo Notification\""
-thumbnail: https://www.lifewire.com/thmb/aAfu0U3ot2I6BH2mrIgJWPDLpAE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/streamhallmarkchannel-fbbd67185b124b4d8187dd8d015ad7cc.jpg
+thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e891bb1e1f9fc06be1f08b00.jpg
 ---
 
 ## Intercept Non-Requested YouTube Video Alerts
 
-# YouTube Recommended Videos - Block the Videos I Don't Like
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Recommended Videos - Block the Videos I Don't Like ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -38,9 +36,7 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -48,9 +44,7 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested
-
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -102,9 +96,7 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -112,9 +104,7 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested
-
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -166,9 +156,7 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -176,9 +164,7 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested
-
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -230,9 +216,7 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-## Manage Your Watch History
-
-![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+## Manage Your Watch History ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -240,9 +224,7 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-## Tell YouTube You Aren’t Interested
-
-![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+## Tell YouTube You Aren’t Interested ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -290,9 +272,7 @@ Follow @Richard Bennett
 
 ## Comparative Study: YouTube App on Smartphone Platforms
 
-# Review: YouTube App for iPhone and Android
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Review: YouTube App for iPhone and Android ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

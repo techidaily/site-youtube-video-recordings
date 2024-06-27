@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube's Visual Impact  Crafting Effective Thumbnails\""
-date: 2024-05-25T13:30:02.540Z
-updated: 2024-05-26T13:30:02.540Z
+date: 2024-06-26T00:20:42.574Z
+updated: 2024-06-27T00:20:42.574Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes YouTube's Visual Impact: Crafting Effective Thumbnails\""
 excerpt: "\"This Article Describes YouTube's Visual Impact: Crafting Effective Thumbnails\""
 keywords: "YouTube Thumbnail Tips,Engaging Video Thumbnails,Effective Thumbnail Strategies,Enhancing Viewership Through Images,Crafting Thumbnail Impact,Visual Thumbnails for Growth,Thumbnails in YouTube Marketing"
-thumbnail: https://www.lifewire.com/thmb/k79dGrFEq_x9Rf5uBTEI3SQDmhU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Google-Cloud-Next-59a9cb4a03e644389e2ffa9939c420f8.jpg
+thumbnail: https://thmb.techidaily.com/8e684e3736085a42393dd155a637e8f217c26c390b45353b04f9ee1e79b6412e.jpg
 ---
 
 ## YouTube's Visual Impact: Crafting Effective Thumbnails
 
-# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024
-
-![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+# Best YouTube Thumbnail Size: How to Make a Thumbnail for YouTube in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 ##### Benjamin Arango
 
@@ -45,9 +43,7 @@ Being a content creator, you never know which device is being used by the viewer
 * To cover all the devices perfectly, set the thumbnail resolution to 1280x720
 * Save the thumbnail in JPG, GIF, or PNG format
 * Try not to cross the 2MB limit
-* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
-
-![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
+* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
@@ -125,55 +121,55 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
-![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
+![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
-![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
+![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
-![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
+![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
-![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
 
-![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
-![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
-![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
+![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
-![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
-![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
+![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
-![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
-![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
+![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
 
@@ -232,9 +228,7 @@ Being a content creator, you never know which device is being used by the viewer
 * To cover all the devices perfectly, set the thumbnail resolution to 1280x720
 * Save the thumbnail in JPG, GIF, or PNG format
 * Try not to cross the 2MB limit
-* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
-
-![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
+* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
@@ -312,55 +306,55 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
-![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
+![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
-![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
+![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
-![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
+![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
-![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
 
-![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
-![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
-![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
+![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
-![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
-![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
+![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
-![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
-![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
+![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
 
@@ -419,9 +413,7 @@ Being a content creator, you never know which device is being used by the viewer
 * To cover all the devices perfectly, set the thumbnail resolution to 1280x720
 * Save the thumbnail in JPG, GIF, or PNG format
 * Try not to cross the 2MB limit
-* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
-
-![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
+* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
@@ -499,55 +491,55 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
-![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
+![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
-![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
+![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
-![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
+![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
-![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
 
-![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
-![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
-![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
+![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
-![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
-![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
+![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
-![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
-![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
+![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
 
@@ -606,9 +598,7 @@ Being a content creator, you never know which device is being used by the viewer
 * To cover all the devices perfectly, set the thumbnail resolution to 1280x720
 * Save the thumbnail in JPG, GIF, or PNG format
 * Try not to cross the 2MB limit
-* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices
-
-![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
+* Make sure to use a 16:9 aspect ratio for perfect results throughout the devices ![youtube-thumbnail-size](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size.png)
 
 ---
 
@@ -686,55 +676,55 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Before we start making Fortnite Thumbnails, we have to take a screenshot of the gameplay. Open Fortnite and go to the Career tab. Here you will find Replays.
 
-![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
+![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
-![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
+![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
-![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
+![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
-![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 1. Place it into the timeline to start working on it.
 
-![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
+![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
-![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 1. This effect will remove the background of your screenshot.
 
-![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
+![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
-![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
+![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
-![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
+![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
-![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
+![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
-![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
-![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
+![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
  ---
 
@@ -782,9 +772,7 @@ Follow @Benjamin Arango
 
 ## Speedy Fortnite Cover Art Creation
 
-# How to Make Fortnite Thumbnail for Free and Easy in 2024
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# How to Make Fortnite Thumbnail for Free and Easy in 2024 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Featured Channels  An In-Depth Exploration for Maximizing Engagement\""
-date: 2024-05-25T12:54:36.871Z
-updated: 2024-05-26T12:54:36.871Z
+date: 2024-06-26T00:20:32.829Z
+updated: 2024-06-27T00:20:32.829Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes The Art of Featured Channels: An In-Depth Exploration for Maximizing Engagement\""
 excerpt: "\"This Article Describes The Art of Featured Channels: An In-Depth Exploration for Maximizing Engagement\""
 keywords: "Channel Engagement Strategies,Maximizing Viewers' Interaction,Effective Content Featuring,Enhancing Video Channels,Engaging Digital Media,Promoting Video Features,Boosting Social Platforms"
-thumbnail: https://www.lifewire.com/thmb/asCAao3Tfs8ZxVZumyLz52-mVek=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-increase-internet-speed-5181475-b6fd84098c634a04a6934302184c5b1b.jpg
+thumbnail: https://thmb.techidaily.com/84aaf27f955a6ba5c37b777f8ab3f4dc75b3cebc10a8c5dcc535bfa16bc60ba0.jpg
 ---
 
 ## The Art of Featured Channels: An In-Depth Exploration for Maximizing Engagement
@@ -76,17 +76,11 @@ Featuring channels on YouTube increases the channel's credibility among the audi
 
 Adding featured channels on YouTube is more accessible than most people think to follow the steps required to upload the channels and videos.
 
-1 Login into YouTube studio
+1 Login into YouTube studio ![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
 
-![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
+2 Go to the sidebar on the left and scroll to customization ![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
 
-2 Go to the sidebar on the left and scroll to customization
-
-![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
-
-3 Click on ADD section
-
-![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
+3 Click on ADD section ![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
 
 4 A small window will unroll, scroll down and click **featured channels**
 
@@ -144,9 +138,7 @@ It allows a person to make professional-looking videos because Filmora has vario
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -214,17 +206,11 @@ Featuring channels on YouTube increases the channel's credibility among the audi
 
 Adding featured channels on YouTube is more accessible than most people think to follow the steps required to upload the channels and videos.
 
-1 Login into YouTube studio
+1 Login into YouTube studio ![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
 
-![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
+2 Go to the sidebar on the left and scroll to customization ![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
 
-2 Go to the sidebar on the left and scroll to customization
-
-![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
-
-3 Click on ADD section
-
-![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
+3 Click on ADD section ![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
 
 4 A small window will unroll, scroll down and click **featured channels**
 
@@ -282,9 +268,7 @@ It allows a person to make professional-looking videos because Filmora has vario
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -352,17 +336,11 @@ Featuring channels on YouTube increases the channel's credibility among the audi
 
 Adding featured channels on YouTube is more accessible than most people think to follow the steps required to upload the channels and videos.
 
-1 Login into YouTube studio
+1 Login into YouTube studio ![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
 
-![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
+2 Go to the sidebar on the left and scroll to customization ![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
 
-2 Go to the sidebar on the left and scroll to customization
-
-![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
-
-3 Click on ADD section
-
-![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
+3 Click on ADD section ![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
 
 4 A small window will unroll, scroll down and click **featured channels**
 
@@ -420,9 +398,7 @@ It allows a person to make professional-looking videos because Filmora has vario
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -490,17 +466,11 @@ Featuring channels on YouTube increases the channel's credibility among the audi
 
 Adding featured channels on YouTube is more accessible than most people think to follow the steps required to upload the channels and videos.
 
-1 Login into YouTube studio
+1 Login into YouTube studio ![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
 
-![add featured channel login youtube studio](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-youtube-1.jpg)
+2 Go to the sidebar on the left and scroll to customization ![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
 
-2 Go to the sidebar on the left and scroll to customization
-
-![add featured channel customization](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-customisation.jpg)
-
-3 Click on ADD section
-
-![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
+3 Click on ADD section ![add section](https://images.wondershare.com/filmora/article-images/2021/add-featured-channel-add-section.jpg)
 
 4 A small window will unroll, scroll down and click **featured channels**
 
@@ -558,9 +528,7 @@ It allows a person to make professional-looking videos because Filmora has vario
 
 #### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
@@ -590,9 +558,7 @@ Also, making YouTube videos with a good video editor is advisable for quality vi
 
 ## Creative Geniuses: Selecting the Best YouTube Videos for Channels
 
-# Best YouTube Video Ideas to Spark Inspiration
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best YouTube Video Ideas to Spark Inspiration ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -678,7 +644,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **How to Plan Something:** Did you plan a camping trip that went really well? Did you throw a surprise birthday party that went without a hitch? It doesn’t have to be anything grand but think back to something you followed successfully and explain what you did to achieve it.
 
- **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html)instead.
+ **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html) instead.
 
 **Time Management:** The responsibility of every person is slightly different, but how you manage your daily schedule. Do you write tasks down on an agenda? Do you have a calendar? What do you do when you get distracted? What is your schedule like? Do you create your own bullet journal or use a productivity app? If so, share it!
 
@@ -720,7 +686,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Languages:** We all want to learn a new language, but it isn’t easy. If you have a knack for languages, show it off as a skill. Help new speakers avoid common mistakes, discuss the etymology of each word, and explore all the diverse dialects.
 
-**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even[constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
+**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even [constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
 
 **History:** Are you interested in your city, your school, or the land your office is built upon? What was it like ten years ago? A hundred years ago? An exploration of history does not have to be about Rome or Mesopotamia, it can be about your backyard  
 **Debunking Myths:** Before every MythBusters episode they warn you not to attempt any of their experiments, and we are not encouraging you to either. At least, not to their scale. There is a multitude of myths out there that can use your expert eye to explore. In your city itself, there are stories worth debunking or at least learning more about.
@@ -773,7 +739,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Cinematography:** There is always a place for beautiful cinematography on YouTube. Tell a great story about your life or your city with great moving images.
 
-**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people[riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
+**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people [riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
 
 **Lip-sync:** Can’t sing but feel you have a musical gift to give to the world, well, they will never put you on the billboards for what you can do lip-syncing, but you can make a pretty entertaining YouTube video through this medium. It doesn’t even have to be music either, take [Bad Lip Reading](https://www.youtube.com/watch?v=gneBUA39mnI).
 
@@ -881,7 +847,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **How to Plan Something:** Did you plan a camping trip that went really well? Did you throw a surprise birthday party that went without a hitch? It doesn’t have to be anything grand but think back to something you followed successfully and explain what you did to achieve it.
 
- **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html)instead.
+ **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html) instead.
 
 **Time Management:** The responsibility of every person is slightly different, but how you manage your daily schedule. Do you write tasks down on an agenda? Do you have a calendar? What do you do when you get distracted? What is your schedule like? Do you create your own bullet journal or use a productivity app? If so, share it!
 
@@ -923,7 +889,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Languages:** We all want to learn a new language, but it isn’t easy. If you have a knack for languages, show it off as a skill. Help new speakers avoid common mistakes, discuss the etymology of each word, and explore all the diverse dialects.
 
-**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even[constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
+**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even [constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
 
 **History:** Are you interested in your city, your school, or the land your office is built upon? What was it like ten years ago? A hundred years ago? An exploration of history does not have to be about Rome or Mesopotamia, it can be about your backyard  
 **Debunking Myths:** Before every MythBusters episode they warn you not to attempt any of their experiments, and we are not encouraging you to either. At least, not to their scale. There is a multitude of myths out there that can use your expert eye to explore. In your city itself, there are stories worth debunking or at least learning more about.
@@ -976,7 +942,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Cinematography:** There is always a place for beautiful cinematography on YouTube. Tell a great story about your life or your city with great moving images.
 
-**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people[riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
+**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people [riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
 
 **Lip-sync:** Can’t sing but feel you have a musical gift to give to the world, well, they will never put you on the billboards for what you can do lip-syncing, but you can make a pretty entertaining YouTube video through this medium. It doesn’t even have to be music either, take [Bad Lip Reading](https://www.youtube.com/watch?v=gneBUA39mnI).
 
@@ -1084,7 +1050,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **How to Plan Something:** Did you plan a camping trip that went really well? Did you throw a surprise birthday party that went without a hitch? It doesn’t have to be anything grand but think back to something you followed successfully and explain what you did to achieve it.
 
- **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html)instead.
+ **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html) instead.
 
 **Time Management:** The responsibility of every person is slightly different, but how you manage your daily schedule. Do you write tasks down on an agenda? Do you have a calendar? What do you do when you get distracted? What is your schedule like? Do you create your own bullet journal or use a productivity app? If so, share it!
 
@@ -1126,7 +1092,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Languages:** We all want to learn a new language, but it isn’t easy. If you have a knack for languages, show it off as a skill. Help new speakers avoid common mistakes, discuss the etymology of each word, and explore all the diverse dialects.
 
-**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even[constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
+**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even [constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
 
 **History:** Are you interested in your city, your school, or the land your office is built upon? What was it like ten years ago? A hundred years ago? An exploration of history does not have to be about Rome or Mesopotamia, it can be about your backyard  
 **Debunking Myths:** Before every MythBusters episode they warn you not to attempt any of their experiments, and we are not encouraging you to either. At least, not to their scale. There is a multitude of myths out there that can use your expert eye to explore. In your city itself, there are stories worth debunking or at least learning more about.
@@ -1179,7 +1145,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Cinematography:** There is always a place for beautiful cinematography on YouTube. Tell a great story about your life or your city with great moving images.
 
-**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people[riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
+**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people [riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
 
 **Lip-sync:** Can’t sing but feel you have a musical gift to give to the world, well, they will never put you on the billboards for what you can do lip-syncing, but you can make a pretty entertaining YouTube video through this medium. It doesn’t even have to be music either, take [Bad Lip Reading](https://www.youtube.com/watch?v=gneBUA39mnI).
 
@@ -1287,7 +1253,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **How to Plan Something:** Did you plan a camping trip that went really well? Did you throw a surprise birthday party that went without a hitch? It doesn’t have to be anything grand but think back to something you followed successfully and explain what you did to achieve it.
 
- **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html)instead.
+ **Lifehacks:** Do you have lifehacks? This may be the most generous gift you can share with your audience. You can save them time, energy, and a whole lot of headaches. If you have an engineering spirit, then consider how you can simplify all the little activities that make up a day. No engineering spirit? Start with these [lifehacks](https://www.lifehack.org/articles/lifestyle/100-life-hacks-that-make-life-easier.html) instead.
 
 **Time Management:** The responsibility of every person is slightly different, but how you manage your daily schedule. Do you write tasks down on an agenda? Do you have a calendar? What do you do when you get distracted? What is your schedule like? Do you create your own bullet journal or use a productivity app? If so, share it!
 
@@ -1329,7 +1295,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Languages:** We all want to learn a new language, but it isn’t easy. If you have a knack for languages, show it off as a skill. Help new speakers avoid common mistakes, discuss the etymology of each word, and explore all the diverse dialects.
 
-**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even[constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
+**Accents:** How accents derive is a fascinating topic to explore if you are seeking good ideas for YouTube. Why do some accents sound like music while other sound abrasive? Why different neighborhoods in the same city have different accents? There are endless questions to explore. Even [constructed languages can be analyzed](https://www.youtube.com/watch?v=oa6cHEJIjYI) for their accents.
 
 **History:** Are you interested in your city, your school, or the land your office is built upon? What was it like ten years ago? A hundred years ago? An exploration of history does not have to be about Rome or Mesopotamia, it can be about your backyard  
 **Debunking Myths:** Before every MythBusters episode they warn you not to attempt any of their experiments, and we are not encouraging you to either. At least, not to their scale. There is a multitude of myths out there that can use your expert eye to explore. In your city itself, there are stories worth debunking or at least learning more about.
@@ -1382,7 +1348,7 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Cinematography:** There is always a place for beautiful cinematography on YouTube. Tell a great story about your life or your city with great moving images.
 
-**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people[riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
+**Short subject documentary:** Pick a topic that matters and explore in through the structure of a documentary. Remember that when making a documentary, think about it as making a movie -- you are not there to lecture them. Can you get people [riled up as Michael Moore](http://www.indiewire.com/2014/09/michael-moores-13-rules-for-making-documentary-films-22384/) does? Can you encourage people to take action? If yes, then you are ready to start making documentary-style YouTube videos.
 
 **Lip-sync:** Can’t sing but feel you have a musical gift to give to the world, well, they will never put you on the billboards for what you can do lip-syncing, but you can make a pretty entertaining YouTube video through this medium. It doesn’t even have to be music either, take [Bad Lip Reading](https://www.youtube.com/watch?v=gneBUA39mnI).
 

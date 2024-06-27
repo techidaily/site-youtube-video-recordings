@@ -1,7 +1,7 @@
 ---
 title: "\"Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance for 2024\""
-date: 2024-05-25T11:33:53.785Z
-updated: 2024-05-26T11:33:53.785Z
+date: 2024-06-26T00:20:20.295Z
+updated: 2024-06-27T00:20:20.295Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance for 2024\""
 excerpt: "\"This Article Describes Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance for 2024\""
 keywords: "\"YouTube Music Planner,Mobile Playlist Creation,Web-Based Music Lists,DIY Music Playlists Guide,Easy Mobile Playlist,Crafting YouTube Lists,Online Music Playlist Tips\""
-thumbnail: https://www.lifewire.com/thmb/SSy6NGHbIXSbfSEfGlhpi2qybtc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/facebook-1602262_1920-5c36883246e0fb0001a7e779.jpg
+thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12335ea2d0dc0b871ccf2113a.jpg
 ---
 
 ## Create a YouTube Music Playlist on Web and Mobile - A Detailed Guidance
@@ -30,7 +30,7 @@ Are you one of those who want to listen to their favorite tracks while working o
 
 If you are using a Windows or Mac computer and want to create a YouTube music playlist on a web browser, follow the below steps:
 
-Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the[YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
+Step1 In the first step, turn on your PC, launch a web browser from the desktop or Dock, and head to the [YouTube](https://www.youtube.com/) website. Next, Sign into your account with your Google email ID if you are not already logged in.
 
 ![signing into youtube](https://images.wondershare.com/filmora/article-images/2023/03/signing-into-youtube.png)
 

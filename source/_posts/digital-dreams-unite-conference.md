@@ -1,7 +1,7 @@
 ---
 title: "Digital Dreams Unite Conference"
-date: 2024-05-25T11:38:19.026Z
-updated: 2024-05-26T11:38:19.026Z
+date: 2024-06-26T00:20:36.439Z
+updated: 2024-06-27T00:20:36.439Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes Digital Dreams Unite Conference"
 excerpt: "This Article Describes Digital Dreams Unite Conference"
 keywords: "Dream Conferences,Digital Unity,Tech Gathering,Virtual Summit,Innovation Meet,Online Forums,Tech Dialogues"
-thumbnail: https://www.lifewire.com/thmb/xoj9YPxPAH01wV7Yk9lbephb9tY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/178665671_HighRes-56a532a83df78cf77286de1b.jpg
+thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165b0175087b89427fe82c8e76.jpg
 ---
 
 ## Digital Dreams Unite Conference
 
-# The YouTube Creator Summit - A Getaway for YouTube's Top Talent
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The YouTube Creator Summit - A Getaway for YouTube's Top Talent ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -43,7 +41,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +81,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -124,7 +122,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -164,7 +162,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -205,7 +203,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -245,7 +243,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -286,7 +284,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -326,7 +324,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -358,9 +356,7 @@ Follow @Richard Bennett
 
 ## Laugh Loophole: Ideas for 7 Hilarious YouTube Showcases
 
-# 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

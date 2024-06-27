@@ -1,7 +1,7 @@
 ---
 title: "\"From Novice to Pro  Mastering the Craft of YT Shorts\""
-date: 2024-05-25T11:54:26.372Z
-updated: 2024-05-26T11:54:26.372Z
+date: 2024-06-26T00:20:52.474Z
+updated: 2024-06-27T00:20:52.474Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes From Novice to Pro: Mastering the Craft of YT Shorts\""
 excerpt: "\"This Article Describes From Novice to Pro: Mastering the Craft of YT Shorts\""
 keywords: "Beginner YouTube Shorts Tips,YT Shorts Creation Guide,Video Editing for Shorts,Professional YT Short Filmmaking,Crafting Engaging YT Videos,Advanced YT Short Techniques,YouTube Content Production"
-thumbnail: https://www.lifewire.com/thmb/ialXQxlrWEBC8WWbKRy-2KuXaw0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-share-play-ps5-b769f171ceea4710beb6433e0701aa13.jpg
+thumbnail: https://thmb.techidaily.com/f4454436a06ba033a7b99f5b7a9f44fe470868599b2299ee24471567dbe046e5.jpg
 ---
 
 ## From Novice to Pro: Mastering the Craft of YT Shorts

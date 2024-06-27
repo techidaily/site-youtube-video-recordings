@@ -1,7 +1,7 @@
 ---
 title: "\"Elevate Streams  Using YouTube's AV1 Settings for 2024\""
-date: 2024-05-25T11:44:02.264Z
-updated: 2024-05-26T11:44:02.264Z
+date: 2024-06-26T00:20:35.601Z
+updated: 2024-06-27T00:20:35.601Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Elevate Streams: Using YouTube's AV1 Settings for 2024\""
 excerpt: "\"This Article Describes Elevate Streams: Using YouTube's AV1 Settings for 2024\""
 keywords: "Elevate Streaming,AV1 YouTube Optimize,YouTube Encoding,Advanced Video Settings,YouTube Quality Control,Enhanced Streaming Tech,Media Playback Improvement"
-thumbnail: https://www.lifewire.com/thmb/lbxhd7OB6rqQx-qqETdnPadxxu4=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/selfie-with-cute-little-dog-with-eyeglasses-595737544-562674d335a74d94828f7a5d7fe1f6b2.jpg
+thumbnail: https://thmb.techidaily.com/e0fa0d67e26442f6514904daf3cc23134382c2cc52f88c01d78e6b3f6c28c68c.jpg
 ---
 
 ## Elevate Streams: Using YouTube's AV1 Settings
@@ -24,17 +24,13 @@ Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1*
 
 Do you wonder how to turn on **AV1 settings on YouTube**? For your information, AV1 is a video codec that is developed by a consortium of companies. It offers you advanced compression, enabling you to do smoother HD streaming and data savings for the video. Google also has already implemented AV1 use on YouTube. To turn on AV1 settings on YouTube, here are the steps:
 
-##### Step1Go to playback and performance
-
-![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
+##### Step1Go to playback and performance ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
 * In the AV1 settings. Besides "Auto (Recommended)", there are other two options, which are "Prefer AV1 for SD" and also "Always prefer SD".
 * "Always Prefer AV1" uses the codec whenever it is available for a video while "Prefer AV1 for SD" limits it to SD videos. There are two options to avoid low-performance devices when AV1 videos are played on YouTube. You can select "Always Prefer AV1" to see if your device performance is good enough when you play videos on YouTube that support AV1.
 
-##### Step2Test if the AV1 settings are already enabled in your video
-
-![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
+##### Step2Test if the AV1 settings are already enabled in your video ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 

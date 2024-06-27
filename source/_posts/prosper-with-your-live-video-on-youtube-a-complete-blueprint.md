@@ -1,7 +1,7 @@
 ---
 title: "\"Prosper with Your Live Video on YouTube  A Complete Blueprint\""
-date: 2024-05-25T12:46:10.882Z
-updated: 2024-05-26T12:46:10.882Z
+date: 2024-06-26T00:20:41.150Z
+updated: 2024-06-27T00:20:41.150Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes Prosper with Your Live Video on YouTube: A Complete Blueprint\""
 excerpt: "\"This Article Describes Prosper with Your Live Video on YouTube: A Complete Blueprint\""
 keywords: "Live Video Success,Video Marketing Guide,YouTube Growth Strategy,Digital Content Creation,Streamer Blueprint,Video Engagement Tips,Online Broadcast Planning"
-thumbnail: https://www.lifewire.com/thmb/NtWak-ToxcMPVb1t0Kn0t0QH8fU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/kids-and-ipads-177219460-resized-56a532c45f9b58b7d0db7169.jpg
+thumbnail: https://thmb.techidaily.com/43d04728eb067b27b181109747aeff382529cf3d84fbfcf0819906ab437cf25f.jpg
 ---
 
 ## Prosper with Your Live Video on YouTube: A Complete Blueprint
 
-# The Ultimate Guide to YouTube Live Streaming
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Ultimate Guide to YouTube Live Streaming ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -111,7 +109,7 @@ Once upon a time, to livestream on YouTube, you needed additional software to ca
 
 Those encoding software, such as [OBS](https://tools.techidaily.com/wondershare/filmora/download/), [Wirecast](https://tools.techidaily.com/wondershare/filmora/download/), and [VMix](https://tools.techidaily.com/wondershare/filmora/download/), are required if you are producing content that requires a high frame rate such as gaming, but not mandatory if you are simply vlogging or running a tutorial.
 
-If you are using Chrome, you can[stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
+If you are using Chrome, you can [stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
 
 #### A Capture Card (For Higher Quality Streams)
 
@@ -129,9 +127,7 @@ By accessing [www.youtube.com/webcam](https://www.youtube.com/webcam) on the Goo
 
 1\. Click [**here**](https://www.youtube.com/webcam) to connect to your YouTube channel
 
-2\. You can access it from the top menu on YouTube
-
-![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
+2\. You can access it from the top menu on YouTube ![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
 
 3\. You can access it by clicking Camera under the Live Streaming tab in your Creator Studio
 
@@ -145,9 +141,7 @@ Here’s how you can access this Google Hangouts On Air:
 
 **Step 1:** Go to Events under the Live Streaming tab in your Creator Studio
 
-**Step 2:** Click New Live Event button on the top right corner
-
-![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
+**Step 2:** Click New Live Event button on the top right corner ![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
 
 **Step 3:** Enter the event’s Info and Setting page. Fill out the details of your Livestream, and under Type, select **Quick** (using Google Hangouts On Air).
 
@@ -177,9 +171,7 @@ The fourth way of live streaming on YouTube is with encoding software. This is t
 
 **Step 2**: Open OBS
 
-**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page
-
-![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
+**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page ![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
 
 **Step 4**: Under Encoder Setup, copy Stream name/key (Warning: DO NOT share this key with anyone)
 
@@ -243,7 +235,7 @@ Consider what visuals or props you can add to your livestream to enhance your pe
 
 #### Find A Way to Make it Evergreen
 
-[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing)refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
+[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing) refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
 
 Since your livestream will be saved on YouTube and your viewers can replay and watch it. They’re more likely to enjoy it if the content is relevant and interesting.
 
@@ -293,9 +285,7 @@ Here’s how to set it up:
 4. Always do a test run of your livestream to ensure the internet, audio, and visual are all working properly.
 5. Create content and reach out to communities to promote your livestream.
 
-_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -394,7 +384,7 @@ Once upon a time, to livestream on YouTube, you needed additional software to ca
 
 Those encoding software, such as [OBS](https://tools.techidaily.com/wondershare/filmora/download/), [Wirecast](https://tools.techidaily.com/wondershare/filmora/download/), and [VMix](https://tools.techidaily.com/wondershare/filmora/download/), are required if you are producing content that requires a high frame rate such as gaming, but not mandatory if you are simply vlogging or running a tutorial.
 
-If you are using Chrome, you can[stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
+If you are using Chrome, you can [stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
 
 #### A Capture Card (For Higher Quality Streams)
 
@@ -412,9 +402,7 @@ By accessing [www.youtube.com/webcam](https://www.youtube.com/webcam) on the Goo
 
 1\. Click [**here**](https://www.youtube.com/webcam) to connect to your YouTube channel
 
-2\. You can access it from the top menu on YouTube
-
-![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
+2\. You can access it from the top menu on YouTube ![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
 
 3\. You can access it by clicking Camera under the Live Streaming tab in your Creator Studio
 
@@ -428,9 +416,7 @@ Here’s how you can access this Google Hangouts On Air:
 
 **Step 1:** Go to Events under the Live Streaming tab in your Creator Studio
 
-**Step 2:** Click New Live Event button on the top right corner
-
-![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
+**Step 2:** Click New Live Event button on the top right corner ![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
 
 **Step 3:** Enter the event’s Info and Setting page. Fill out the details of your Livestream, and under Type, select **Quick** (using Google Hangouts On Air).
 
@@ -460,9 +446,7 @@ The fourth way of live streaming on YouTube is with encoding software. This is t
 
 **Step 2**: Open OBS
 
-**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page
-
-![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
+**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page ![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
 
 **Step 4**: Under Encoder Setup, copy Stream name/key (Warning: DO NOT share this key with anyone)
 
@@ -526,7 +510,7 @@ Consider what visuals or props you can add to your livestream to enhance your pe
 
 #### Find A Way to Make it Evergreen
 
-[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing)refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
+[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing) refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
 
 Since your livestream will be saved on YouTube and your viewers can replay and watch it. They’re more likely to enjoy it if the content is relevant and interesting.
 
@@ -576,9 +560,7 @@ Here’s how to set it up:
 4. Always do a test run of your livestream to ensure the internet, audio, and visual are all working properly.
 5. Create content and reach out to communities to promote your livestream.
 
-_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -677,7 +659,7 @@ Once upon a time, to livestream on YouTube, you needed additional software to ca
 
 Those encoding software, such as [OBS](https://tools.techidaily.com/wondershare/filmora/download/), [Wirecast](https://tools.techidaily.com/wondershare/filmora/download/), and [VMix](https://tools.techidaily.com/wondershare/filmora/download/), are required if you are producing content that requires a high frame rate such as gaming, but not mandatory if you are simply vlogging or running a tutorial.
 
-If you are using Chrome, you can[stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
+If you are using Chrome, you can [stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
 
 #### A Capture Card (For Higher Quality Streams)
 
@@ -695,9 +677,7 @@ By accessing [www.youtube.com/webcam](https://www.youtube.com/webcam) on the Goo
 
 1\. Click [**here**](https://www.youtube.com/webcam) to connect to your YouTube channel
 
-2\. You can access it from the top menu on YouTube
-
-![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
+2\. You can access it from the top menu on YouTube ![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
 
 3\. You can access it by clicking Camera under the Live Streaming tab in your Creator Studio
 
@@ -711,9 +691,7 @@ Here’s how you can access this Google Hangouts On Air:
 
 **Step 1:** Go to Events under the Live Streaming tab in your Creator Studio
 
-**Step 2:** Click New Live Event button on the top right corner
-
-![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
+**Step 2:** Click New Live Event button on the top right corner ![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
 
 **Step 3:** Enter the event’s Info and Setting page. Fill out the details of your Livestream, and under Type, select **Quick** (using Google Hangouts On Air).
 
@@ -743,9 +721,7 @@ The fourth way of live streaming on YouTube is with encoding software. This is t
 
 **Step 2**: Open OBS
 
-**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page
-
-![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
+**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page ![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
 
 **Step 4**: Under Encoder Setup, copy Stream name/key (Warning: DO NOT share this key with anyone)
 
@@ -809,7 +785,7 @@ Consider what visuals or props you can add to your livestream to enhance your pe
 
 #### Find A Way to Make it Evergreen
 
-[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing)refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
+[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing) refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
 
 Since your livestream will be saved on YouTube and your viewers can replay and watch it. They’re more likely to enjoy it if the content is relevant and interesting.
 
@@ -859,9 +835,7 @@ Here’s how to set it up:
 4. Always do a test run of your livestream to ensure the internet, audio, and visual are all working properly.
 5. Create content and reach out to communities to promote your livestream.
 
-_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -960,7 +934,7 @@ Once upon a time, to livestream on YouTube, you needed additional software to ca
 
 Those encoding software, such as [OBS](https://tools.techidaily.com/wondershare/filmora/download/), [Wirecast](https://tools.techidaily.com/wondershare/filmora/download/), and [VMix](https://tools.techidaily.com/wondershare/filmora/download/), are required if you are producing content that requires a high frame rate such as gaming, but not mandatory if you are simply vlogging or running a tutorial.
 
-If you are using Chrome, you can[stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
+If you are using Chrome, you can [stream live on YouTube without using an encoder](https://techcrunch.com/2018/03/20/youtube-rolls-out-a-new-feature-that-lets-you-go-live-from-the-desktop-without-an-encoder/).
 
 #### A Capture Card (For Higher Quality Streams)
 
@@ -978,9 +952,7 @@ By accessing [www.youtube.com/webcam](https://www.youtube.com/webcam) on the Goo
 
 1\. Click [**here**](https://www.youtube.com/webcam) to connect to your YouTube channel
 
-2\. You can access it from the top menu on YouTube
-
-![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
+2\. You can access it from the top menu on YouTube ![access livestream](https://images.wondershare.com/filmora/article-images/access-livestream1.jpg)
 
 3\. You can access it by clicking Camera under the Live Streaming tab in your Creator Studio
 
@@ -994,9 +966,7 @@ Here’s how you can access this Google Hangouts On Air:
 
 **Step 1:** Go to Events under the Live Streaming tab in your Creator Studio
 
-**Step 2:** Click New Live Event button on the top right corner
-
-![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
+**Step 2:** Click New Live Event button on the top right corner ![new live event button](https://images.wondershare.com/filmora/article-images/new-live-event-button2.jpg)
 
 **Step 3:** Enter the event’s Info and Setting page. Fill out the details of your Livestream, and under Type, select **Quick** (using Google Hangouts On Air).
 
@@ -1026,9 +996,7 @@ The fourth way of live streaming on YouTube is with encoding software. This is t
 
 **Step 2**: Open OBS
 
-**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page
-
-![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
+**Step 3**: Go to YouTube Creator Studio and enter the Stream Now page ![youtube creator studio](https://images.wondershare.com/filmora/article-images/youtube-creator-studio4.jpg)
 
 **Step 4**: Under Encoder Setup, copy Stream name/key (Warning: DO NOT share this key with anyone)
 
@@ -1092,7 +1060,7 @@ Consider what visuals or props you can add to your livestream to enhance your pe
 
 #### Find A Way to Make it Evergreen
 
-[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing)refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
+[Evergreen content](https://www.wordstream.com/blog/ws/2012/10/16/guide-to-evergreen-content-marketing) refers to content that is relevant for a great length of time. Talking about an event isn’t evergreen, because the event will soon pass and become old news. However, giving some tips for how to plan an event would be evergreen content.
 
 Since your livestream will be saved on YouTube and your viewers can replay and watch it. They’re more likely to enjoy it if the content is relevant and interesting.
 
@@ -1142,9 +1110,7 @@ Here’s how to set it up:
 4. Always do a test run of your livestream to ensure the internet, audio, and visual are all working properly.
 5. Create content and reach out to communities to promote your livestream.
 
-_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+_Have you encountered any obstacles when setting up your livestream on YouTube? Let us know in the comments below, we are happy to help!_ ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -1234,13 +1200,11 @@ YouTube shorts thumbnail plays a vital role in attracting viewers and getting mo
 
 Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
 
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### Conclusion
 
@@ -1304,13 +1268,11 @@ YouTube shorts thumbnail plays a vital role in attracting viewers and getting mo
 
 Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
 
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### Conclusion
 
@@ -1374,13 +1336,11 @@ YouTube shorts thumbnail plays a vital role in attracting viewers and getting mo
 
 Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
 
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### Conclusion
 
@@ -1444,13 +1404,11 @@ YouTube shorts thumbnail plays a vital role in attracting viewers and getting mo
 
 Creating YouTube shorts would not only cover great content but also focus on picking the right [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Thus here picking a video editor such as Wondershare Filmora would be an ideal choice for you. As it offers rich video editing tools and high filters to create an outstanding appeal for your video.
 
-#### [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Wondershare Filmora
 
-Get started easily with Filmora's powerful performance, intuitive interface, and countless effects!
+Get started easily with Filmora's powerful performance, intuitive interface, and countless effects ![Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 ### Conclusion
 

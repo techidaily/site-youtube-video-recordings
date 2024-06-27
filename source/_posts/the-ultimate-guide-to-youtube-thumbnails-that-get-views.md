@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Guide to YouTube Thumbnails that Get Views"
-date: 2024-05-25T12:58:43.899Z
-updated: 2024-05-26T12:58:43.899Z
+date: 2024-06-26T00:20:52.101Z
+updated: 2024-06-27T00:20:52.101Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://www.lifewire.com/thmb/MjDTenaULco1gu34wPM4hMvRH2g=/540x405/fi
 
 ## Unveiling the Potential of Thumbnails in Video Marketing
 
-# The Ultimate Guide to YouTube Thumbnails that Get Views
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# The Ultimate Guide to YouTube Thumbnails that Get Views ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -845,9 +843,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -1056,9 +1052,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -1267,9 +1261,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
@@ -1478,9 +1470,7 @@ You can choose an aspect ratio that best fits YouTube Shorts which is **9:16**.
 
 You can choose among three ways to open the Auto Reframe feature in Filmora.
 
-      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
-
-![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
+      * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 

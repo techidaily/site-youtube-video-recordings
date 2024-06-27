@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Charting Success  Top Online Video Channels\""
-date: 2024-05-25T12:05:58.052Z
-updated: 2024-05-26T12:05:58.052Z
+date: 2024-06-26T00:20:39.837Z
+updated: 2024-06-27T00:20:39.837Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes In 2024, Charting Success: Top Online Video Channels\""
 excerpt: "\"This Article Describes In 2024, Charting Success: Top Online Video Channels\""
 keywords: "Video Channel Growth,Online Video Trends,Video Content Traffic,Video Marketing Strategies,Monetizing Video Content,Popular Video Platforms,YouTube Analytics Insight"
-thumbnail: https://www.lifewire.com/thmb/qFabeuNrKnn_FI6Hqqh21cbdVo8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/videogamesGettyImages-640114292-5a8217a76bf06900379ffac6.jpg
+thumbnail: https://thmb.techidaily.com/c7997379262ae837ce8b40d29f0069413aec90a361d23570f41841fc2273feb3.jpg
 ---
 
 ## Charting Success: Top Online Video Channels
 
-# YouTube Subscriber Chart - 5 Most Subscribed YouTuber
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# YouTube Subscriber Chart - 5 Most Subscribed YouTuber ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -50,33 +48,25 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-### 1\.  PewDiePie
-
-![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+### 1\.  PewDiePie ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-###  2\.  HolaSoyGerman
-
-![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
+###  2\.  HolaSoyGerman ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-###  3\.  ElrubiusOMG
-
-![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+###  3\.  ElrubiusOMG ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-###  4\.  Smosh
-
-![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+###  4\.  Smosh ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -84,9 +74,7 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-### 5\.  Fernanfloo
-
-![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+### 5\.  Fernanfloo ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -138,33 +126,25 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-### 1\.  PewDiePie
-
-![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+### 1\.  PewDiePie ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-###  2\.  HolaSoyGerman
-
-![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
+###  2\.  HolaSoyGerman ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-###  3\.  ElrubiusOMG
-
-![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+###  3\.  ElrubiusOMG ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-###  4\.  Smosh
-
-![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+###  4\.  Smosh ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -172,9 +152,7 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-### 5\.  Fernanfloo
-
-![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+### 5\.  Fernanfloo ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -226,33 +204,25 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-### 1\.  PewDiePie
-
-![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+### 1\.  PewDiePie ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-###  2\.  HolaSoyGerman
-
-![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
+###  2\.  HolaSoyGerman ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-###  3\.  ElrubiusOMG
-
-![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+###  3\.  ElrubiusOMG ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-###  4\.  Smosh
-
-![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+###  4\.  Smosh ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -260,9 +230,7 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-### 5\.  Fernanfloo
-
-![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+### 5\.  Fernanfloo ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -314,33 +282,25 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
-### 1\.  PewDiePie
-
-![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+### 1\.  PewDiePie ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-###  2\.  HolaSoyGerman
-
-![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
+###  2\.  HolaSoyGerman ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-###  3\.  ElrubiusOMG
-
-![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+###  3\.  ElrubiusOMG ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-###  4\.  Smosh
-
-![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+###  4\.  Smosh ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -348,9 +308,7 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-### 5\.  Fernanfloo
-
-![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+### 5\.  Fernanfloo ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -386,9 +344,7 @@ Follow @Richard Bennett
 
 ## Unlock YouTube's End Screens: Easy Template Ideas & Tutorials
 
-# Free YouTube End Screen Templates
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Free YouTube End Screen Templates ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -447,23 +403,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -473,11 +427,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -556,23 +510,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -582,11 +534,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -665,23 +617,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -691,11 +641,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -774,23 +724,21 @@ Here are some of our favorite ones.
 
 Here’s one for the Minecraft fans:
 
-![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
+![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
-1\. First, you have to sign up with an e-mail address
-
-![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+1\. First, you have to sign up with an e-mail address ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -800,11 +748,11 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 5\. Upload the image onto your Canva project.
 
-![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+![upload-downloaded-youtube-end-screen-canva](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 6\. Stretch your image to the ends of your canvas.
 
-![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+![stretch-end-screen-templates-canva](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 

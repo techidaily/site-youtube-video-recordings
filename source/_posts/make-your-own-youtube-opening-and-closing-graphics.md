@@ -1,7 +1,7 @@
 ---
 title: "Make Your Own YouTube Opening & Closing Graphics"
-date: 2024-05-25T12:20:02.140Z
-updated: 2024-05-26T12:20:02.140Z
+date: 2024-06-26T00:20:31.326Z
+updated: 2024-06-27T00:20:31.326Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "This Article Describes Make Your Own YouTube Opening & Closing Graphics"
 excerpt: "This Article Describes Make Your Own YouTube Opening & Closing Graphics"
 keywords: "YouTuber Graphics Design,Custom YouTube Banners,Video Thumbnail Creation,Opening Graphic Ideas,Closing Video Graphics,DIY Video Edits,Personalized Video Frames"
-thumbnail: https://www.lifewire.com/thmb/2zy8MTQaG4uUA0T7RXXxi-EpxMA=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ps5controller-0d702b25f7fa47b482999811cfc7af39.jpg
+thumbnail: https://thmb.techidaily.com/36cb4ddf3fc78c71836e11f4a803426f35040ec4e34c37b6c57cca04ad1d4891.jpg
 ---
 
 ## Make Your Own YouTube Opening & Closing Graphics
 
-# How to Create YouTube Intros & End Cards - Free and Easy
-
-![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Create YouTube Intros & End Cards - Free and Easy ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 
@@ -50,7 +48,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -93,7 +91,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -148,7 +146,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -191,7 +189,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -246,7 +244,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -289,7 +287,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -344,7 +342,7 @@ When your intro video is longer than five seconds viewers are more likely to cli
 
 Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
 
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+#### Top Intro Sites
 
 There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
 
@@ -387,7 +385,7 @@ You should also have a subscribe link somewhere in your end card, ideally a very
 
 Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
 
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+#### How To Make an End Card
 
 1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
 2. Drag your background into your timeline at the end of your video.
@@ -426,9 +424,7 @@ Follow @Shanoon Cox
 
 ## Secrets Revealed: The Best YouTube Thumbnails for Virality
 
-# Best 8 YouTube Thumbnail Grabbers You Should Know
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Best 8 YouTube Thumbnail Grabbers You Should Know ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -449,33 +445,25 @@ These thumbnails can be then be used in videos, blogs, articles, web pages, etc.
 7. [Youtubethumbnailimage.com](#youtubegrabber7)
 8. [Youthumbnail.com](#youtubegrabber8)
 
-## #1: YouTube Thumbnail Grabber
-
-![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
+## #1: YouTube Thumbnail Grabber ![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
 
 [https://youtube-thumbnail-grabber.com](https://youtube-thumbnail-grabber.com/)
 
 YouTube Thumbnail Grabber is at the top of our list. The website is very simple and clean with no ads. All you need to do is enter the YouTube video URL and click on the “Download Images” button. The site will then present you with your downloadable images in different sizes. It’s free and fast!
 
-## #2: BoingBoing
-
-![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
+## #2: BoingBoing ![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
 
 <https://boingboing.net/features/getthumbs.html>
 
 BoingBoing is faster than YouTube Thumbnail grabber because it skips the “Download Images” step. As soon as you enter in your YouTube video URL, BoingBoing will automatically present you with your downloadable images. Although it is one step faster than YouTube Thumbnail Grabber, you will have to deal with having to view one small ad at the bottom of the page. In case you also want to download freeze frames that occur midway through the video, BoingBoing also gives you the option to download those images as well.
 
-## #3: Thumbnailsave.com
-
-![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
+## #3: Thumbnailsave.com ![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
 
 [http://thumbnailsave.com](http://thumbnailsave.com/)
 
 Another free, straightforward website for grabbing your YouTube thumbnails is Thumbnailsave.com. Again, all you need to do is enter the YouTube video URL and click the "Submit" button. Unlike our first two options, this site has a lot more ads. You’ll see a banner ad at the top as well as an ad to the side of the page. One interesting thing about this website is that it displays a column of thumbnails recently grabbed by users all over the world (displayed on the right side of the page). You might find this entertaining. If you are captivated by one of the thumbnail images, you can download it onto your computer and then do a reverse image search on Google to find the video.
 
-## #4: Get YouTube Thumbnail
-
-![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
+## #4: Get YouTube Thumbnail ![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
 
 [http://www.get-youtube-thumbnail.com](http://www.get-youtube-thumbnail.com/)
 
@@ -566,33 +554,25 @@ These thumbnails can be then be used in videos, blogs, articles, web pages, etc.
 7. [Youtubethumbnailimage.com](#youtubegrabber7)
 8. [Youthumbnail.com](#youtubegrabber8)
 
-## #1: YouTube Thumbnail Grabber
-
-![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
+## #1: YouTube Thumbnail Grabber ![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
 
 [https://youtube-thumbnail-grabber.com](https://youtube-thumbnail-grabber.com/)
 
 YouTube Thumbnail Grabber is at the top of our list. The website is very simple and clean with no ads. All you need to do is enter the YouTube video URL and click on the “Download Images” button. The site will then present you with your downloadable images in different sizes. It’s free and fast!
 
-## #2: BoingBoing
-
-![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
+## #2: BoingBoing ![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
 
 <https://boingboing.net/features/getthumbs.html>
 
 BoingBoing is faster than YouTube Thumbnail grabber because it skips the “Download Images” step. As soon as you enter in your YouTube video URL, BoingBoing will automatically present you with your downloadable images. Although it is one step faster than YouTube Thumbnail Grabber, you will have to deal with having to view one small ad at the bottom of the page. In case you also want to download freeze frames that occur midway through the video, BoingBoing also gives you the option to download those images as well.
 
-## #3: Thumbnailsave.com
-
-![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
+## #3: Thumbnailsave.com ![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
 
 [http://thumbnailsave.com](http://thumbnailsave.com/)
 
 Another free, straightforward website for grabbing your YouTube thumbnails is Thumbnailsave.com. Again, all you need to do is enter the YouTube video URL and click the "Submit" button. Unlike our first two options, this site has a lot more ads. You’ll see a banner ad at the top as well as an ad to the side of the page. One interesting thing about this website is that it displays a column of thumbnails recently grabbed by users all over the world (displayed on the right side of the page). You might find this entertaining. If you are captivated by one of the thumbnail images, you can download it onto your computer and then do a reverse image search on Google to find the video.
 
-## #4: Get YouTube Thumbnail
-
-![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
+## #4: Get YouTube Thumbnail ![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
 
 [http://www.get-youtube-thumbnail.com](http://www.get-youtube-thumbnail.com/)
 
@@ -683,33 +663,25 @@ These thumbnails can be then be used in videos, blogs, articles, web pages, etc.
 7. [Youtubethumbnailimage.com](#youtubegrabber7)
 8. [Youthumbnail.com](#youtubegrabber8)
 
-## #1: YouTube Thumbnail Grabber
-
-![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
+## #1: YouTube Thumbnail Grabber ![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
 
 [https://youtube-thumbnail-grabber.com](https://youtube-thumbnail-grabber.com/)
 
 YouTube Thumbnail Grabber is at the top of our list. The website is very simple and clean with no ads. All you need to do is enter the YouTube video URL and click on the “Download Images” button. The site will then present you with your downloadable images in different sizes. It’s free and fast!
 
-## #2: BoingBoing
-
-![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
+## #2: BoingBoing ![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
 
 <https://boingboing.net/features/getthumbs.html>
 
 BoingBoing is faster than YouTube Thumbnail grabber because it skips the “Download Images” step. As soon as you enter in your YouTube video URL, BoingBoing will automatically present you with your downloadable images. Although it is one step faster than YouTube Thumbnail Grabber, you will have to deal with having to view one small ad at the bottom of the page. In case you also want to download freeze frames that occur midway through the video, BoingBoing also gives you the option to download those images as well.
 
-## #3: Thumbnailsave.com
-
-![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
+## #3: Thumbnailsave.com ![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
 
 [http://thumbnailsave.com](http://thumbnailsave.com/)
 
 Another free, straightforward website for grabbing your YouTube thumbnails is Thumbnailsave.com. Again, all you need to do is enter the YouTube video URL and click the "Submit" button. Unlike our first two options, this site has a lot more ads. You’ll see a banner ad at the top as well as an ad to the side of the page. One interesting thing about this website is that it displays a column of thumbnails recently grabbed by users all over the world (displayed on the right side of the page). You might find this entertaining. If you are captivated by one of the thumbnail images, you can download it onto your computer and then do a reverse image search on Google to find the video.
 
-## #4: Get YouTube Thumbnail
-
-![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
+## #4: Get YouTube Thumbnail ![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
 
 [http://www.get-youtube-thumbnail.com](http://www.get-youtube-thumbnail.com/)
 
@@ -800,33 +772,25 @@ These thumbnails can be then be used in videos, blogs, articles, web pages, etc.
 7. [Youtubethumbnailimage.com](#youtubegrabber7)
 8. [Youthumbnail.com](#youtubegrabber8)
 
-## #1: YouTube Thumbnail Grabber
-
-![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
+## #1: YouTube Thumbnail Grabber ![YouTube Thumbnail Grabber](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-grabber.jpg)
 
 [https://youtube-thumbnail-grabber.com](https://youtube-thumbnail-grabber.com/)
 
 YouTube Thumbnail Grabber is at the top of our list. The website is very simple and clean with no ads. All you need to do is enter the YouTube video URL and click on the “Download Images” button. The site will then present you with your downloadable images in different sizes. It’s free and fast!
 
-## #2: BoingBoing
-
-![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
+## #2: BoingBoing ![Boing Boing](https://images.wondershare.com/filmora/article-images/boing-boing.jpg)
 
 <https://boingboing.net/features/getthumbs.html>
 
 BoingBoing is faster than YouTube Thumbnail grabber because it skips the “Download Images” step. As soon as you enter in your YouTube video URL, BoingBoing will automatically present you with your downloadable images. Although it is one step faster than YouTube Thumbnail Grabber, you will have to deal with having to view one small ad at the bottom of the page. In case you also want to download freeze frames that occur midway through the video, BoingBoing also gives you the option to download those images as well.
 
-## #3: Thumbnailsave.com
-
-![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
+## #3: Thumbnailsave.com ![Thumbnail Save](https://images.wondershare.com/filmora/article-images/thumbnail-save.jpg)
 
 [http://thumbnailsave.com](http://thumbnailsave.com/)
 
 Another free, straightforward website for grabbing your YouTube thumbnails is Thumbnailsave.com. Again, all you need to do is enter the YouTube video URL and click the "Submit" button. Unlike our first two options, this site has a lot more ads. You’ll see a banner ad at the top as well as an ad to the side of the page. One interesting thing about this website is that it displays a column of thumbnails recently grabbed by users all over the world (displayed on the right side of the page). You might find this entertaining. If you are captivated by one of the thumbnail images, you can download it onto your computer and then do a reverse image search on Google to find the video.
 
-## #4: Get YouTube Thumbnail
-
-![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
+## #4: Get YouTube Thumbnail ![Get YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/get-youtube-thumbnail.jpg)
 
 [http://www.get-youtube-thumbnail.com](http://www.get-youtube-thumbnail.com/)
 

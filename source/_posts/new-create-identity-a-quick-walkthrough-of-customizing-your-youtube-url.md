@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Create Identity  A Quick Walkthrough of Customizing Your YouTube Url\""
-date: 2024-05-25T12:34:07.906Z
-updated: 2024-05-26T12:34:07.906Z
+date: 2024-06-26T00:20:21.900Z
+updated: 2024-06-27T00:20:21.900Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes [New] Create Identity: A Quick Walkthrough of Customizing Your YouTube Url\""
 excerpt: "\"This Article Describes [New] Create Identity: A Quick Walkthrough of Customizing Your YouTube Url\""
 keywords: "YouTube URL Customize Guide,Personalized YouTube Link,Custom YouTube Identity,Shape Your YouTube Profile,Personal YouTube Address,Craft Unique YouTube Link,Identity in YouTube URL"
-thumbnail: https://www.lifewire.com/thmb/3NvFp5LngXdNcgXymAXs6HlGjPw=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/dudeontrain_compressed-5bb126b146e0fb0026d7904e.jpg
+thumbnail: https://thmb.techidaily.com/c6048430c1339bc95d70af5b42f06e3231c3552b043c7e6cc92b16fd863d9438.jpg
 ---
 
 ## Create Identity: A Quick Walkthrough of Customizing Your YouTube Url
 
-# How to Find and Change Your YouTube Channel URL – Super Easy
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Find and Change Your YouTube Channel URL – Super Easy ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -334,9 +332,7 @@ Follow @Richard Bennett
 
 ## Tailored Techniques to Cut Off Unwanted YouTube Content on Devices
 
-# How to Block YouTube Channels on Computer and Mobile Phones
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Block YouTube Channels on Computer and Mobile Phones ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -407,9 +403,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -513,9 +507,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -619,9 +611,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -725,9 +715,7 @@ Follow @Richard Bennett
 
 ### **I. Block on Home screen**
 
-* 1\. On the Home screen press the dotted menu next to the video
-
-![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+* 1\. On the Home screen press the dotted menu next to the video ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.

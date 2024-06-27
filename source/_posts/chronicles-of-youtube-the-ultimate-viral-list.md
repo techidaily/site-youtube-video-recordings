@@ -1,7 +1,7 @@
 ---
 title: "\"Chronicles of YouTube  The Ultimate Viral List\""
-date: 2024-06-18T11:31:42.737Z
-updated: 2024-06-19T11:31:42.737Z
+date: 2024-06-26T00:20:31.670Z
+updated: 2024-06-27T00:20:31.670Z
 tags:
   - ai video
   - ai youtube
@@ -16,9 +16,7 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
 ## Chronicles of YouTube: The Ultimate Viral List
 
-# Top 10 Most Viewed Videos on YouTube of All Time
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Top 10 Most Viewed Videos on YouTube of All Time ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -550,9 +548,7 @@ Follow @Richard Bennett
 
 ## Infographic Spotlight on Emerging '23 Trends
 
-# Infographic - Social Media Trends
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# Infographic - Social Media Trends ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

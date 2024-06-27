@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Guide  Top 10 YouTube Editing Tricks\""
-date: 2024-05-25T12:28:24.144Z
-updated: 2024-05-26T12:28:24.144Z
+date: 2024-06-26T00:20:50.981Z
+updated: 2024-06-27T00:20:50.981Z
 tags:
   - ai video
   - ai youtube
@@ -11,14 +11,12 @@ categories:
 description: "\"This Article Describes [New] Beginner's Guide: Top 10 YouTube Editing Tricks\""
 excerpt: "\"This Article Describes [New] Beginner's Guide: Top 10 YouTube Editing Tricks\""
 keywords: "YouTube Editing Basics,Top 10 Video Edits,Simple Editing Tips,Professional Editor Techniques,Essential Editing Hacks,Streamline Your Videos,Quick Editing Tricks"
-thumbnail: https://www.lifewire.com/thmb/AMgEVIin8UFIX3i5AXqs8C9WVZg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/nakul-QxPRz2oTOWo-unsplash-100a9e3871584fa5a1d9a7f445b572f5.jpg
+thumbnail: https://thmb.techidaily.com/c476c76efa4305c4184325fe1ddf82b7177bf5ea101e0b8dd34c17b0c21488b1.jpg
 ---
 
 ## Beginner's Guide: Top 10 YouTube Editing Tricks
 
-# YouTube Video Editing Tips for Beginner Editors
-
-![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
+# YouTube Video Editing Tips for Beginner Editors ![author avatar](https://images.wondershare.fr/filmora/filmora/MarionDubois.jpg)
 
 ##### Marion Dubois
 
@@ -474,9 +472,7 @@ Follow @Marion Dubois
 
 ## Self-Filmed Brilliance: Secrets for YouTube Success
 
-# 4 Ways To Set Up Your Talking-Head Shots For YouTube
-
-![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 4 Ways To Set Up Your Talking-Head Shots For YouTube ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -493,7 +489,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
+![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -578,7 +574,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
+![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -663,7 +659,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
+![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -748,7 +744,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
+![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Clear YouTube Watch Later Playlist - [Step-by-Step]\""
-date: 2024-05-25T12:06:23.003Z
-updated: 2024-05-26T12:06:23.003Z
+date: 2024-06-26T00:20:40.049Z
+updated: 2024-06-27T00:20:40.049Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Clear YouTube Watch Later Playlist - [Step-by-Step]\""
 excerpt: "\"This Article Describes In 2024, Clear YouTube Watch Later Playlist - [Step-by-Step]\""
 keywords: "YouTube Save Videos,Video Queue Management,Streamline Watch Lists,Clear Playlists Easily,Organize YouTube Viewing,Simplified Video Saving,Efficient Screen Time Planning"
-thumbnail: https://www.lifewire.com/thmb/MZhkp92hpRGDlwQlCKJy4-okjmU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/wirelessoculusquestconnection-5532e5c266bf48ea8d09ed0f10c69265.jpg
+thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500c43a741b28a10c98f28c4a5.jpg
 ---
 
 ## Clear YouTube Watch Later Playlist - [Step-by-Step]
@@ -62,7 +62,7 @@ Step2 Now, hit the **"Ctrl + Shift + J"** keys on Windows or the **"Command + Op
 
 Step3 Copy and paste the following lines of the script at the end of the line under the Console tab where the cursor is blinking.
 
-setInterval(function () { document.querySelector('#primary button\[aria-label="Action menu"\]').click(); var things = document.evaluate( '//span\[contains(text(),"Remove from")\]', document, null, XPathResult.ORDERED\_NODE\_SNAPSHOT\_TYPE, null ); for (var i = 0; i < things.snapshotLength; i++) { things.snapshotItem(i).click(); } }, 1000);
+setInterval(function () { document.querySelector('#primary button\[aria-label="Action menu"\]').click(); var things = document.evaluate('//span\[contains(text(),"Remove from")\]', document, null, XPathResult.ORDERED\_NODE\_SNAPSHOT\_TYPE, null ); for (var i = 0; i < things.snapshotLength; i++) { things.snapshotItem(i).click(); } }, 1000);
 
 Step4 In the last step, hit the **"Enter"** key to clear the Watch Later Playlist on YouTube. However, the process may take some time, depending on the number of videos in your playlist.
 
@@ -213,7 +213,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -225,7 +225,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -233,7 +233,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
@@ -343,7 +343,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -355,7 +355,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -363,7 +363,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
@@ -473,7 +473,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -485,7 +485,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -493,7 +493,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
@@ -603,7 +603,7 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+![create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
 
@@ -615,7 +615,7 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+![record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
 
@@ -623,7 +623,7 @@ Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#
 
 Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+![add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
 ## Here are the solutions for YouTube Common Issues
 
