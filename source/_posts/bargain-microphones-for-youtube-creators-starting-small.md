@@ -1,7 +1,7 @@
 ---
 title: "Bargain Microphones for YouTube Creators Starting Small"
-date: 2024-05-25T11:21:29.977Z
-updated: 2024-05-26T11:21:29.977Z
+date: 2024-06-18T11:31:48.287Z
+updated: 2024-06-19T11:31:48.287Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Bargain Microphones for YouTube Creators Starting Small"
 excerpt: "This Article Describes Bargain Microphones for YouTube Creators Starting Small"
 keywords: "\"Beginner Mic Purchase,Affordable Audio Equipment,Economic Studio Mics,Cheap Creator Gear,Low-Cost Microphones,YouTube Recording Tips,Entry-Level Sound Devices\""
-thumbnail: https://www.lifewire.com/thmb/oUsuZ8YSqdbEK9Z30gubHVa5QNI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-12489005711-a34c10ab34b54fec94a92bf181c0f456.jpg
+thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5c8519728e8db299bf3f1234.jpg
 ---
 
 ## Bargain Microphones for YouTube Creators Starting Small

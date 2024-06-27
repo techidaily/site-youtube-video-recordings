@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cinematic Delights for a Low Price - Top 10 Free Movies on YouTube\""
-date: 2024-05-25T13:14:56.494Z
-updated: 2024-05-26T13:14:56.494Z
+date: 2024-06-18T11:31:42.858Z
+updated: 2024-06-19T11:31:42.858Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Cinematic Delights for a Low Price - Top 10 Free Movies on YouTube\""
 excerpt: "\"This Article Describes [Updated] Cinematic Delights for a Low Price - Top 10 Free Movies on YouTube\""
 keywords: "\"Low-Cost Film Streaming,Affordable Cinematic Content,Budget Movie Access,Free Online Films,Discounted Movies Video,Economical Cinema Selection,YouTube Free Films\""
-thumbnail: https://www.lifewire.com/thmb/YCr33fJHseZO8RCihR1UVKh6rm8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/CraigLewis-a22534001b734668a6b9b89811095400.png
+thumbnail: https://thmb.techidaily.com/bbc14b435660c967866cf3c17d84e88db2c1688390de1d8678d61e0a94d5c4d0.png
 ---
 
 ## Cinematic Delights for a Low Price - Top 10 Free Movies on YouTube

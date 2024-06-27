@@ -1,7 +1,7 @@
 ---
 title: "\"Visual Storytelling Hack  Crafting YouTube Thumbnails on Mobiles\""
-date: 2024-05-25T13:26:43.391Z
-updated: 2024-05-26T13:26:43.391Z
+date: 2024-06-18T11:31:42.175Z
+updated: 2024-06-19T11:31:42.175Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Visual Storytelling Hack: Crafting YouTube Thumbnails on Mobiles\""
 excerpt: "\"This Article Describes Visual Storytelling Hack: Crafting YouTube Thumbnails on Mobiles\""
 keywords: "Mobile Thumbnail Tips,YouTube Video Engagement,Effective Thumbnail Design,Visual Storytelling Techniques,Crafting Captivating Thumbnails,Mobiles in Content Creation,YouTube Thumbnail Hack"
-thumbnail: https://www.lifewire.com/thmb/opH7upWSEou2mQx87JL3gnVYbO0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/slingtv-5a0a0a55845b34003bd44484.jpg
+thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b074d81c3008e2f891a827245d.jpg
 ---
 
 ## Visual Storytelling Hack: Crafting YouTube Thumbnails on Mobiles

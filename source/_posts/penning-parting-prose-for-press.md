@@ -1,7 +1,7 @@
 ---
 title: "Penning Parting Prose for Press"
-date: 2024-05-25T12:44:06.301Z
-updated: 2024-05-26T12:44:06.301Z
+date: 2024-06-18T11:31:46.798Z
+updated: 2024-06-19T11:31:46.798Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Penning Parting Prose for Press"
 excerpt: "This Article Describes Penning Parting Prose for Press"
 keywords: "Writing Goodbyes,Press Release Tips,Exiting Statements,Effective Prose,Final Words For Media,Press Parting Scripts,Journalist's Farewells"
-thumbnail: https://www.lifewire.com/thmb/WpEjByZxjDiu1dRhYVfqcDWX2LU=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/Phones_GettyImages-1314284781_ORIG_d3sign._CROPPEDjpg-c1cb62860b3e4228b51aa8566e84abb0.jpg
+thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4734b479814370ac29d24cc7.jpg
 ---
 
 ## Penning Parting Prose for Press

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Dive Into Video Production  Mastering Green Screens on YT\""
-date: 2024-05-25T13:20:18.565Z
-updated: 2024-05-26T13:20:18.565Z
+date: 2024-06-18T11:31:41.714Z
+updated: 2024-06-19T11:31:41.714Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] Dive Into Video Production: Mastering Green Screens on YT\""
 excerpt: "\"This Article Describes [Updated] Dive Into Video Production: Mastering Green Screens on YT\""
 keywords: "\"Green Screen Tips,Pro Video Techniques,Behind-the-Screen Insights,Digital Background Magic,Effective Screen Usage,Quality Film Production,Creative Video Editing\""
-thumbnail: https://www.lifewire.com/thmb/JO3G2L6-RdxKIhq-8xFKaQ9L4as=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-184988903-56e20b6a3df78c5ba056b76b-2a6b7cc48e234a898d913048b96f3df5.jpg
+thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f17cad9fcf863c9fe9218bf46.jpg
 ---
 
 ## Dive Into Video Production: Mastering Green Screens on YT

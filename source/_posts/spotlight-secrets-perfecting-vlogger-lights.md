@@ -1,7 +1,7 @@
 ---
 title: "\"Spotlight Secrets  Perfecting Vlogger Lights\""
-date: 2024-05-25T12:50:37.747Z
-updated: 2024-05-26T12:50:37.747Z
+date: 2024-06-18T11:31:43.702Z
+updated: 2024-06-19T11:31:43.702Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Spotlight Secrets: Perfecting Vlogger Lights\""
 excerpt: "\"This Article Describes Spotlight Secrets: Perfecting Vlogger Lights\""
 keywords: "Vlogging Light Setup,Video Videography Tips,StreamLights For Vloggers,ProVide Lamps Review,LED Spotlights for Clips,Vlogger Illumination Guide,Professional Vlog Lights"
-thumbnail: https://www.lifewire.com/thmb/ppKJHMiBSGTcJo7ZO_c42xw7lhY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-140173628BetsieVanDerMeer-5927117e5f9b5859509a476c.jpg
+thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e811859d2e2792db0d3e9e3a.jpg
 ---
 
 ## Spotlight Secrets: Perfecting Vlogger Lights
@@ -30,7 +30,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -100,7 +100,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -170,7 +170,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -240,7 +240,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 

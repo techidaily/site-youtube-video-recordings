@@ -1,7 +1,7 @@
 ---
 title: "Influence of SEO on YouTube Video Popularity"
-date: 2024-05-25T12:16:53.285Z
-updated: 2024-05-26T12:16:53.285Z
+date: 2024-06-18T11:31:40.672Z
+updated: 2024-06-19T11:31:40.672Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Influence of SEO on YouTube Video Popularity"
 excerpt: "This Article Describes Influence of SEO on YouTube Video Popularity"
 keywords: "SEO Impact,YouTube Ranking,Video Popularity,Video Traffic,Keyword Optimization,Search Engines,Content Visibility,SEO Impact,YouTube Ranking,Video Popularity,Increase Views,Keyword Optimize,SEO Efficiency,Visibility Boost"
-thumbnail: https://www.lifewire.com/thmb/iZiCpbRSCz8RojdrehWr4_jeUDI=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/TravelTech_GettyImages-1410662282_CROPPED_d3sign-03c2cdf5be314894b99757426813be51.jpg
+thumbnail: https://thmb.techidaily.com/b38051c9d12a2b8d1315fdc2f1d84dde69fd749e096f758fd9b3624bcd8211ec.jpg
 ---
 
 ## Influence of SEO on YouTube Video Popularity

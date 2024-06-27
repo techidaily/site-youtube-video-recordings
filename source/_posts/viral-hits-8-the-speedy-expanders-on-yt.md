@@ -1,7 +1,7 @@
 ---
 title: "\"Viral Hits 8  The Speedy Expanders on YT\""
-date: 2024-05-25T13:26:17.748Z
-updated: 2024-05-26T13:26:17.748Z
+date: 2024-06-18T11:31:43.301Z
+updated: 2024-06-19T11:31:43.301Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Viral Hits 8: The Speedy Expanders on YT\""
 excerpt: "\"This Article Describes Viral Hits 8: The Speedy Expanders on YT\""
 keywords: "\"Viral Video Trends,Rapid YouTube Growth,Popular Youtube Channels,High-Engagement Content,Accelerated Viewership,Successful Youtube Expansion,Influencer Channel Boom\""
-thumbnail: https://www.lifewire.com/thmb/dZWU9y5hEOmMbOYLi9FnZIGOARU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/mgstickers00-449b52de59b64a058a1b5430926770c1.jpg
+thumbnail: https://thmb.techidaily.com/8774783d28d2d78a2030ac7e0dc1d6230634beecdba672087a8494366974e451.jpg
 ---
 
 ## Viral Hits 8: The Speedy Expanders on YT
