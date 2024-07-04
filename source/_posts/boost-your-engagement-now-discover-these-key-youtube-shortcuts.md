@@ -1,0 +1,949 @@
+---
+title: "\"Boost Your Engagement Now! - Discover These Key YouTube Shortcuts\""
+date: 2024-05-25T11:24:24.302Z
+updated: 2024-05-26T11:24:24.302Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes Boost Your Engagement Now! - Discover These Key YouTube Shortcuts\""
+excerpt: "\"This Article Describes Boost Your Engagement Now! - Discover These Key YouTube Shortcuts\""
+keywords: "Video Boost Engage,Enhance YouTube Views,Increase Shortcut Use,Elevate Content Impact,Grow Shorty Traffic,Upsurge Viewer Interest,Amplify Interaction Rate"
+thumbnail: https://www.lifewire.com/thmb/QWj6wQyTLgXhzxbd2FDkmSrQiNY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/work-from-home-final-cb19dcdff01545d693d7ecb1f9f9c9b2.jpg
+---
+
+## Boost Your Engagement Now! - Discover These Key YouTube Shortcuts
+
+# YouTube Shortcuts You Should Know in 2024
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+YouTube, as one of the most popular free streaming video portals, the majority of people use it, probably several times a day. However, how many of you know that there are more than 20 shortcuts that help you use the website comparatively more conveniently?
+
+With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
+
+## Amazing YouTube Keyboard Shortcuts You May Not Know
+
+To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+### Category 1: YouTube Playback Hotkeys
+
+While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
+
+| Keyboard Shortcut | Function                               |
+| ----------------- | -------------------------------------- |
+| 'K'               | Play and Pause (Works as a toggle key) |
+| 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+### Category 2: Scrolling YouTube Videos Back and Forth
+
+This section talks about the shortcut keys to skim the video forward and backward during playback:
+
+| Keyboard Shortcut                    | Function                                                                                                                                                                     |
+| ------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| 'L'                                  | Skip the video 10 seconds forward                                                                                                                                            |
+| 'J'                                  | Skip the video 10 seconds backward                                                                                                                                           |
+| '→' (Right Arrow)                    | Skip the video 5 seconds forward                                                                                                                                             |
+| '←' (Left Arrow)                     | Skip the video 5 seconds backward                                                                                                                                            |
+| 'SHIFT' + 'N'                        | Skip to the next video in the playlist or to the next suggested video                                                                                                        |
+| 'K' or 'Spacebar'; then '.' (Period) | Pressing 'K' or 'Spacebar' pauses the video; pressing the '.' (Period) key repeatedly moves the video forward one frame at a time (Period key on the Numpad isn't supported) |
+| 'K' or 'Spacebar'; then ',' (Comma)  | Pressing 'K' or 'Spacebar' pauses the video; pressing the ',' (Comma) key repeatedly moves the video backward one frame at a time (Period key on the Numpad isn't supported) |
+| '0' (Zero)                           | Takes the video to the beginning                                                                                                                                             |
+
+If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
+
+Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+### Category 3: Manage Playback Speed
+
+This category contains information on increasing or decreasing the playback speed of a YouTube video:
+
+| Keyboard Shortcut      | Function                |
+| ---------------------- | ----------------------- |
+| 'SHIFT' + '.' (Period) | Increase playback speed |
+| 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+### Category 4: Managing the Captions
+
+This category talks about managing the video captions using the shortcut keys:
+
+| Keyboard Shortcut  | Function                                                                                                             |
+| ------------------ | -------------------------------------------------------------------------------------------------------------------- |
+| 'C'                | Enable or disable captions (Works as a toggle key)                                                                   |
+| 'O' (The letter O) | Increase or decrease the brightness level of the captions (Works as a toggle key)                                    |
+| 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
+| '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
+| '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+### Category 5: Managing the Audio Video
+
+This category shows the shortcut keys to manage audio for a YouTube video:
+
+| Keyboard Shortcut | Function              |
+| ----------------- | --------------------- |
+| 'M'               | Mute YouTube video    |
+| '↑'               | Increase volume by 5% |
+| '↓'               | Decrease volume by 5% |
+
+### Category 6: Switching Between Screen Modes
+
+The shortcut keys given in this table enable you to switch between different screen modes:
+
+| Keyboard Shortcut | Function                                                                      |
+| ----------------- | ----------------------------------------------------------------------------- |
+| 'F'               | Switch between the full-screen and normal mode (Works as a toggle key)        |
+| 'T'               | Switch between the theater and normal mode (Works as a toggle key)            |
+| 'I'               | Switch between the independent player and normal mode (Works as a toggle key) |
+
+Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
+
+If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+### Category 7: Viewing 360o/VR Videos
+
+In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
+
+| Keyboard Shortcut           | Function                                              |
+| --------------------------- | ----------------------------------------------------- |
+| 'W', 'A', 'S', 'D'          | Up, left, down, and right camera panning respectively |
+| '+' (Plus Key on Numpad)    | Zoom in                                               |
+| '-' (Minus Key on Numpad)   | Zoom out                                              |
+| '-' (Minus Key on Keyboard) | Decrease font size                                    |
+| '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+## Bonus: How to Get the YouTube Shortcut List with One-Click
+
+In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
+
+| Keyboard Shortcut | Function                                                   |
+| ----------------- | ---------------------------------------------------------- |
+| 'SHIFT' + '?'     | Show the important keyboard shortcuts assigned for YouTube |
+
+So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
+
+![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+**Conclusion**
+
+Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
+
+As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+YouTube, as one of the most popular free streaming video portals, the majority of people use it, probably several times a day. However, how many of you know that there are more than 20 shortcuts that help you use the website comparatively more conveniently?
+
+With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
+
+## Amazing YouTube Keyboard Shortcuts You May Not Know
+
+To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+### Category 1: YouTube Playback Hotkeys
+
+While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
+
+| Keyboard Shortcut | Function                               |
+| ----------------- | -------------------------------------- |
+| 'K'               | Play and Pause (Works as a toggle key) |
+| 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+### Category 2: Scrolling YouTube Videos Back and Forth
+
+This section talks about the shortcut keys to skim the video forward and backward during playback:
+
+| Keyboard Shortcut                    | Function                                                                                                                                                                     |
+| ------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| 'L'                                  | Skip the video 10 seconds forward                                                                                                                                            |
+| 'J'                                  | Skip the video 10 seconds backward                                                                                                                                           |
+| '→' (Right Arrow)                    | Skip the video 5 seconds forward                                                                                                                                             |
+| '←' (Left Arrow)                     | Skip the video 5 seconds backward                                                                                                                                            |
+| 'SHIFT' + 'N'                        | Skip to the next video in the playlist or to the next suggested video                                                                                                        |
+| 'K' or 'Spacebar'; then '.' (Period) | Pressing 'K' or 'Spacebar' pauses the video; pressing the '.' (Period) key repeatedly moves the video forward one frame at a time (Period key on the Numpad isn't supported) |
+| 'K' or 'Spacebar'; then ',' (Comma)  | Pressing 'K' or 'Spacebar' pauses the video; pressing the ',' (Comma) key repeatedly moves the video backward one frame at a time (Period key on the Numpad isn't supported) |
+| '0' (Zero)                           | Takes the video to the beginning                                                                                                                                             |
+
+If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
+
+Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+### Category 3: Manage Playback Speed
+
+This category contains information on increasing or decreasing the playback speed of a YouTube video:
+
+| Keyboard Shortcut      | Function                |
+| ---------------------- | ----------------------- |
+| 'SHIFT' + '.' (Period) | Increase playback speed |
+| 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+### Category 4: Managing the Captions
+
+This category talks about managing the video captions using the shortcut keys:
+
+| Keyboard Shortcut  | Function                                                                                                             |
+| ------------------ | -------------------------------------------------------------------------------------------------------------------- |
+| 'C'                | Enable or disable captions (Works as a toggle key)                                                                   |
+| 'O' (The letter O) | Increase or decrease the brightness level of the captions (Works as a toggle key)                                    |
+| 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
+| '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
+| '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+### Category 5: Managing the Audio Video
+
+This category shows the shortcut keys to manage audio for a YouTube video:
+
+| Keyboard Shortcut | Function              |
+| ----------------- | --------------------- |
+| 'M'               | Mute YouTube video    |
+| '↑'               | Increase volume by 5% |
+| '↓'               | Decrease volume by 5% |
+
+### Category 6: Switching Between Screen Modes
+
+The shortcut keys given in this table enable you to switch between different screen modes:
+
+| Keyboard Shortcut | Function                                                                      |
+| ----------------- | ----------------------------------------------------------------------------- |
+| 'F'               | Switch between the full-screen and normal mode (Works as a toggle key)        |
+| 'T'               | Switch between the theater and normal mode (Works as a toggle key)            |
+| 'I'               | Switch between the independent player and normal mode (Works as a toggle key) |
+
+Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
+
+If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+### Category 7: Viewing 360o/VR Videos
+
+In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
+
+| Keyboard Shortcut           | Function                                              |
+| --------------------------- | ----------------------------------------------------- |
+| 'W', 'A', 'S', 'D'          | Up, left, down, and right camera panning respectively |
+| '+' (Plus Key on Numpad)    | Zoom in                                               |
+| '-' (Minus Key on Numpad)   | Zoom out                                              |
+| '-' (Minus Key on Keyboard) | Decrease font size                                    |
+| '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+## Bonus: How to Get the YouTube Shortcut List with One-Click
+
+In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
+
+| Keyboard Shortcut | Function                                                   |
+| ----------------- | ---------------------------------------------------------- |
+| 'SHIFT' + '?'     | Show the important keyboard shortcuts assigned for YouTube |
+
+So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
+
+![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+**Conclusion**
+
+Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
+
+As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+YouTube, as one of the most popular free streaming video portals, the majority of people use it, probably several times a day. However, how many of you know that there are more than 20 shortcuts that help you use the website comparatively more conveniently?
+
+With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
+
+## Amazing YouTube Keyboard Shortcuts You May Not Know
+
+To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+### Category 1: YouTube Playback Hotkeys
+
+While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
+
+| Keyboard Shortcut | Function                               |
+| ----------------- | -------------------------------------- |
+| 'K'               | Play and Pause (Works as a toggle key) |
+| 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+### Category 2: Scrolling YouTube Videos Back and Forth
+
+This section talks about the shortcut keys to skim the video forward and backward during playback:
+
+| Keyboard Shortcut                    | Function                                                                                                                                                                     |
+| ------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| 'L'                                  | Skip the video 10 seconds forward                                                                                                                                            |
+| 'J'                                  | Skip the video 10 seconds backward                                                                                                                                           |
+| '→' (Right Arrow)                    | Skip the video 5 seconds forward                                                                                                                                             |
+| '←' (Left Arrow)                     | Skip the video 5 seconds backward                                                                                                                                            |
+| 'SHIFT' + 'N'                        | Skip to the next video in the playlist or to the next suggested video                                                                                                        |
+| 'K' or 'Spacebar'; then '.' (Period) | Pressing 'K' or 'Spacebar' pauses the video; pressing the '.' (Period) key repeatedly moves the video forward one frame at a time (Period key on the Numpad isn't supported) |
+| 'K' or 'Spacebar'; then ',' (Comma)  | Pressing 'K' or 'Spacebar' pauses the video; pressing the ',' (Comma) key repeatedly moves the video backward one frame at a time (Period key on the Numpad isn't supported) |
+| '0' (Zero)                           | Takes the video to the beginning                                                                                                                                             |
+
+If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
+
+Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+### Category 3: Manage Playback Speed
+
+This category contains information on increasing or decreasing the playback speed of a YouTube video:
+
+| Keyboard Shortcut      | Function                |
+| ---------------------- | ----------------------- |
+| 'SHIFT' + '.' (Period) | Increase playback speed |
+| 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+### Category 4: Managing the Captions
+
+This category talks about managing the video captions using the shortcut keys:
+
+| Keyboard Shortcut  | Function                                                                                                             |
+| ------------------ | -------------------------------------------------------------------------------------------------------------------- |
+| 'C'                | Enable or disable captions (Works as a toggle key)                                                                   |
+| 'O' (The letter O) | Increase or decrease the brightness level of the captions (Works as a toggle key)                                    |
+| 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
+| '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
+| '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+### Category 5: Managing the Audio Video
+
+This category shows the shortcut keys to manage audio for a YouTube video:
+
+| Keyboard Shortcut | Function              |
+| ----------------- | --------------------- |
+| 'M'               | Mute YouTube video    |
+| '↑'               | Increase volume by 5% |
+| '↓'               | Decrease volume by 5% |
+
+### Category 6: Switching Between Screen Modes
+
+The shortcut keys given in this table enable you to switch between different screen modes:
+
+| Keyboard Shortcut | Function                                                                      |
+| ----------------- | ----------------------------------------------------------------------------- |
+| 'F'               | Switch between the full-screen and normal mode (Works as a toggle key)        |
+| 'T'               | Switch between the theater and normal mode (Works as a toggle key)            |
+| 'I'               | Switch between the independent player and normal mode (Works as a toggle key) |
+
+Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
+
+If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+### Category 7: Viewing 360o/VR Videos
+
+In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
+
+| Keyboard Shortcut           | Function                                              |
+| --------------------------- | ----------------------------------------------------- |
+| 'W', 'A', 'S', 'D'          | Up, left, down, and right camera panning respectively |
+| '+' (Plus Key on Numpad)    | Zoom in                                               |
+| '-' (Minus Key on Numpad)   | Zoom out                                              |
+| '-' (Minus Key on Keyboard) | Decrease font size                                    |
+| '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+## Bonus: How to Get the YouTube Shortcut List with One-Click
+
+In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
+
+| Keyboard Shortcut | Function                                                   |
+| ----------------- | ---------------------------------------------------------- |
+| 'SHIFT' + '?'     | Show the important keyboard shortcuts assigned for YouTube |
+
+So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
+
+![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+**Conclusion**
+
+Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
+
+As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+YouTube, as one of the most popular free streaming video portals, the majority of people use it, probably several times a day. However, how many of you know that there are more than 20 shortcuts that help you use the website comparatively more conveniently?
+
+With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
+
+## Amazing YouTube Keyboard Shortcuts You May Not Know
+
+To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+### Category 1: YouTube Playback Hotkeys
+
+While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
+
+| Keyboard Shortcut | Function                               |
+| ----------------- | -------------------------------------- |
+| 'K'               | Play and Pause (Works as a toggle key) |
+| 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+### Category 2: Scrolling YouTube Videos Back and Forth
+
+This section talks about the shortcut keys to skim the video forward and backward during playback:
+
+| Keyboard Shortcut                    | Function                                                                                                                                                                     |
+| ------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| 'L'                                  | Skip the video 10 seconds forward                                                                                                                                            |
+| 'J'                                  | Skip the video 10 seconds backward                                                                                                                                           |
+| '→' (Right Arrow)                    | Skip the video 5 seconds forward                                                                                                                                             |
+| '←' (Left Arrow)                     | Skip the video 5 seconds backward                                                                                                                                            |
+| 'SHIFT' + 'N'                        | Skip to the next video in the playlist or to the next suggested video                                                                                                        |
+| 'K' or 'Spacebar'; then '.' (Period) | Pressing 'K' or 'Spacebar' pauses the video; pressing the '.' (Period) key repeatedly moves the video forward one frame at a time (Period key on the Numpad isn't supported) |
+| 'K' or 'Spacebar'; then ',' (Comma)  | Pressing 'K' or 'Spacebar' pauses the video; pressing the ',' (Comma) key repeatedly moves the video backward one frame at a time (Period key on the Numpad isn't supported) |
+| '0' (Zero)                           | Takes the video to the beginning                                                                                                                                             |
+
+If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
+
+Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+### Category 3: Manage Playback Speed
+
+This category contains information on increasing or decreasing the playback speed of a YouTube video:
+
+| Keyboard Shortcut      | Function                |
+| ---------------------- | ----------------------- |
+| 'SHIFT' + '.' (Period) | Increase playback speed |
+| 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+### Category 4: Managing the Captions
+
+This category talks about managing the video captions using the shortcut keys:
+
+| Keyboard Shortcut  | Function                                                                                                             |
+| ------------------ | -------------------------------------------------------------------------------------------------------------------- |
+| 'C'                | Enable or disable captions (Works as a toggle key)                                                                   |
+| 'O' (The letter O) | Increase or decrease the brightness level of the captions (Works as a toggle key)                                    |
+| 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
+| '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
+| '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+### Category 5: Managing the Audio Video
+
+This category shows the shortcut keys to manage audio for a YouTube video:
+
+| Keyboard Shortcut | Function              |
+| ----------------- | --------------------- |
+| 'M'               | Mute YouTube video    |
+| '↑'               | Increase volume by 5% |
+| '↓'               | Decrease volume by 5% |
+
+### Category 6: Switching Between Screen Modes
+
+The shortcut keys given in this table enable you to switch between different screen modes:
+
+| Keyboard Shortcut | Function                                                                      |
+| ----------------- | ----------------------------------------------------------------------------- |
+| 'F'               | Switch between the full-screen and normal mode (Works as a toggle key)        |
+| 'T'               | Switch between the theater and normal mode (Works as a toggle key)            |
+| 'I'               | Switch between the independent player and normal mode (Works as a toggle key) |
+
+Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
+
+If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+### Category 7: Viewing 360o/VR Videos
+
+In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
+
+| Keyboard Shortcut           | Function                                              |
+| --------------------------- | ----------------------------------------------------- |
+| 'W', 'A', 'S', 'D'          | Up, left, down, and right camera panning respectively |
+| '+' (Plus Key on Numpad)    | Zoom in                                               |
+| '-' (Minus Key on Numpad)   | Zoom out                                              |
+| '-' (Minus Key on Keyboard) | Decrease font size                                    |
+| '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+## Bonus: How to Get the YouTube Shortcut List with One-Click
+
+In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
+
+| Keyboard Shortcut | Function                                                   |
+| ----------------- | ---------------------------------------------------------- |
+| 'SHIFT' + '?'     | Show the important keyboard shortcuts assigned for YouTube |
+
+So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
+
+![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+**Conclusion**
+
+Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
+
+As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+## The Ultimate Resource for Creating Professional, Impactful Videodumps
+
+# Best Free YouTube Intro Makers
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+An intro video goes a long way towards building your brand and showing viewers that you’re serious about YouTube. Here’s where you can make or download intros, plus some tips on making intros that support the growth of your channel.
+
+1. [4 Free Intro Makers](#makers)
+2. [5 Tips for Making Great Intros](#tips)
+
+## Free Intro Makers
+
+Here’s a list of 4 places you can create or download FREE YouTube intros with no watermark.
+
+#### [Blender](https://www.blender.org/)
+
+Blender is a free, open-source, ‘3D creation suite’. It’s great for modeling and animation, and you can even use it to make your YouTube intros.
+
+This is an extremely powerful program. You can create cartoons and video game prototypes in Blender. This does mean that it’s probably not realistic for someone with no experience in animation to jump in and make a quick intro for their YouTube channel. However, if you want to learn Blender, all of the information you need is easily accessible through the tutorials on their site.
+
+What’s a bit more realistic than learning an entire animation suite to make an intro is to download a premade template and just customize it in Blender. You can find YouTube intro templates that are editable in Blender on YouTube and [Velosofy](#velosofy).
+
+#### [Movietools](http://www.movietools.info/)
+
+This is a great site where you can download all kinds of free resources including video loops and animated backgrounds you can use to build YouTube intros.
+
+You cannot download a complete Intro with your own text and/or logo from Movietools the way you can with Panzoid, but they can provide most of the resources you would need to build a sequence in Filmora or another editor.
+
+Downloads from Movietools come as WMV (Windows Media) or MP4 files.
+
+#### [Panzoid](https://panzoid.com/)
+
+ For a lot of creators, Panzoid is the default site they go to for YouTube intros, and that’s with good reason. Panzoid has an endless supply of intro templates (new ones are created weekly by members of their community) which you can edit right on the site.
+
+A lot of the intro templates on Panzoid include music, and almost all of them include 3D text.
+
+Click on a template you like and then click ‘open in clipmaker’.
+
+In the clipmaker, you’ll be able to edit the template however you like. The main change you’ll want to make will probably be to the text – you’ll want it to say your channel name. In the menu on the left side of the screen, you’ll see an icon that looks like a cube. Click on it to bring up a list of the objects in the sequence.
+
+The text will probably be under a heading such as ‘Group: All’, although there may be some variation on this depending on who built the template. Look for something that says ‘Group: Text’ in one of the dropdown menus and then look at where it says ‘Text: (the text from the template)’. There will probably be at least two fields like this for one word/line (they’re layers of the same thing). Make sure to edit them all to say the same thing or your intro will look odd.
+
+Click the icon that looks like an arrow pointing down to choose your quality (next to mode) and format before you export. The highest quality will make your clip slow to download, but that could be worth it since you’ll probably get a lot of use out of this clip and you only need to download it once.
+
+#### [Velosofy](https://www.velosofy.com/)
+
+Velosofy has a ton of great intro templates you can download for free. The only complication is that the downloads are project files for programs like Sony Vegas or After Effects, making it difficult to use them unless you have those programs.
+
+Luckily, one of the programs Velosofy has intro downloads for is [Blender](#blender), the free animation software discussed above. You can download YouTube intro templates from Velosofy to edit in Blender and end up with a great custom intro for free.
+
+## 5 Tips for Making a Great Intro
+
+Here are some tips for making an intro that supports the growth of your YouTube channel.
+
+#### 1\. Keep it Under 10 Seconds
+
+Someone who doesn’t know you, who is shopping around for the best video to watch on a particular topic, will not have the patience to sit through a long intro. In order to stop them from clicking away, you’ll need to keep your intro short. Ten seconds is the longest you can get away with, and that’s only if your intro is exciting and includes a lot of movement and music.
+
+Five seconds will be better than 10 seconds in most cases.
+
+#### 2\. Match Your Channel’s Branding
+
+Your intro should help to strengthen your personal brand by using the same kinds of colors and fonts found in your channel art and thumbnails.
+
+Beyond matching your visuals, your intro should support the general tone of your channel. If you tend to be upbeat in your videos, upbeat music and brighter colors are probably best. If you’re a tech channel, something sleek with a black background could be better.
+
+#### 3\. Use Music
+
+Viewers are likely to get distracted and click away during silent pauses. In order to keep their attention through your intro, you’ll need to include music, and maybe even a sound effect.
+
+#### 4\. Include Your Channel Name
+
+This might seem basic, but there are intros out there where the creator has overlooked this. One of the main purposes of your intro is to brand your video, so there’s nothing more important than including your channel name.
+
+#### 5\. Introduce Your Topic Before Your Intro
+
+Instead of putting your intro at the very beginning of your video, put a short clip ahead of it where you explain your topic. A viewer that is looking for you to get to the point quickly might click away if the first thing they see is the intro instead of information relevant to their search.
+
+ What's your YouTube intro like? Can you think of a way you'd like to change or improve it?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+An intro video goes a long way towards building your brand and showing viewers that you’re serious about YouTube. Here’s where you can make or download intros, plus some tips on making intros that support the growth of your channel.
+
+1. [4 Free Intro Makers](#makers)
+2. [5 Tips for Making Great Intros](#tips)
+
+## Free Intro Makers
+
+Here’s a list of 4 places you can create or download FREE YouTube intros with no watermark.
+
+#### [Blender](https://www.blender.org/)
+
+Blender is a free, open-source, ‘3D creation suite’. It’s great for modeling and animation, and you can even use it to make your YouTube intros.
+
+This is an extremely powerful program. You can create cartoons and video game prototypes in Blender. This does mean that it’s probably not realistic for someone with no experience in animation to jump in and make a quick intro for their YouTube channel. However, if you want to learn Blender, all of the information you need is easily accessible through the tutorials on their site.
+
+What’s a bit more realistic than learning an entire animation suite to make an intro is to download a premade template and just customize it in Blender. You can find YouTube intro templates that are editable in Blender on YouTube and [Velosofy](#velosofy).
+
+#### [Movietools](http://www.movietools.info/)
+
+This is a great site where you can download all kinds of free resources including video loops and animated backgrounds you can use to build YouTube intros.
+
+You cannot download a complete Intro with your own text and/or logo from Movietools the way you can with Panzoid, but they can provide most of the resources you would need to build a sequence in Filmora or another editor.
+
+Downloads from Movietools come as WMV (Windows Media) or MP4 files.
+
+#### [Panzoid](https://panzoid.com/)
+
+ For a lot of creators, Panzoid is the default site they go to for YouTube intros, and that’s with good reason. Panzoid has an endless supply of intro templates (new ones are created weekly by members of their community) which you can edit right on the site.
+
+A lot of the intro templates on Panzoid include music, and almost all of them include 3D text.
+
+Click on a template you like and then click ‘open in clipmaker’.
+
+In the clipmaker, you’ll be able to edit the template however you like. The main change you’ll want to make will probably be to the text – you’ll want it to say your channel name. In the menu on the left side of the screen, you’ll see an icon that looks like a cube. Click on it to bring up a list of the objects in the sequence.
+
+The text will probably be under a heading such as ‘Group: All’, although there may be some variation on this depending on who built the template. Look for something that says ‘Group: Text’ in one of the dropdown menus and then look at where it says ‘Text: (the text from the template)’. There will probably be at least two fields like this for one word/line (they’re layers of the same thing). Make sure to edit them all to say the same thing or your intro will look odd.
+
+Click the icon that looks like an arrow pointing down to choose your quality (next to mode) and format before you export. The highest quality will make your clip slow to download, but that could be worth it since you’ll probably get a lot of use out of this clip and you only need to download it once.
+
+#### [Velosofy](https://www.velosofy.com/)
+
+Velosofy has a ton of great intro templates you can download for free. The only complication is that the downloads are project files for programs like Sony Vegas or After Effects, making it difficult to use them unless you have those programs.
+
+Luckily, one of the programs Velosofy has intro downloads for is [Blender](#blender), the free animation software discussed above. You can download YouTube intro templates from Velosofy to edit in Blender and end up with a great custom intro for free.
+
+## 5 Tips for Making a Great Intro
+
+Here are some tips for making an intro that supports the growth of your YouTube channel.
+
+#### 1\. Keep it Under 10 Seconds
+
+Someone who doesn’t know you, who is shopping around for the best video to watch on a particular topic, will not have the patience to sit through a long intro. In order to stop them from clicking away, you’ll need to keep your intro short. Ten seconds is the longest you can get away with, and that’s only if your intro is exciting and includes a lot of movement and music.
+
+Five seconds will be better than 10 seconds in most cases.
+
+#### 2\. Match Your Channel’s Branding
+
+Your intro should help to strengthen your personal brand by using the same kinds of colors and fonts found in your channel art and thumbnails.
+
+Beyond matching your visuals, your intro should support the general tone of your channel. If you tend to be upbeat in your videos, upbeat music and brighter colors are probably best. If you’re a tech channel, something sleek with a black background could be better.
+
+#### 3\. Use Music
+
+Viewers are likely to get distracted and click away during silent pauses. In order to keep their attention through your intro, you’ll need to include music, and maybe even a sound effect.
+
+#### 4\. Include Your Channel Name
+
+This might seem basic, but there are intros out there where the creator has overlooked this. One of the main purposes of your intro is to brand your video, so there’s nothing more important than including your channel name.
+
+#### 5\. Introduce Your Topic Before Your Intro
+
+Instead of putting your intro at the very beginning of your video, put a short clip ahead of it where you explain your topic. A viewer that is looking for you to get to the point quickly might click away if the first thing they see is the intro instead of information relevant to their search.
+
+ What's your YouTube intro like? Can you think of a way you'd like to change or improve it?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+An intro video goes a long way towards building your brand and showing viewers that you’re serious about YouTube. Here’s where you can make or download intros, plus some tips on making intros that support the growth of your channel.
+
+1. [4 Free Intro Makers](#makers)
+2. [5 Tips for Making Great Intros](#tips)
+
+## Free Intro Makers
+
+Here’s a list of 4 places you can create or download FREE YouTube intros with no watermark.
+
+#### [Blender](https://www.blender.org/)
+
+Blender is a free, open-source, ‘3D creation suite’. It’s great for modeling and animation, and you can even use it to make your YouTube intros.
+
+This is an extremely powerful program. You can create cartoons and video game prototypes in Blender. This does mean that it’s probably not realistic for someone with no experience in animation to jump in and make a quick intro for their YouTube channel. However, if you want to learn Blender, all of the information you need is easily accessible through the tutorials on their site.
+
+What’s a bit more realistic than learning an entire animation suite to make an intro is to download a premade template and just customize it in Blender. You can find YouTube intro templates that are editable in Blender on YouTube and [Velosofy](#velosofy).
+
+#### [Movietools](http://www.movietools.info/)
+
+This is a great site where you can download all kinds of free resources including video loops and animated backgrounds you can use to build YouTube intros.
+
+You cannot download a complete Intro with your own text and/or logo from Movietools the way you can with Panzoid, but they can provide most of the resources you would need to build a sequence in Filmora or another editor.
+
+Downloads from Movietools come as WMV (Windows Media) or MP4 files.
+
+#### [Panzoid](https://panzoid.com/)
+
+ For a lot of creators, Panzoid is the default site they go to for YouTube intros, and that’s with good reason. Panzoid has an endless supply of intro templates (new ones are created weekly by members of their community) which you can edit right on the site.
+
+A lot of the intro templates on Panzoid include music, and almost all of them include 3D text.
+
+Click on a template you like and then click ‘open in clipmaker’.
+
+In the clipmaker, you’ll be able to edit the template however you like. The main change you’ll want to make will probably be to the text – you’ll want it to say your channel name. In the menu on the left side of the screen, you’ll see an icon that looks like a cube. Click on it to bring up a list of the objects in the sequence.
+
+The text will probably be under a heading such as ‘Group: All’, although there may be some variation on this depending on who built the template. Look for something that says ‘Group: Text’ in one of the dropdown menus and then look at where it says ‘Text: (the text from the template)’. There will probably be at least two fields like this for one word/line (they’re layers of the same thing). Make sure to edit them all to say the same thing or your intro will look odd.
+
+Click the icon that looks like an arrow pointing down to choose your quality (next to mode) and format before you export. The highest quality will make your clip slow to download, but that could be worth it since you’ll probably get a lot of use out of this clip and you only need to download it once.
+
+#### [Velosofy](https://www.velosofy.com/)
+
+Velosofy has a ton of great intro templates you can download for free. The only complication is that the downloads are project files for programs like Sony Vegas or After Effects, making it difficult to use them unless you have those programs.
+
+Luckily, one of the programs Velosofy has intro downloads for is [Blender](#blender), the free animation software discussed above. You can download YouTube intro templates from Velosofy to edit in Blender and end up with a great custom intro for free.
+
+## 5 Tips for Making a Great Intro
+
+Here are some tips for making an intro that supports the growth of your YouTube channel.
+
+#### 1\. Keep it Under 10 Seconds
+
+Someone who doesn’t know you, who is shopping around for the best video to watch on a particular topic, will not have the patience to sit through a long intro. In order to stop them from clicking away, you’ll need to keep your intro short. Ten seconds is the longest you can get away with, and that’s only if your intro is exciting and includes a lot of movement and music.
+
+Five seconds will be better than 10 seconds in most cases.
+
+#### 2\. Match Your Channel’s Branding
+
+Your intro should help to strengthen your personal brand by using the same kinds of colors and fonts found in your channel art and thumbnails.
+
+Beyond matching your visuals, your intro should support the general tone of your channel. If you tend to be upbeat in your videos, upbeat music and brighter colors are probably best. If you’re a tech channel, something sleek with a black background could be better.
+
+#### 3\. Use Music
+
+Viewers are likely to get distracted and click away during silent pauses. In order to keep their attention through your intro, you’ll need to include music, and maybe even a sound effect.
+
+#### 4\. Include Your Channel Name
+
+This might seem basic, but there are intros out there where the creator has overlooked this. One of the main purposes of your intro is to brand your video, so there’s nothing more important than including your channel name.
+
+#### 5\. Introduce Your Topic Before Your Intro
+
+Instead of putting your intro at the very beginning of your video, put a short clip ahead of it where you explain your topic. A viewer that is looking for you to get to the point quickly might click away if the first thing they see is the intro instead of information relevant to their search.
+
+ What's your YouTube intro like? Can you think of a way you'd like to change or improve it?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+An intro video goes a long way towards building your brand and showing viewers that you’re serious about YouTube. Here’s where you can make or download intros, plus some tips on making intros that support the growth of your channel.
+
+1. [4 Free Intro Makers](#makers)
+2. [5 Tips for Making Great Intros](#tips)
+
+## Free Intro Makers
+
+Here’s a list of 4 places you can create or download FREE YouTube intros with no watermark.
+
+#### [Blender](https://www.blender.org/)
+
+Blender is a free, open-source, ‘3D creation suite’. It’s great for modeling and animation, and you can even use it to make your YouTube intros.
+
+This is an extremely powerful program. You can create cartoons and video game prototypes in Blender. This does mean that it’s probably not realistic for someone with no experience in animation to jump in and make a quick intro for their YouTube channel. However, if you want to learn Blender, all of the information you need is easily accessible through the tutorials on their site.
+
+What’s a bit more realistic than learning an entire animation suite to make an intro is to download a premade template and just customize it in Blender. You can find YouTube intro templates that are editable in Blender on YouTube and [Velosofy](#velosofy).
+
+#### [Movietools](http://www.movietools.info/)
+
+This is a great site where you can download all kinds of free resources including video loops and animated backgrounds you can use to build YouTube intros.
+
+You cannot download a complete Intro with your own text and/or logo from Movietools the way you can with Panzoid, but they can provide most of the resources you would need to build a sequence in Filmora or another editor.
+
+Downloads from Movietools come as WMV (Windows Media) or MP4 files.
+
+#### [Panzoid](https://panzoid.com/)
+
+ For a lot of creators, Panzoid is the default site they go to for YouTube intros, and that’s with good reason. Panzoid has an endless supply of intro templates (new ones are created weekly by members of their community) which you can edit right on the site.
+
+A lot of the intro templates on Panzoid include music, and almost all of them include 3D text.
+
+Click on a template you like and then click ‘open in clipmaker’.
+
+In the clipmaker, you’ll be able to edit the template however you like. The main change you’ll want to make will probably be to the text – you’ll want it to say your channel name. In the menu on the left side of the screen, you’ll see an icon that looks like a cube. Click on it to bring up a list of the objects in the sequence.
+
+The text will probably be under a heading such as ‘Group: All’, although there may be some variation on this depending on who built the template. Look for something that says ‘Group: Text’ in one of the dropdown menus and then look at where it says ‘Text: (the text from the template)’. There will probably be at least two fields like this for one word/line (they’re layers of the same thing). Make sure to edit them all to say the same thing or your intro will look odd.
+
+Click the icon that looks like an arrow pointing down to choose your quality (next to mode) and format before you export. The highest quality will make your clip slow to download, but that could be worth it since you’ll probably get a lot of use out of this clip and you only need to download it once.
+
+#### [Velosofy](https://www.velosofy.com/)
+
+Velosofy has a ton of great intro templates you can download for free. The only complication is that the downloads are project files for programs like Sony Vegas or After Effects, making it difficult to use them unless you have those programs.
+
+Luckily, one of the programs Velosofy has intro downloads for is [Blender](#blender), the free animation software discussed above. You can download YouTube intro templates from Velosofy to edit in Blender and end up with a great custom intro for free.
+
+## 5 Tips for Making a Great Intro
+
+Here are some tips for making an intro that supports the growth of your YouTube channel.
+
+#### 1\. Keep it Under 10 Seconds
+
+Someone who doesn’t know you, who is shopping around for the best video to watch on a particular topic, will not have the patience to sit through a long intro. In order to stop them from clicking away, you’ll need to keep your intro short. Ten seconds is the longest you can get away with, and that’s only if your intro is exciting and includes a lot of movement and music.
+
+Five seconds will be better than 10 seconds in most cases.
+
+#### 2\. Match Your Channel’s Branding
+
+Your intro should help to strengthen your personal brand by using the same kinds of colors and fonts found in your channel art and thumbnails.
+
+Beyond matching your visuals, your intro should support the general tone of your channel. If you tend to be upbeat in your videos, upbeat music and brighter colors are probably best. If you’re a tech channel, something sleek with a black background could be better.
+
+#### 3\. Use Music
+
+Viewers are likely to get distracted and click away during silent pauses. In order to keep their attention through your intro, you’ll need to include music, and maybe even a sound effect.
+
+#### 4\. Include Your Channel Name
+
+This might seem basic, but there are intros out there where the creator has overlooked this. One of the main purposes of your intro is to brand your video, so there’s nothing more important than including your channel name.
+
+#### 5\. Introduce Your Topic Before Your Intro
+
+Instead of putting your intro at the very beginning of your video, put a short clip ahead of it where you explain your topic. A viewer that is looking for you to get to the point quickly might click away if the first thing they see is the intro instead of information relevant to their search.
+
+ What's your YouTube intro like? Can you think of a way you'd like to change or improve it?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-amplify-impact-through-effective-video-marketing-on-youtubes-top-5-moves/"><u>[New] Amplify Impact Through Effective Video Marketing on YouTube's Top 5 Moves</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/sifting-commentary-on-youtube/"><u>Sifting Commentary on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unveiling-youtubes-earnings-for-1m-views/"><u>Unveiling YouTube's Earnings for 1M Views</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-list-of-engaging-history-content-on-youtube/"><u>The Ultimate List of Engaging History Content on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cutting-edge-content-sharing-your-guide-to-youtubeplustiktok-linkup/"><u>Cutting-Edge Content Sharing  Your Guide to YouTube+TikTok Linkup</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-applications-for-crafting-dynamic-video-entrances/"><u>2024 Approved  Best Applications for Crafting Dynamic Video Entrances</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-creative-content-concepts-for-vlogs/"><u>In 2024, Creative Content Concepts for Vlogs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-5-effective-tricks-for-youtube-subscriber-surges/"><u>In 2024, 5 Effective Tricks for YouTube Subscriber Surges</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/iphoneipad-cutting-edge-free-video-editing-tools-guide/"><u>IPhone/iPad  Cutting Edge Free Video Editing Tools Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/insta-popularity-on-youtube-jake-pauls-story-unfolded/"><u>Insta-Popularity on Youtube  Jake Paul’s Story Unfolded</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-becoming-a-director-top-film-tips-and-tricks-on-youtube/"><u>[Updated] Becoming a Director  Top Film Tips & Tricks on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/social-media-trends-visualized/"><u>Social Media Trends Visualized</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cutting-edge-tech-meets-creativity-top-12-camera-picks-for-vloggers-for-2024/"><u>Cutting-Edge Tech Meets Creativity  Top 12 Camera Picks for Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-device-friendly-tutorial-inserting-your-shorts-into-youtube/"><u>In 2024, Device-Friendly Tutorial  Inserting Your Shorts Into YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10-tips-for-shooting-profesional-youtube-videos/"><u>2024 Approved  10 Tips For Shooting Profesional YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/end-credits-designed-for-you-free-top-6-suggestions/"><u>End Credits Designed for You  Free Top 6 Suggestions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlock-the-potential-of-your-video-platform-growth/"><u>Unlock the Potential of Your Video Platform Growth</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-creating-automated-youtube-subscribe-links/"><u>[New] Creating Automated YouTube Subscribe Links</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/discovering-the-secrets-to-targeted-youtubes-likes-and-views-for-2024/"><u>Discovering the Secrets to Targeted YouTubes Likes and Views for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/triumph-over-ten-common-vlogging-worries/"><u>Triumph Over Ten Common Vlogging Worries</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-stepwise-approach-to-unlinking-and-removing-youtube-content/"><u>2024 Approved  A Stepwise Approach to Unlinking and Removing YouTube Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-seo-the-path-to-more-audience-engagement/"><u>YouTube SEO  The Path to More Audience Engagement</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boosting-income-through-effective-video-marketing/"><u>[Updated] Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-youtubes-potential-essential-tactics-and-strategies/"><u>Unlocking YouTube's Potential  Essential Tactics and Strategies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/critical-selection-the-best-10-video-cards-for-seamless-playback/"><u>Critical Selection  The Best 10 Video Cards for Seamless Playback</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-samsung-galaxy-m54-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Samsung Galaxy M54 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-innovating-with-jujutsu-kaisen-characters-on-tiktok/"><u>In 2024, Innovating with Jujutsu Kaisen Characters on TikTok</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-from-cloud-to-disk-the-comprehensive-guide-to-extracting-songs-from-spotify-playlists/"><u>2024 Approved From Cloud to Disk The Comprehensive Guide to Extracting Songs From Spotify Playlists</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-critical-steps-in-logging-live-youtube-videos/"><u>2024 Approved  Critical Steps in Logging Live YouTube Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-screenscape-innovations-an-unbiased-look-at-apeaksoft-2023-edition/"><u>[Updated] In 2024, Screenscape Innovations  An Unbiased Look at Apeaksoft, 2023 Edition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-the-power-of-igtv-from-novice-to-pro/"><u>Unlocking the Power of IGTV  From Novice to Pro</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-explore-these-viral-tiktok-challenges-now-for-2024/"><u>[Updated] Explore These Viral TikTok Challenges Now for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-streamline-watching-facebook-videos-on-your-apple-tv-device/"><u>[New] Streamline  Watching Facebook Videos on Your Apple TV Device</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-pova-6-pro-5g-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Pova 6 Pro 5G</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-realme-c51-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-a-filmmakers-must-visit-list-free-visual-effect-and-editing-websites-reviewed/"><u>[New] A Filmmaker's Must-Visit List  Free Visual Effect & Editing Websites Reviewed</u></a></li>
+</ul></div>
+
