@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Easing Into Public Speaking  10 Common Video Blogger Fears\""
-date: 2024-06-26T00:20:44.353Z
-updated: 2024-06-27T00:20:44.353Z
+date: 2024-07-03T23:43:42.164Z
+updated: 2024-07-04T23:43:42.164Z
 tags:
   - ai video
   - ai youtube
@@ -16,7 +16,8 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
 
 ## Easing Into Public Speaking: 10 Common Video Blogger Fears
 
-# 10 Common Vlogging Fears and How To Beat Them ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# 10 Common Vlogging Fears and How To Beat Them
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 
@@ -368,7 +369,8 @@ Follow @Richard Bennett
 
 ## How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views
 
-# How to Optimize YouTube Tags/Title/Description for More Views ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+# How to Optimize YouTube Tags/Title/Description for More Views
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
 

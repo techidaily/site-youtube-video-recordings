@@ -1,7 +1,7 @@
 ---
 title: "\"Love in Full View  Discovering Youtube & Vimeo's Top 7 Wedding Movies\""
-date: 2024-05-25T12:19:52.014Z
-updated: 2024-05-26T12:19:52.014Z
+date: 2024-07-03T23:43:43.352Z
+updated: 2024-07-04T23:43:43.352Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Love in Full View: Discovering Youtube & Vimeo's Top 7 Wedding Movies\""
 excerpt: "\"This Article Describes Love in Full View: Discovering Youtube & Vimeo's Top 7 Wedding Movies\""
 keywords: "Wedding Love Stories,Top Weddings Videos,Romantic Marriage Films,Youtubed Weddings,Vimeoweddings Selection,Ultimate Wedding Tapes,Best Wedding Cinematography"
-thumbnail: https://www.lifewire.com/thmb/P3hB6tFikUScsduyvJradG34nT0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/5332755892_99f55416a7_b-kenny-louie-5804eaff5f9b5805c2b40553.jpg
+thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e824658f017eeb7cc4b43fd88.jpg
 ---
 
 ## Love in Full View: Discovering Youtube & Vimeo's Top 7 Wedding Movies

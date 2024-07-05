@@ -1,7 +1,7 @@
 ---
 title: "\"Eternal Void  A Complete Ban on YouTube Short Video Feature\""
-date: 2024-05-25T11:50:47.163Z
-updated: 2024-05-26T11:50:47.163Z
+date: 2024-07-03T23:43:57.221Z
+updated: 2024-07-04T23:43:57.221Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Eternal Void: A Complete Ban on YouTube Short Video Feature\""
 excerpt: "\"This Article Describes Eternal Void: A Complete Ban on YouTube Short Video Feature\""
 keywords: "\"YouTube Short Ban,Video Feature Prohibition,Eternal Void Policy,Short Videos Blackout,No-Shorts Platform,YouTube Restrictions,Absolute Shorting Halt\""
-thumbnail: https://www.lifewire.com/thmb/XA451cx1FYvpcmr9v67cHXy-zDg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/PortableCarHeater_534759-b31dbf8ec1a2491ea8ee248280de9f55.png
+thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d83c11a51da5e1af69c65adca.png
 ---
 
 ## Eternal Void: A Complete Ban on YouTube Short Video Feature

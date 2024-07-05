@@ -1,7 +1,7 @@
 ---
 title: "\"Copycat Chronicles  The Science of Satire for 2024\""
-date: 2024-05-25T11:31:57.879Z
-updated: 2024-05-26T11:31:57.879Z
+date: 2024-07-03T23:44:00.271Z
+updated: 2024-07-04T23:44:00.271Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Copycat Chronicles: The Science of Satire for 2024\""
 excerpt: "\"This Article Describes Copycat Chronicles: The Science of Satire for 2024\""
 keywords: "Satire Insights,Copycat Phenomenon,Humor & Imitation,Science Of Satirical,Parody Analysis,Mimicry Study,Funniness Research,Satire Inspection,Copycat Essence,Humor Reflection,Science of Scoffs,Parody Examined,Mimicry Discourse,Laughter Study"
-thumbnail: https://www.lifewire.com/thmb/w_dEKfQJMn0nm64gUL--TYv_DkU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/james-yarema-ZYVrM9caRpU-unsplash-ab032eae5afc45d7bdbc2b4e11f00a47.jpg
+thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98f5f309c7652fc768db4746d.jpg
 ---
 
 ## Copycat Chronicles: The Science of Satire

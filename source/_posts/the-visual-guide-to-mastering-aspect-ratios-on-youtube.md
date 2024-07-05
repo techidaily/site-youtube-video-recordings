@@ -1,7 +1,7 @@
 ---
 title: "The Visual Guide to Mastering Aspect Ratios on YOUTUBE"
-date: 2024-05-25T12:59:28.729Z
-updated: 2024-05-26T12:59:28.729Z
+date: 2024-07-03T23:43:54.683Z
+updated: 2024-07-04T23:43:54.683Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes The Visual Guide to Mastering Aspect Ratios on YOUTUBE"
 excerpt: "This Article Describes The Visual Guide to Mastering Aspect Ratios on YOUTUBE"
 keywords: "\"YouTube Ratio Guide,Aspect Ratios in Video,Mastering Youtube Dimensions,Correct Youtube Sizes,Optimal Video Ratios,Learn Youtube Aspects,YouTube Width-Height Balance\""
-thumbnail: https://www.lifewire.com/thmb/Lt7EML2RrB2kJWs-oE5VbZxnlNo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_the-best-kids-movies-on-disney-plus-june-2023-5112564-37245acf2e6840ba8319f0e13985e04a.jpg
+thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec05c10e1ad65882453b11db44.jpg
 ---
 
 ## The Visual Guide to Mastering Aspect Ratios on YOUTUBE

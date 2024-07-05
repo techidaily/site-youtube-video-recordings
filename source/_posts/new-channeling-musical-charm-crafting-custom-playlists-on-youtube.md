@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Channeling Musical Charm  Crafting Custom Playlists on Youtube\""
-date: 2024-05-25T12:31:39.436Z
-updated: 2024-05-26T12:31:39.436Z
+date: 2024-07-03T23:43:59.520Z
+updated: 2024-07-04T23:43:59.520Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Channeling Musical Charm: Crafting Custom Playlists on Youtube\""
 excerpt: "\"This Article Describes [New] Channeling Musical Charm: Crafting Custom Playlists on Youtube\""
 keywords: "Music Playlist Creation,YouTube Personalization,Curated Song Lists,Indie Channeling Tips,Vintage Music Selection,DIY Custom Audio,Youtube Artist Showcase"
-thumbnail: https://www.lifewire.com/thmb/Mj0sGozDuM1JFhqS8K91E-CvQkU=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/Email-Messaging_GettyImages-1205703732_scyther5_CROPPED_OVERLAY-b9a0b2d02d3f43968ce10002fabd1172.jpg
+thumbnail: https://thmb.techidaily.com/ad227a8d5363831d078e6323942af2a72809395f7bf85c351306cae77a65bd05.jpg
 ---
 
 ## Channeling Musical Charm: Crafting Custom Playlists on Youtube

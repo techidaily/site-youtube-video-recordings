@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Handbook for Optimal YouTube Banners & Art Sizes"
-date: 2024-05-25T12:58:47.011Z
-updated: 2024-05-26T12:58:47.011Z
+date: 2024-07-03T23:43:53.329Z
+updated: 2024-07-04T23:43:53.329Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes The Ultimate Handbook for Optimal YouTube Banners & Art Sizes"
 excerpt: "This Article Describes The Ultimate Handbook for Optimal YouTube Banners & Art Sizes"
 keywords: "\"YouTube Banner Guide,Optimal Ad Designs,YouTube Artwork Tips,High-Res Video Banners,Efficient Art Sizing,Streaming Platform Graphics,Visual Banner Best Practices\""
-thumbnail: https://www.lifewire.com/thmb/eYcaBBIZ1vACwviFbibN_RqgtSY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/man-measuring-tv-size-102761115-getty-5bf8513246e0fb008321de5f.jpg
+thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed98794f1ba27d0b681ad3c785.jpg
 ---
 
 ## The Ultimate Handbook for Optimal YouTube Banners & Art Sizes
@@ -528,7 +528,7 @@ Bumper ads are tiny non-skippable 6-second ads that will play right before the v
 
 The following are the best YouTube ad creators that you can use to make your YouTube video ad;
 
-### [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### Filmora
 
 Best For: All Types of YouTube Video ads
 

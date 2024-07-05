@@ -1,7 +1,7 @@
 ---
 title: "\"Experience a Bundle of 9 Whole-Film Christmas Treasures for Free\""
-date: 2024-05-25T11:51:20.198Z
-updated: 2024-05-26T11:51:20.198Z
+date: 2024-07-03T23:43:50.055Z
+updated: 2024-07-04T23:43:50.055Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Experience a Bundle of 9 Whole-Film Christmas Treasures for Free\""
 excerpt: "\"This Article Describes Experience a Bundle of 9 Whole-Film Christmas Treasures for Free\""
 keywords: "\"Free Christmas Film Bundles,Christmas Movie Gift Box,Holiday Film Collection,Festive Film Set,Christmas Whole-Films,No Cost Film Bundle,Wholesale Christmas Movies\""
-thumbnail: https://www.lifewire.com/thmb/BFplsHvF2W-tN_GPJVyxOAwi8YM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/E-reader-57b936e05f9b58cdfd3e07e1.jpg
+thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e4304dfa4fcbf005c1298bed966.jpg
 ---
 
 ## Experience a Bundle of 9 Whole-Film Christmas Treasures for Free

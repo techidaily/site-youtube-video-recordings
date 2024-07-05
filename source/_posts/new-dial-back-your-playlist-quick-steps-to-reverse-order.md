@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Dial Back Your Playlist  Quick Steps to Reverse Order\""
-date: 2024-05-25T12:36:07.337Z
-updated: 2024-05-26T12:36:07.337Z
+date: 2024-07-03T23:43:54.969Z
+updated: 2024-07-04T23:43:54.969Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Dial Back Your Playlist: Quick Steps to Reverse Order\""
 excerpt: "\"This Article Describes [New] Dial Back Your Playlist: Quick Steps to Reverse Order\""
 keywords: "Playlist Control,Reverse List Order,Music Organization,Dial Down Volume,Audio Playback Swap,Quick List Switch,Backtrack Songs"
-thumbnail: https://www.lifewire.com/thmb/jPrdYdSLjslalhW7IaTG5T7eeCw=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1012916614-9c7175b024cf4ef2b9f4a523914c9304.jpg
+thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85a816656ff3b301d8b067e97.jpg
 ---
 
 ## Dial Back Your Playlist: Quick Steps to Reverse Order

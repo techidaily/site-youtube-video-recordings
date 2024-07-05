@@ -1,7 +1,7 @@
 ---
 title: "\"A Step-by-Step Guide  Share YouTube Vids with FB Friends\""
-date: 2024-05-25T11:17:13.675Z
-updated: 2024-05-26T11:17:13.675Z
+date: 2024-07-03T23:43:55.581Z
+updated: 2024-07-04T23:43:55.581Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes A Step-by-Step Guide: Share YouTube Vids with FB Friends\""
 excerpt: "\"This Article Describes A Step-by-Step Guide: Share YouTube Vids with FB Friends\""
 keywords: "\"YouTube Video Sharing,Facebook Video Posting,FB Vid Collaboration,Social Media Content,Share Videos Online,FB Share Mechanics,Cross-Platform Streaming\""
-thumbnail: https://www.lifewire.com/thmb/JY3L91vvZ0g1GXL_LTaLztJt5pY=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-172697480-58d0c4bb3df78c3c4f2df865.jpg
+thumbnail: https://thmb.techidaily.com/6b81d20b1d6e26d0457009bbfe739603019d02e6b0e9205be931fb19bdb3ed9f.jpg
 ---
 
 ## A Step-by-Step Guide: Share YouTube Vids with FB Friends
@@ -652,11 +652,11 @@ Here you can learn some tips when optimizing tags. You can use singular and plur
 * Step 1\. The first thing you need to do is to [sign in to your YouTube account](https://www.lifewire.com/youtube-account-signup-2655499).
 * Step 2\. Then click the Upload button that’s found on the top right corner of the window.
 
-![Find Upload option ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
+![Find Upload option](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
 
 * Step 3\. Then select the video that you want to upload. You will be asked to add a title, description, and tags.
 
-![Add title, description and tags ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
+![Add title, description and tags](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
 
 * Step 4\. After uploading, you can still edit the YouTube title, description, and tags.
 
@@ -818,11 +818,11 @@ Here you can learn some tips when optimizing tags. You can use singular and plur
 * Step 1\. The first thing you need to do is to [sign in to your YouTube account](https://www.lifewire.com/youtube-account-signup-2655499).
 * Step 2\. Then click the Upload button that’s found on the top right corner of the window.
 
-![Find Upload option ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
+![Find Upload option](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
 
 * Step 3\. Then select the video that you want to upload. You will be asked to add a title, description, and tags.
 
-![Add title, description and tags ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
+![Add title, description and tags](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
 
 * Step 4\. After uploading, you can still edit the YouTube title, description, and tags.
 
@@ -984,11 +984,11 @@ Here you can learn some tips when optimizing tags. You can use singular and plur
 * Step 1\. The first thing you need to do is to [sign in to your YouTube account](https://www.lifewire.com/youtube-account-signup-2655499).
 * Step 2\. Then click the Upload button that’s found on the top right corner of the window.
 
-![Find Upload option ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
+![Find Upload option](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
 
 * Step 3\. Then select the video that you want to upload. You will be asked to add a title, description, and tags.
 
-![Add title, description and tags ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
+![Add title, description and tags](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
 
 * Step 4\. After uploading, you can still edit the YouTube title, description, and tags.
 
@@ -1150,11 +1150,11 @@ Here you can learn some tips when optimizing tags. You can use singular and plur
 * Step 1\. The first thing you need to do is to [sign in to your YouTube account](https://www.lifewire.com/youtube-account-signup-2655499).
 * Step 2\. Then click the Upload button that’s found on the top right corner of the window.
 
-![Find Upload option ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
+![Find Upload option](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-1.jpg)
 
 * Step 3\. Then select the video that you want to upload. You will be asked to add a title, description, and tags.
 
-![Add title, description and tags ](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
+![Add title, description and tags](https://images.wondershare.com/filmora/article-images/edit-youtube-video-basic-description-2.jpg)
 
 * Step 4\. After uploading, you can still edit the YouTube title, description, and tags.
 

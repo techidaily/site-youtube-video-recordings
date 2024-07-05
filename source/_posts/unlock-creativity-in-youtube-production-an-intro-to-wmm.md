@@ -1,7 +1,7 @@
 ---
 title: "\"Unlock Creativity in YouTube Production  An Intro to WMM\""
-date: 2024-05-25T13:04:55.871Z
-updated: 2024-05-26T13:04:55.871Z
+date: 2024-07-03T23:43:47.448Z
+updated: 2024-07-04T23:43:47.448Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Unlock Creativity in YouTube Production: An Intro to WMM\""
 excerpt: "\"This Article Describes Unlock Creativity in YouTube Production: An Intro to WMM\""
 keywords: "Video Creativity Unlocked,YouTube Production Guide,Creative Production Tips,Introduction to WMM,Produce Creative Videos,Enhancing Video Ideas,WMM Basics for YouTubers"
-thumbnail: https://www.lifewire.com/thmb/4XBKBeuRAARBy1u3vDVh6ycEpCU=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/PolkAudioRC80i-594adc4a3df78cae81a59280.jpg
+thumbnail: https://thmb.techidaily.com/1b74b748e6b2e328a07a7b57a377bfde7d1cf69849bc4b8a8c3c123bbebb43d1.jpg
 ---
 
 ## Unlock Creativity in YouTube Production: An Intro to WMM
@@ -90,7 +90,7 @@ After importing the new audio file for your YouTube video, you can now adjust th
 
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
 
-![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
 
@@ -188,7 +188,7 @@ After importing the new audio file for your YouTube video, you can now adjust th
 
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
 
-![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
 
@@ -286,7 +286,7 @@ After importing the new audio file for your YouTube video, you can now adjust th
 
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
 
-![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
 
@@ -384,7 +384,7 @@ After importing the new audio file for your YouTube video, you can now adjust th
 
 Windows Movie Maker allows you to add different types of text freely. You will see 3 buttons that allow different types of text to video: stationary title, captions and rolling credits. Click on **Title**, you can add text before the video begins; select **Caption**, you will write text to the video frames; and click **Credits** will add end credits to the end of the video.
 
-![ free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
+![free video movie maker add text](https://images.wondershare.com/filmora/article-images/add-text-in-wmm.jpg)
 
 After selecting the type of text you want, you can enter your text and edit the text effects. You can change the text duration and apply text visual effects, and change the text outline size and more.
 
@@ -476,7 +476,7 @@ Step4 Click the upload thumbnail button on YouTube and **import** your resized i
 
 The second method you can use is the online YouTube thumbnail size converter. As it completely works in browsers, you do not need to worry about any app installation to access the feature. Furthermore, using online YouTube thumbnail size converters ensures you maintain your image resolution and prevents it from getting blurry or pixelated.
 
-There are various YouTube thumbnail resizers available online. Some of the most popular are [Fotor,](https://www.fotor.com/features/youtube-thumbnail-resizer/) [Super Image Converter,](https://superimageconverter.com/) [Pixelied,](https://pixelied.com/features/resize-image/youtube-thumbnail) [Super Image Converter](https://superimageconverter.com/youtube-thumbnail-resizer/), [Adobe Express](https://www.adobe.com/express/feature/image/resize), [Newisty,](https://newisty.com/youtube-thumbnail-compressor-resizer-converter)and [Promo](https://promo.com/tools/image-resizer/). Let us focus on the last online tool and the steps on how to use it.
+There are various YouTube thumbnail resizers available online. Some of the most popular are [Fotor,](https://www.fotor.com/features/youtube-thumbnail-resizer/) [Super Image Converter,](https://superimageconverter.com/) [Pixelied,](https://pixelied.com/features/resize-image/youtube-thumbnail) [Super Image Converter](https://superimageconverter.com/youtube-thumbnail-resizer/), [Adobe Express](https://www.adobe.com/express/feature/image/resize), [Newisty,](https://newisty.com/youtube-thumbnail-compressor-resizer-converter) and [Promo](https://promo.com/tools/image-resizer/). Let us focus on the last online tool and the steps on how to use it.
 
 Promo is a free online software you can use to convert an image to a YouTube thumbnail. It is one of the best YouTube Thumbnail tools as it uses simple operation steps and automatically resizes your image without losing its quality.
 

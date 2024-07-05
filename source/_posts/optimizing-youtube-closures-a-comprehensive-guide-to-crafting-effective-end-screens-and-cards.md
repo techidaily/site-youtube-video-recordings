@@ -1,7 +1,7 @@
 ---
 title: "\"Optimizing YouTube Closures  A Comprehensive Guide to Crafting Effective End Screens and Cards\""
-date: 2024-05-25T12:43:43.323Z
-updated: 2024-05-26T12:43:43.323Z
+date: 2024-07-03T23:43:40.972Z
+updated: 2024-07-04T23:43:40.972Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Optimizing YouTube Closures: A Comprehensive Guide to Crafting Effective End Screens and Cards\""
 excerpt: "\"This Article Describes Optimizing YouTube Closures: A Comprehensive Guide to Crafting Effective End Screens and Cards\""
 keywords: "Youtube End Screen Tips,Video Closure Strategies,Effective YT Card Creation,Designing YouTube Close Credits,Crafting YT Final Screens,Optimize Video Closures,Enhancing YT End Scenes"
-thumbnail: https://www.lifewire.com/thmb/wbIj8Nnh7GHWuHhw-jihfDWuFcY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/6-best-parental-control-apps-of-2019-featured-c5b50932ab9c4c0fbc0757665e46b6b2.jpg
+thumbnail: https://thmb.techidaily.com/54fd3e003b786647a6f1d7a89a0a9ff3e56e44f972b8ef6e36ebd7fc54a18cb3.jpg
 ---
 
 ## Optimizing YouTube Closures: A Comprehensive Guide to Crafting Effective End Screens and Cards

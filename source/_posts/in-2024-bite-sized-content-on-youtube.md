@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Bite-Sized Content on YouTube\""
-date: 2024-05-25T12:03:22.930Z
-updated: 2024-05-26T12:03:22.930Z
+date: 2024-07-03T23:43:40.767Z
+updated: 2024-07-04T23:43:40.767Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes In 2024, Bite-Sized Content on YouTube\""
 excerpt: "\"This Article Describes In 2024, Bite-Sized Content on YouTube\""
 keywords: "\"Mini Content Videos,Short Video Ideas,Micro Segments,Bite-Size Insights,Conciseness in Vid,Tiny Knowledge Pieces,Snippet Content Trends\""
-thumbnail: https://www.lifewire.com/thmb/C5EPWiQca8Oks3bueRxNCNpcepU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iPad-Air-Banner-62d01ec4b6d747cdab6429d2a2966697.jpg
+thumbnail: https://thmb.techidaily.com/029b0eb85077c27446243e8d1c815878a76764b760390b18a7b33382115f2d0b.jpg
 ---
 
 ## Bite-Sized Content on YouTube

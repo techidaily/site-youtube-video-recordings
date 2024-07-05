@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Earning as a Video Game Geek"
-date: 2024-05-25T13:20:55.496Z
-updated: 2024-05-26T13:20:55.496Z
+date: 2024-07-03T23:43:59.409Z
+updated: 2024-07-04T23:43:59.409Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Earning as a Video Game Geek"
 excerpt: "This Article Describes [Updated] Earning as a Video Game Geek"
 keywords: "\"Gaming Earnings Guide,Vlog Income Streams,Gamers Profit Tips,Gameplay Monetization,Esports Revenue,Streamer Money-Making,Loot Box Legalities\""
-thumbnail: https://www.lifewire.com/thmb/DdypE3IFlSjfet1uIEYdsYO39G8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/usingbingai-66291c204fc442b3a2c3bf504dc7af68.jpg
+thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567abcd354a24f074d4d0059be5.jpg
 ---
 
 ## Earning as a Video Game Geek

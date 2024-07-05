@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Create a Unique Identity  Personalize Your YouTube URL Today\""
-date: 2024-05-25T12:34:06.654Z
-updated: 2024-05-26T12:34:06.654Z
+date: 2024-07-03T23:43:55.110Z
+updated: 2024-07-04T23:43:55.110Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [New] Create a Unique Identity: Personalize Your YouTube URL Today\""
 excerpt: "\"This Article Describes [New] Create a Unique Identity: Personalize Your YouTube URL Today\""
 keywords: "YouTube URL Unique,Create ID Custom,Personalized URL,Unique Channel Name,Video URL Identifier,Signature URL,Individual Link"
-thumbnail: https://www.lifewire.com/thmb/rZ_WDtSFfWWNjImE3LwbXMfrvbQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/steve-jobs-ipad-56a532e13df78cf77286df05-71a7ce3d96c94af981da1f2251113248.jpg
+thumbnail: https://thmb.techidaily.com/bfce4d332deea76d243f8439048cdd48e83f3f7bffbf49e41ff2d8a5b05d2343.jpg
 ---
 
 ## Create a Unique Identity: Personalize Your YouTube URL Today

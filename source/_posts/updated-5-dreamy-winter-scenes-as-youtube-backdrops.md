@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 5 Dreamy Winter Scenes as YouTube Backdrops"
-date: 2024-05-25T13:07:48.038Z
-updated: 2024-05-26T13:07:48.038Z
+date: 2024-07-03T23:43:57.502Z
+updated: 2024-07-04T23:43:57.502Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] 5 Dreamy Winter Scenes as YouTube Backdrops"
 excerpt: "This Article Describes [Updated] 5 Dreamy Winter Scenes as YouTube Backdrops"
 keywords: "Winter Backdrop Ideas,Snowy Winter Views,Cozy Holiday Backgrounds,Frosty Landscape Scenes,Chilly Seasonal Videos,Winter Video Setups,Holiday Filming Locations"
-thumbnail: https://www.lifewire.com/thmb/1tuLZhPzIqmVA_xbgDkahkYD4yw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/CODA-d4dd2a9b6c3d4a008a05c9718c9bce1e.jpg
+thumbnail: https://thmb.techidaily.com/2ba5849aea90d4e5d7bbd18adc2a2c9c0f1eeac29f573eb68f13f17cdd7b780f.jpg
 ---
 
 ## 5 Dreamy Winter Scenes as YouTube Backdrops

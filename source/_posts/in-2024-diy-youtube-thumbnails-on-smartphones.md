@@ -1,7 +1,7 @@
 ---
 title: "In 2024, DIY YouTube Thumbnails on Smartphones"
-date: 2024-05-25T12:11:29.399Z
-updated: 2024-05-26T12:11:29.399Z
+date: 2024-07-03T23:43:43.844Z
+updated: 2024-07-04T23:43:43.844Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes In 2024, DIY YouTube Thumbnails on Smartphones"
 excerpt: "This Article Describes In 2024, DIY YouTube Thumbnails on Smartphones"
 keywords: "DIY Thumbnail Designs,Mobile Thumbnail Tips,YouTube Video Images,Small Screen Optimization,Effective Thumbnails,Smartphone Thumbnails,Thumbnail Creation Guide"
-thumbnail: https://www.lifewire.com/thmb/eh5Uc_gzKCVvn-08sTyP2bJc2uI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Cahlaflour1-31d410658870432f8ea92f42d16f89f8.jpeg
+thumbnail: https://thmb.techidaily.com/efe03172267db8e41dde950b174798601940a22588399da557fc77a3f3ce0d36.jpeg
 ---
 
 ## DIY YouTube Thumbnails on Smartphones

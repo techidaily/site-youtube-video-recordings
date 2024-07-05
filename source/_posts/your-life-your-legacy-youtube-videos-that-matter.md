@@ -1,7 +1,7 @@
 ---
 title: "\"Your Life, Your Legacy  YouTube Videos That Matter\""
-date: 2024-05-25T13:27:46.425Z
-updated: 2024-05-26T13:27:46.425Z
+date: 2024-07-03T23:43:39.148Z
+updated: 2024-07-04T23:43:39.148Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes Your Life, Your Legacy: YouTube Videos That Matter\""
 excerpt: "\"This Article Describes Your Life, Your Legacy: YouTube Videos That Matter\""
 keywords: "Video Impact,Life Lessons,Meaningful Content,Digital Legacies,Inspirational Videos,Significant Footage,Memorable Screencasts"
-thumbnail: https://www.lifewire.com/thmb/nqSALb7zNdT8nFxf209ImwIDLX0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2021-06-10at11.00.05AM-54419e7f430d4753971645b6e3580923.png
+thumbnail: https://thmb.techidaily.com/124b72dbf62c2315133422a27b4166aca8de938c7b4431d8ccd93ecf0eac5efe.png
 ---
 
 ## Your Life, Your Legacy: YouTube Videos That Matter
@@ -376,7 +376,7 @@ Follow @Richard Bennett
 * Open your YouTube account.
 * Click on My Channel
 
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -384,11 +384,11 @@ Follow @Richard Bennett
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 * Then you can edit the channel description here
 
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -407,7 +407,7 @@ Follow @Richard Bennett
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 
@@ -473,7 +473,7 @@ Follow @Richard Bennett
 * Open your YouTube account.
 * Click on My Channel
 
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -481,11 +481,11 @@ Follow @Richard Bennett
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 * Then you can edit the channel description here
 
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -504,7 +504,7 @@ Follow @Richard Bennett
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 
@@ -570,7 +570,7 @@ Follow @Richard Bennett
 * Open your YouTube account.
 * Click on My Channel
 
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -578,11 +578,11 @@ Follow @Richard Bennett
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 * Then you can edit the channel description here
 
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -601,7 +601,7 @@ Follow @Richard Bennett
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 
@@ -667,7 +667,7 @@ Follow @Richard Bennett
 * Open your YouTube account.
 * Click on My Channel
 
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -675,11 +675,11 @@ Follow @Richard Bennett
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 * Then you can edit the channel description here
 
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -698,7 +698,7 @@ Follow @Richard Bennett
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 
