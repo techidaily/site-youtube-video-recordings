@@ -1,7 +1,7 @@
 ---
 title: "[New] Eliminate YouTube Short Headaches with These Tips"
-date: 2024-05-25T12:40:14.746Z
-updated: 2024-05-26T12:40:14.746Z
+date: 2024-07-19T06:33:54.723Z
+updated: 2024-07-20T06:33:54.723Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [New] Eliminate YouTube Short Headaches with These Tips"
 excerpt: "This Article Describes [New] Eliminate YouTube Short Headaches with These Tips"
 keywords: "Eliminate YouTube Pain,Cut YouTube Crashes,Fix YouTube Issues,Easy YouTube Fixes,Avoid YouTube Glitches,Smooth YouTube Playback,Reduce YouTube Troubles"
-thumbnail: https://www.lifewire.com/thmb/U37IrzHogUIk4ftVH6ffmfucux0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/findmacaddressiphone-7b7e31c771634ec1a48194ba89054cd0.jpg
+thumbnail: https://thmb.techidaily.com/3bcdc30700e11e0dc89d352ba121db6f054908533edda16b2785562f97192408.jpg
 ---
 
 ## Eliminate YouTube Short Headaches with These Tips
@@ -30,6 +30,9 @@ YouTube streaming service has kept online users glued to their screens. You can 
 
 With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
 
 #### In this article
@@ -40,6 +43,9 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 03 [Here are the solutions for YouTube Common Issues](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is YouTube Shorts?
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
@@ -69,6 +75,149 @@ Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in th
 
 Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
+
+Step 4\. You’ll then land on the “YouTube Shorts” recording page.
+
+Step 5\. Set the length to 60 seconds and bellow. You have the option to slow down or speed up the recording by tapping the “Speed” icon on the right.
+
+Step 6\. Likewise, set a time for the camera to start recording automatically. Check below the “Speed” for the “Timer” for setting.
+
+Step 7\. Go ahead to edit your Short before posting. You can use “Filters” to apply visual effects.
+
+Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
+
+Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
+
+Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#shorts” to the title to make it promotional together with other Shorts videos.
+
+Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
+
+![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
+
+## Here are the solutions for YouTube Common Issues
+
+Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
+
+#### Solution 1\. Update YouTube app
+
+Remember apps are ever on the upgrade mode. You are likely to face some connection issues if you are operating on an older version. Here’s is how to update the YouTube app on your Android or iPhone device.
+
+##### On Android device
+
+1. Launch Google Play Store.
+2. Next, tap on the “three diagonal lines” at the top section of your screen.
+3. Then select the “My Apps & Games” option.
+4. Search for YouTube app and tap on the “Update” button.
+
+##### On iOS device
+
+1. Open the “App Store”
+2. Tap on your “Profile” icon.
+3. Then tap on the “Update” tab to fix the issue.
+
+##### On your computer
+
+1. Search for YouTube streaming app from the Google Play Store.
+2. Here, you’ll see an update button in case your app needs an update.
+3. Next, click on the “Update” button and wait for the update to complete.
+4. Launch YouTube once more and see whether the YouTube Shorts not showing issue is resolved.
+
+#### Solution 2\. Clear Cache
+
+A corrupt system may also cause issues with the normal operation of your application.
+
+1. Go to the “Settings” button on your phone.
+2. Then go to the “Apps” section and tap on “All Apps”
+3. Select the “YouTube” app from the list.
+4. Next, go to the “App Settings” and click on the “Storage” section.
+5. Tap on the “Clear cache and data” option.
+6. Finally, relaunch the YouTube app and check whether the issue is resolved.
+
+![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
+
+#### Solution 3\. Check if Shorts is available in your country
+
+Remember that “Shorts” isn’t available in all the countries yet. So, you can confirm whether it is already in your country. If not, you can bypass GEO restrictions by using free VPNs.
+
+1. First, download and install a VPN app.
+2. Next, select the USA or India server location to fake a GPS location.
+3. Then clear the cache from the YouTube app and click it open.
+4. You should now find the option to view and even upload Shorts from your device.
+
+#### Solution 4\. Ensure your video is set as YouTube Shorts
+
+Your video should be set as YouTube Shorts before posting.
+
+1. Identify the video that you wish to post.
+2. Add the “#shorts” in your title and description.
+3. See that each video is up to 60 seconds only.
+4. Post the video and see whether the issue isn’t reoccurring.
+
+## Conclusion
+
+It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+YouTube streaming service has kept online users glued to their screens. You can access and share videos and music from any part of the world. Users resolve to YouTube for personal and business affairs. You can use it for a tutorial, promotional event, or just share the fun with other users. Several avenues are available for users to post and share their minds worldwide. So far, it has rolled out a short-form video service, Shorts, which was initially inspired by TikTok.
+
+With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
+
+![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
+
+#### In this article
+
+01 [What is YouTube Shorts?](#part1)
+
+02 [Where can I find YouTube Shorts?](#part2)
+
+03 [Here are the solutions for YouTube Common Issues](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## What is YouTube Shorts?
+
+YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
+
+## Where can I find YouTube Shorts?
+
+Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
+
+#### Is YouTube Shorts available on Google Play or App Store?
+
+No. Unlike other streaming apps, you can’t find YouTube app on Google Play or App Store as it is not a standalone service. YouTube Shorts are found within the service’s main mobile app. It is, therefore, accessible from the YouTube app on your computer or phone at the bottom of the screen.
+
+#### How to access YouTube Shorts on YouTube app
+
+1. First, go to the YouTube app at the bottom of the screen to find the “Shorts” button.
+2. You’ll then see a selection of thumbnails that harbors popular Shorts.
+3. Choose any video then click on it to bring you into the vertical video player.
+4. You can then watch the clip and like or dislike the video as it plays. Just use the “thumbs up” or “down” icon. Likewise, you can share and subscribe to the “Short creator’s” channel.
+
+#### How to create YouTube Shorts
+
+Do you wish to create YouTube Shorts but you don’t know how to? Here’s the kicker!
+
+Step 1\. You first need to install the YouTube app on your device then sign in to your account.
+
+Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in the bottom center of the screen.
+
+Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
 
 Step 4\. You’ll then land on the “YouTube Shorts” recording page.
@@ -211,6 +360,9 @@ Step 7\. Go ahead to edit your Short before posting. You can use “Filters” t
 
 Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
 
 Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
@@ -280,6 +432,9 @@ Your video should be set as YouTube Shorts before posting.
 3. See that each video is up to 60 seconds only.
 4. Post the video and see whether the issue isn’t reoccurring.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
@@ -300,10 +455,16 @@ With Shorts, you can shoot videos, edit, and upload them for your audience. Howe
 
 03 [Here are the solutions for YouTube Common Issues](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is YouTube Shorts?
 
 YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Where can I find YouTube Shorts?
 
 Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
@@ -351,6 +512,9 @@ Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
 
 ![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Here are the solutions for YouTube Common Issues
 
 Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
@@ -390,6 +554,9 @@ A corrupt system may also cause issues with the normal operation of your applica
 5. Tap on the “Clear cache and data” option.
 6. Finally, relaunch the YouTube app and check whether the issue is resolved.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
 
 #### Solution 3\. Check if Shorts is available in your country
@@ -410,136 +577,9 @@ Your video should be set as YouTube Shorts before posting.
 3. See that each video is up to 60 seconds only.
 4. Post the video and see whether the issue isn’t reoccurring.
 
-## Conclusion
-
-It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-YouTube streaming service has kept online users glued to their screens. You can access and share videos and music from any part of the world. Users resolve to YouTube for personal and business affairs. You can use it for a tutorial, promotional event, or just share the fun with other users. Several avenues are available for users to post and share their minds worldwide. So far, it has rolled out a short-form video service, Shorts, which was initially inspired by TikTok.
-
-With Shorts, you can shoot videos, edit, and upload them for your audience. However, YouTube shorts not showing is a common issue for those wishing to share their videos in regular channel feed. You might be wondering how to solve such issues when pushed to the wall. Check out possible solutions in the next section. But first, let’s find out what really are YouTube Shorts.
-
-![youtube shorts](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-image.png)
-
-#### In this article
-
-01 [What is YouTube Shorts?](#part1)
-
-02 [Where can I find YouTube Shorts?](#part2)
-
-03 [Here are the solutions for YouTube Common Issues](#part3)
-
-## What is YouTube Shorts?
-
-YouTube Shorts is an app that you can use to shoot and share short-form videos using your mobile phone. Furthermore, you can record and edit your videos as well as music overlays and video segmenting abilities. Viewers will access the videos for 60 seconds or less but will remain on your channel, unlike Stories that disappear after a short while. It was first released in September 2020, having started in the US and India. It has so far encroached many countries and is currently accessed by 6 billion users in over 100 countries.
-
-## Where can I find YouTube Shorts?
-
-Many users are curious about how to make full use of YouTube Shorts. You can get the Short at the bottom of the YouTube app on either the homepage or on their channel page.
-
-#### Is YouTube Shorts available on Google Play or App Store?
-
-No. Unlike other streaming apps, you can’t find YouTube app on Google Play or App Store as it is not a standalone service. YouTube Shorts are found within the service’s main mobile app. It is, therefore, accessible from the YouTube app on your computer or phone at the bottom of the screen.
-
-#### How to access YouTube Shorts on YouTube app
-
-1. First, go to the YouTube app at the bottom of the screen to find the “Shorts” button.
-2. You’ll then see a selection of thumbnails that harbors popular Shorts.
-3. Choose any video then click on it to bring you into the vertical video player.
-4. You can then watch the clip and like or dislike the video as it plays. Just use the “thumbs up” or “down” icon. Likewise, you can share and subscribe to the “Short creator’s” channel.
-
-#### How to create YouTube Shorts
-
-Do you wish to create YouTube Shorts but you don’t know how to? Here’s the kicker!
-
-Step 1\. You first need to install the YouTube app on your device then sign in to your account.
-
-Step 2\. Now, tap on the “Create” button. The icon is a “+” symbol in the bottom center of the screen.
-
-Step 3\. A pop-up window will open. Tap the “Create a Short” tab. If prompted, allow YouTube to use your phone’s camera and microphone.
-
-![ create youtube shorts](https://images.wondershare.com/filmora/article-images/2021/create-a-short.png)
-
-Step 4\. You’ll then land on the “YouTube Shorts” recording page.
-
-Step 5\. Set the length to 60 seconds and bellow. You have the option to slow down or speed up the recording by tapping the “Speed” icon on the right.
-
-Step 6\. Likewise, set a time for the camera to start recording automatically. Check below the “Speed” for the “Timer” for setting.
-
-Step 7\. Go ahead to edit your Short before posting. You can use “Filters” to apply visual effects.
-
-Step 8\. When your camera is set, hit the “Record” button. You can stop the recording by tapping on the Record button, then resume as you wish.
-
-![ record youtube shorts](https://images.wondershare.com/filmora/article-images/2021/record.png)
-
-Step 9\. Tap on the “Checkmark” when you are done recording. You can add some music and text as well. Then tap on the “Next” button to finish the recording.
-
-Step 10\. Then add a title and adjust “Sharing” settings. Also, add the “#shorts” to the title to make it promotional together with other Shorts videos.
-
-Step 11\. Finally, tap the “Upload” tab to add your “Shorts” to YouTube.
-
-![ add your youtube shorts](https://images.wondershare.com/filmora/article-images/2021/upload-shorts.png)
-
-## Here are the solutions for YouTube Common Issues
-
-Since YouTube Shorts is still in the “Beta” mode, users are likely to experience issues while using it. Below are some fixes for YouTube shorts common issues like YouTube Shorts not showing up, unable to post video to YouTube Shorts and etc.
-
-#### Solution 1\. Update YouTube app
-
-Remember apps are ever on the upgrade mode. You are likely to face some connection issues if you are operating on an older version. Here’s is how to update the YouTube app on your Android or iPhone device.
-
-##### On Android device
-
-1. Launch Google Play Store.
-2. Next, tap on the “three diagonal lines” at the top section of your screen.
-3. Then select the “My Apps & Games” option.
-4. Search for YouTube app and tap on the “Update” button.
-
-##### On iOS device
-
-1. Open the “App Store”
-2. Tap on your “Profile” icon.
-3. Then tap on the “Update” tab to fix the issue.
-
-##### On your computer
-
-1. Search for YouTube streaming app from the Google Play Store.
-2. Here, you’ll see an update button in case your app needs an update.
-3. Next, click on the “Update” button and wait for the update to complete.
-4. Launch YouTube once more and see whether the YouTube Shorts not showing issue is resolved.
-
-#### Solution 2\. Clear Cache
-
-A corrupt system may also cause issues with the normal operation of your application.
-
-1. Go to the “Settings” button on your phone.
-2. Then go to the “Apps” section and tap on “All Apps”
-3. Select the “YouTube” app from the list.
-4. Next, go to the “App Settings” and click on the “Storage” section.
-5. Tap on the “Clear cache and data” option.
-6. Finally, relaunch the YouTube app and check whether the issue is resolved.
-
-![clear YouTube cache to solve commom issues](https://images.wondershare.com/filmora/article-images/2021/clear-cache.png)
-
-#### Solution 3\. Check if Shorts is available in your country
-
-Remember that “Shorts” isn’t available in all the countries yet. So, you can confirm whether it is already in your country. If not, you can bypass GEO restrictions by using free VPNs.
-
-1. First, download and install a VPN app.
-2. Next, select the USA or India server location to fake a GPS location.
-3. Then clear the cache from the YouTube app and click it open.
-4. You should now find the option to view and even upload Shorts from your device.
-
-#### Solution 4\. Ensure your video is set as YouTube Shorts
-
-Your video should be set as YouTube Shorts before posting.
-
-1. Identify the video that you wish to post.
-2. Add the “#shorts” in your title and description.
-3. See that each video is up to 60 seconds only.
-4. Post the video and see whether the issue isn’t reoccurring.
-
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 It’s a nice feeling to learn how to upload YouTube Shorts and share the fun with others worldwide. However, you may experience YouTube Shorts not showing due to restrictions in your country or other issues. We have tackled adequate solutions to solve such scenarios and make your Shorts go online. Nonetheless, check out the steps to access and create YouTube Shorts in just a few steps.
@@ -583,6 +623,213 @@ _Lilly’s Creator Summit adventures._
 
 The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
+
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+
+Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
+
+_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
+
+There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+## 1\. A map of Dumbo
+
+The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
+
+_Tess takes you to some of her favorite places in Dumbo._
+
+Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
+
+## 2\. Post Cards
+
+One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 3\. S’well bottle
+
+S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Branded slippers
+
+To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
+
+![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+_thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Pins, pins, pins
+
+There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+## 6\. Denim jacket
+
+A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
+
+Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
+
+Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
+
+Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
+
+* [**A map of Dumbo**](#dumbo)
+* [**Post Cards**](#postcards)
+* [**S’well bottle**](#bottle)
+* [**Branded slippers**](#slippers)
+* [**Pins, pins, pins**](#pins)
+* [**Denim jacket**](#jacket)
+
+_Lilly’s Creator Summit adventures._
+
+The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
+![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
+
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+
+Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
+
+_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
+
+There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 1\. A map of Dumbo
+
+The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
+
+_Tess takes you to some of her favorite places in Dumbo._
+
+Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
+
+## 2\. Post Cards
+
+One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 3\. S’well bottle
+
+S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+## 4\. Branded slippers
+
+To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
+
+![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+_thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## 5\. Pins, pins, pins
+
+There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+## 6\. Denim jacket
+
+A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
+
+_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
+
+Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
+
+Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
+
+Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
+
+* [**A map of Dumbo**](#dumbo)
+* [**Post Cards**](#postcards)
+* [**S’well bottle**](#bottle)
+* [**Branded slippers**](#slippers)
+* [**Pins, pins, pins**](#pins)
+* [**Denim jacket**](#jacket)
+
+_Lilly’s Creator Summit adventures._
+
+The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
+
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
 _Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
@@ -605,6 +852,9 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -613,10 +863,16 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
@@ -674,6 +930,9 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -686,6 +945,9 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -694,6 +956,9 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 _thinknoodles wearing his YouTube slippers._
@@ -702,6 +967,9 @@ _thinknoodles wearing his YouTube slippers._
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
@@ -716,168 +984,9 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
-
-Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
-
-* [**A map of Dumbo**](#dumbo)
-* [**Post Cards**](#postcards)
-* [**S’well bottle**](#bottle)
-* [**Branded slippers**](#slippers)
-* [**Pins, pins, pins**](#pins)
-* [**Denim jacket**](#jacket)
-
-_Lilly’s Creator Summit adventures._
-
-The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
-
-![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
-
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
-
-Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
-
-_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
-
-There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
-
-## 1\. A map of Dumbo
-
-The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
-
-_Tess takes you to some of her favorite places in Dumbo._
-
-Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
-
-## 2\. Post Cards
-
-One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-## 3\. S’well bottle
-
-S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-## 4\. Branded slippers
-
-To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
-
-![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-
-_thinknoodles wearing his YouTube slippers._
-
-## 5\. Pins, pins, pins
-
-There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-## 6\. Denim jacket
-
-A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
-
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
-
-Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
-
-Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
-
-Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
-
-* [**A map of Dumbo**](#dumbo)
-* [**Post Cards**](#postcards)
-* [**S’well bottle**](#bottle)
-* [**Branded slippers**](#slippers)
-* [**Pins, pins, pins**](#pins)
-* [**Denim jacket**](#jacket)
-
-_Lilly’s Creator Summit adventures._
-
-The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
-
-![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
-
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
-
-Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
-
-_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
-
-There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
-
-## 1\. A map of Dumbo
-
-The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
-
-_Tess takes you to some of her favorite places in Dumbo._
-
-Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
-
-## 2\. Post Cards
-
-One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-## 3\. S’well bottle
-
-S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-## 4\. Branded slippers
-
-To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
-
-![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-
-_thinknoodles wearing his YouTube slippers._
-
-## 5\. Pins, pins, pins
-
-There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-## 6\. Denim jacket
-
-A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
-
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
-
-Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
-
-Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -901,3 +1010,51 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-precision-evaluation-a-vll-approach-to-apps/"><u>[New] Precision Evaluation  A VLL Approach to Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-most-attractive-game-ready-gaming-equipment-for-under-100/"><u>[New] The Most Attractive Game-Ready Gaming Equipment for Under $100</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-ideal-ios-companions-best-ps2-game-simulators/"><u>[Updated] 2024 Approved  Ideal iOS Companions  Best PS2 Game Simulators</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-streamlined-strategy-for-igtv-and-instagram-story-integration/"><u>[Updated] 2024 Approved  Streamlined Strategy for IGTV & Instagram Story Integration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-beauty-and-inspiration-a-top-20-ig-showcase/"><u>[Updated] Beauty and Inspiration  A Top 20 IG Showcase</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-leading-logos-for-linked-worldwide-web/"><u>[Updated] In 2024, Leading Logos for Linked Worldwide Web</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-translate-speech-to-text-the-right-way-with-google-translate-for-2024/"><u>[Updated] Translate Speech to Text the Right Way with Google Translate for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-20-top-free-cloud-storage-options-maximize-your-upload-limit-1tbplus/"><u>2024 Approved  20 Top Free Cloud Storage Options, Maximize Your Upload Limit (1TB+)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-you-lawfully-archive-youtube-content-for-2024/"><u>Can You Lawfully Archive YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-you-lawfully-archive-youtube-content/"><u>Can You Lawfully Archive YouTube Content?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-you-legally-capture-video-from-youtube-for-2024/"><u>Can You Legally Capture Video From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-you-legally-capture-video-from-youtube/"><u>Can You Legally Capture Video From YouTube?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-you-receive-a-monthly-check-from-youtube-in-2024/"><u>Can You Receive a Monthly Check From YouTube, In 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-you-respect-intellectual-property-while-screenrecording-youtube-for-2024/"><u>Can You Respect Intellectual Property While ScreenRecording YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-youtube-sub4sub-really-enhance-viewing-experience-for-2024/"><u>Can YouTube Sub4Sub Really Enhance Viewing Experience for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/can-youtube-sub4sub-really-enhance-viewing-experience-in-2024/"><u>Can YouTube Sub4Sub Really Enhance Viewing Experience, In 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-and-conquer-with-customized-content-shorts/"><u>Captivate and Conquer with Customized Content Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-and-conquer-with-customized-content-shorts-for-2024/"><u>Captivate and Conquer with Customized Content Shorts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-and-enchant-explore-the-best-creative-reactions-on-yt/"><u>Captivate and Enchant  Explore the Best Creative Reactions on YT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-audiences-with-effective-and-appealing-video-previews/"><u>Captivate Audiences with Effective and Appealing Video Previews</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-crowds-social-media-growth-hacks-for-youtube/"><u>Captivate Crowds  Social Media Growth Hacks for YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-masses-social-media-strategies-for-youtube-for-2024/"><u>Captivate Masses  Social Media Strategies for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivate-viewers-create-success-a-strategy-for-gamers-channels-for-2024/"><u>Captivate Viewers, Create Success  A Strategy for Gamers' Channels for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-audiences-a-guide-to-making-haul-media-for-2024/"><u>Captivating Audiences  A Guide to Making Haul Media for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-audiencvith-effective-thumbnail-sizes-for-2024/"><u>Captivating Audiencvith Effective Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-call-to-action-designing-a-dynamic-subscribe-buttons-with-filmora/"><u>Captivating Call-to-Action  Designing a Dynamic Subscribe Buttons with Filmora</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-channels-spotlight-on-the-most-popular-female-creators/"><u>Captivating Channels  Spotlight on the Most Popular Female Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-charm-top-magicians-and-their-video-cuts-for-2024/"><u>Captivating Charm  Top Magicians & Their Video Cuts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-clips-keywords-that-ignite-viral-shorts-on-youtube-for-2024/"><u>Captivating Clips  Keywords That Ignite Viral Shorts on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-cold-ideal-snowy-scenes-to-brighten-videos/"><u>Captivating Cold  Ideal Snowy Scenes to Brighten Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-cold-ideal-snowy-scenes-to-brighten-videos-for-2024/"><u>Captivating Cold  Ideal Snowy Scenes to Brighten Videos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-defy-2-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Motorola Defy 2 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-oppo-a2-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Oppo A2</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-your-iphone-11-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>How to Unlock Your iPhone 11 Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-nokia-g22-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Nokia G22 Data? | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-demystifying-pexels-your-comprehensive-guide-to-free-imagery/"><u>In 2024, Demystifying Pexels Your Comprehensive Guide to Free Imagery</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-6-instant-mp4-to-gif-online-tools-for-you-for-2024/"><u>New 6 Instant Mp4 to GIF Online Tools for You for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-how-to-play-video-in-slow-motion-effects-on-vlc-desktopmobile/"><u>New In 2024, How to Play Video in Slow Motion Effects on VLC Desktop/Mobile</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-platforms-to-download-and-listen-to-dj-music/"><u>New Platforms to Download and Listen to DJ Music</u></a></li>
+<li><a href="https://facebook.techidaily.com/sidestep-fbs-2fa-loss-of-device-with-ease/"><u>Sidestep FB’s 2FA Loss of Device with Ease</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-difference-between-srgb-and-rgb/"><u>The Difference Between Srgb & Rgb</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-innovative-online-platforms-for-purifying-soundtracks-of-media-production/"><u>Updated Innovative Online Platforms for Purifying Soundtracks of Media Production</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-installation-manual-for-chatgpt/"><u>Windows Installation Manual for ChatGPT</u></a></li>
+</ul></div>

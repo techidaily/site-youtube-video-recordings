@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Boosting Earning Potential on YouTube Shorts"
-date: 2024-05-25T13:12:21.841Z
-updated: 2024-05-26T13:12:21.841Z
+date: 2024-07-19T06:58:15.253Z
+updated: 2024-07-20T06:58:15.253Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes [Updated] Boosting Earning Potential on YouTube Shorts"
 excerpt: "This Article Describes [Updated] Boosting Earning Potential on YouTube Shorts"
 keywords: "Earn with YouTube Shorts,Increase Revenue YouTube S,Boost YouTube Profit,Growin' Earning YouTube,Earn More on YouTube Short,YouTube Shorts Money Flow,Maximize Earnings Shorts"
-thumbnail: https://www.lifewire.com/thmb/DwsDy9imoz85_yJbP3D7n-APAnE=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed2-60f231b72c19491683c2166c9285b34d.jpg
+thumbnail: https://thmb.techidaily.com/9c2b7ca2e1893d88d6bb8597241a29c970bfa10f3bf7e355bd7f5437be375738.jpg
 ---
 
 ## Boosting Earning Potential on YouTube Shorts
@@ -42,6 +42,9 @@ Participating in YouTube Shorts Funds offer several benefits to the creators:
 
 YouTube incorporated monetization of Shorts in its YouTube Partner Program (YPP). Therefore, YouTube merged the Shorts Fund with the YPP in February 2023\. This led to YouTube Shorts Fund 2023 which now offers creators more opportunities to make money quickly on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 2\. Making Money with YouTube Shorts: Eligibility and Earnings**
 
 The new YouTube Shorts monetization policy means that content creators on YouTube with access to the YPP can also earn from Shorts. The revenue-sharing model has now taken the place of the YouTube Shorts Fund, which only rewarded creators using YouTube’s money. However, creators don’t have to be members of the YPP to start receiving YouTube Shorts funding. They only need to meet certain requirements, make unique content, and adhere to Community Guidelines.
@@ -51,6 +54,9 @@ The new YouTube Shorts monetization policy means that content creators on YouTub
 * [What the YPP Shorts Fund Entails](#youtube3)
 * [How Much Can You Make with Short](#youtube4)
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **YouTube Shorts Fund Eligibility**
 
 As of 2023, YouTube offers Shorts Funding as a monetization option. Creators can also choose to monetize with YPP combined with Shorts Fundings.
@@ -67,6 +73,9 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 500 subscribers (You previously needed 1,000)
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
 
 In addition to the basic eligibility requirements, creators are also required to take additional measures to comply with YouTube’s requirements. Additional steps include:
@@ -101,6 +110,9 @@ Head over to the YouTube Studio. Sign in to your account to accept the terms. Be
 3. **Setp 3**: Select the Earn tab pick on, and choose the ads you want to turn on.
 4. **Setp 4**: Save your settings and the ads will be active.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 4\. Editing YouTube Shorts for More Revenue with Wondershare Filmora**
 
 The best way to earn from the YouTube Shorts Fund is to create quality content. With good video editing software, you can achieve this and build a community of subscribers. Wondershare Filmora is a video editing software that is effective in creating quality Shorts videos. It supports various video resolutions, including vertical videos. It also has some fascinating features that make every creation unique and exciting. Take your overexposed footage to cinema-quality Shorts video that will keep your audience engaged.
@@ -119,6 +131,9 @@ You may have recorded horizontal videos and want to upload them as Shorts. The A
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ### 3\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
@@ -127,6 +142,9 @@ When editing Shorts, you will likely add many footage in a short video. It is co
 
 Creativity is a major component of YouTube Shorts content. The Filmora Masking and Blending mode helps you make creative video clips. It comes with a pen tool for creating free-form shapes on the go. Make your videos more impressive to your audience.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. [**Auto Beat Sync**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 With YouTube Shorts, you need to entertain your audience in under a minute. A combination of visual and audio elements makes the video more entertaining. The Auto Beat Sync feature matches the footage with the music automatically. Be sure every beat corresponds to the scene.
@@ -137,8 +155,14 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 1\. YouTube Shorts Fund: Introduction and Benefits**
 
 YouTube launched YouTube Shorts Funds in 2021 to financially support creators who produce engaging and popular Shorts content. The monetization scheme would distribute $100 million to high-performing creators on the platform. The creators would receive high engagement and views from their Shorts for funding.
@@ -157,6 +181,18 @@ Participating in YouTube Shorts Funds offer several benefits to the creators:
 
 YouTube incorporated monetization of Shorts in its YouTube Partner Program (YPP). Therefore, YouTube merged the Shorts Fund with the YPP in February 2023\. This led to YouTube Shorts Fund 2023 which now offers creators more opportunities to make money quickly on YouTube.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 2\. Making Money with YouTube Shorts: Eligibility and Earnings**
 
 The new YouTube Shorts monetization policy means that content creators on YouTube with access to the YPP can also earn from Shorts. The revenue-sharing model has now taken the place of the YouTube Shorts Fund, which only rewarded creators using YouTube’s money. However, creators don’t have to be members of the YPP to start receiving YouTube Shorts funding. They only need to meet certain requirements, make unique content, and adhere to Community Guidelines.
@@ -182,6 +218,9 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 500 subscribers (You previously needed 1,000)
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
 
 In addition to the basic eligibility requirements, creators are also required to take additional measures to comply with YouTube’s requirements. Additional steps include:
@@ -191,6 +230,9 @@ In addition to the basic eligibility requirements, creators are also required to
 * **Enable Monetization for Individual Shorts:** Edit the monetization settings for each Short to start generating ad revenue.
 * **Comply with YouTube Policies and Guidelines:** Visit the YouTube Creator Academy to learn more about the platform’s policies and guidelines.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **What the YPP Shorts Fund Entails**
 
 The YPP Shorts Fund program includes the following features:
@@ -199,6 +241,9 @@ The YPP Shorts Fund program includes the following features:
 * **Shorts Monetization Module** – Creators earn money from ads that play between YouTube Shorts.
 * **Commerce Product Addendum** – Additional monetization features, including Super Chats. Channel Memberships, Super Thanks, and Super Stickers.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **How Much Can You Make with Short** **s**
 
 The amount of money you can make on Shorts often varies. It can be hard to make decent money on Shorts sometimes, and other times it brings in a nice chunk of revenue. Unfortunately, the earnings are not as spectacular as the long YouTube videos. Most creators agree that the revenue per thousand views (RPM) for shorts is around $0.05 - $0.07\. This would translate to about $50 - $70 for a million Shorts views. Although the ad revenue is relatively lower, you can generate more revenue with the shopping features. This will depend on how wee you keep your audience active and engaged.
@@ -234,14 +279,32 @@ You may have recorded horizontal videos and want to upload them as Shorts. The A
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. [**Mask & Blend**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Creativity is a major component of YouTube Shorts content. The Filmora Masking and Blending mode helps you make creative video clips. It comes with a pen tool for creating free-form shapes on the go. Make your videos more impressive to your audience.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. [**Auto Beat Sync**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 With YouTube Shorts, you need to entertain your audience in under a minute. A combination of visual and audio elements makes the video more entertaining. The Auto Beat Sync feature matches the footage with the music automatically. Be sure every beat corresponds to the scene.
@@ -266,7 +329,250 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
 # How to Create Animated Bouncing Text
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Method 1: How to Create Bouncing Text in Filmora Video Editor?
+
+When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
+
+These pre-built templates not only make your task easier, they also save your decent amount of time that you would spend while working with After Effects or any other similar app that requires you to build things from scratch.
+
+You can follow the instructions given below to **add animated bounce text** to any of your video footages with Filmora:
+
+#### Step 1: Add a Footage to Timeline
+
+Launch Wondershare Filmora on your Windows or Mac PC. By default, the [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) of the project is set to 16:9\. Click anywhere inside the **Media** window at the upper-left section, and select and import footage you want to add bounce text to.
+
+#### Step 2: Insert Text and Add Bounce Effect
+
+Click **Titles** from the standard toolbar at the top, and click and drag your preferred title template from the Library to the timeline. In case you don’t want any specific animation or style on the title, you can use the default title.
+
+In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
+
+![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+**Step 3: Add Shake Filters**
+
+Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
+
+![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
+
+![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+**Step 4: Export the Final Output**
+
+Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
+
+![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
+
+Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
+
+As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Method 2: Generate Animated Bouncing Texts Online
+
+If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
+
+Some most trusted websites to generate **bounce text** are listed below:
+
+#### 1\. ENGFTO
+
+Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
+
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
+
+**Step 1: Get to the Animated Bouncing Text Page**
+
+Launch your favorite web browser, and go to the link given above to get to the Engfto’s animated bouncing text page.
+
+**Step 2: Customize Text and Preferences**
+
+Modify the values in the fields under the **SIZE AREA** and **TEXT** sections to customize the text area, the text itself, its size, and font. Next, adjust the values in the fields under the **EFFECT PARAMETERS** section to get the required bounce effect. Also, use the fields under the **BACKGROUND** section to either change the background color, or pick a background image from your PC.
+
+**Step 3: Obtain the Animated Text**
+
+Click the **SAVE GIF ANIMATION** button from the lower section of the page to download the animated text to your PC.
+
+#### 2\. Loading.io
+
+The instructions given below explain how to use Loading.io to get animated **bounce text** effect for your footages:
+
+**Step 1: Get to the Loading.io Webpage**
+
+Launch your favorite web browser and go to <https://loading.io/animation/text/>.
+
+**Step 2: Customize the Text and Choose Animation Effect**
+
+![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
+
+**Step 3: Obtain the Text**
+
+Click your preferred option from next to the **Download As** section to download the animated text to your PC.
+
+**Note:** Regardless of the web solution you choose to generate and obtain animated **bounce text**, you will still need a post-production tool to add the downloaded text to your footage.
+
+**Conclusion**
+
+Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+## Method 1: How to Create Bouncing Text in Filmora Video Editor?
+
+When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
+
+These pre-built templates not only make your task easier, they also save your decent amount of time that you would spend while working with After Effects or any other similar app that requires you to build things from scratch.
+
+You can follow the instructions given below to **add animated bounce text** to any of your video footages with Filmora:
+
+#### Step 1: Add a Footage to Timeline
+
+Launch Wondershare Filmora on your Windows or Mac PC. By default, the [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) of the project is set to 16:9\. Click anywhere inside the **Media** window at the upper-left section, and select and import footage you want to add bounce text to.
+
+#### Step 2: Insert Text and Add Bounce Effect
+
+Click **Titles** from the standard toolbar at the top, and click and drag your preferred title template from the Library to the timeline. In case you don’t want any specific animation or style on the title, you can use the default title.
+
+In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+**Step 3: Add Shake Filters**
+
+Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
+
+![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+**Step 4: Export the Final Output**
+
+Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
+
+Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
+
+As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Method 2: Generate Animated Bouncing Texts Online
+
+If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
+
+Some most trusted websites to generate **bounce text** are listed below:
+
+#### 1\. ENGFTO
+
+Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
+
+![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
+
+**Step 1: Get to the Animated Bouncing Text Page**
+
+Launch your favorite web browser, and go to the link given above to get to the Engfto’s animated bouncing text page.
+
+**Step 2: Customize Text and Preferences**
+
+Modify the values in the fields under the **SIZE AREA** and **TEXT** sections to customize the text area, the text itself, its size, and font. Next, adjust the values in the fields under the **EFFECT PARAMETERS** section to get the required bounce effect. Also, use the fields under the **BACKGROUND** section to either change the background color, or pick a background image from your PC.
+
+**Step 3: Obtain the Animated Text**
+
+Click the **SAVE GIF ANIMATION** button from the lower section of the page to download the animated text to your PC.
+
+#### 2\. Loading.io
+
+The instructions given below explain how to use Loading.io to get animated **bounce text** effect for your footages:
+
+**Step 1: Get to the Loading.io Webpage**
+
+Launch your favorite web browser and go to <https://loading.io/animation/text/>.
+
+**Step 2: Customize the Text and Choose Animation Effect**
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
+
+**Step 3: Obtain the Text**
+
+Click your preferred option from next to the **Download As** section to download the animated text to your PC.
+
+**Note:** Regardless of the web solution you choose to generate and obtain animated **bounce text**, you will still need a post-production tool to add the downloaded text to your footage.
+
+**Conclusion**
+
+Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
 
 ##### Liza Brown
 
@@ -302,12 +608,18 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -368,6 +680,9 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -406,16 +721,25 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -424,8 +748,15 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -462,222 +793,9 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
-![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
-
-Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
-
-**Step 3: Obtain the Text**
-
-Click your preferred option from next to the **Download As** section to download the animated text to your PC.
-
-**Note:** Regardless of the web solution you choose to generate and obtain animated **bounce text**, you will still need a post-production tool to add the downloaded text to your footage.
-
-**Conclusion**
-
-Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
-
-## Method 1: How to Create Bouncing Text in Filmora Video Editor?
-
-When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
-
-These pre-built templates not only make your task easier, they also save your decent amount of time that you would spend while working with After Effects or any other similar app that requires you to build things from scratch.
-
-You can follow the instructions given below to **add animated bounce text** to any of your video footages with Filmora:
-
-#### Step 1: Add a Footage to Timeline
-
-Launch Wondershare Filmora on your Windows or Mac PC. By default, the [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) of the project is set to 16:9\. Click anywhere inside the **Media** window at the upper-left section, and select and import footage you want to add bounce text to.
-
-#### Step 2: Insert Text and Add Bounce Effect
-
-Click **Titles** from the standard toolbar at the top, and click and drag your preferred title template from the Library to the timeline. In case you don’t want any specific animation or style on the title, you can use the default title.
-
-In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
-
-![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
-
-**Step 3: Add Shake Filters**
-
-Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
-
-![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
-
-You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
-
-![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
-
-**Step 4: Export the Final Output**
-
-Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
-
-![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
-
-Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
-
-As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Method 2: Generate Animated Bouncing Texts Online
-
-If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
-
-Some most trusted websites to generate **bounce text** are listed below:
-
-#### 1\. ENGFTO
-
-Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
-
-![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
-
-**Step 1: Get to the Animated Bouncing Text Page**
-
-Launch your favorite web browser, and go to the link given above to get to the Engfto’s animated bouncing text page.
-
-**Step 2: Customize Text and Preferences**
-
-Modify the values in the fields under the **SIZE AREA** and **TEXT** sections to customize the text area, the text itself, its size, and font. Next, adjust the values in the fields under the **EFFECT PARAMETERS** section to get the required bounce effect. Also, use the fields under the **BACKGROUND** section to either change the background color, or pick a background image from your PC.
-
-**Step 3: Obtain the Animated Text**
-
-Click the **SAVE GIF ANIMATION** button from the lower section of the page to download the animated text to your PC.
-
-#### 2\. Loading.io
-
-The instructions given below explain how to use Loading.io to get animated **bounce text** effect for your footages:
-
-**Step 1: Get to the Loading.io Webpage**
-
-Launch your favorite web browser and go to <https://loading.io/animation/text/>.
-
-**Step 2: Customize the Text and Choose Animation Effect**
-
-![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
-
-Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
-
-**Step 3: Obtain the Text**
-
-Click your preferred option from next to the **Download As** section to download the animated text to your PC.
-
-**Note:** Regardless of the web solution you choose to generate and obtain animated **bounce text**, you will still need a post-production tool to add the downloaded text to your footage.
-
-**Conclusion**
-
-Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
-
-## Method 1: How to Create Bouncing Text in Filmora Video Editor?
-
-When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
-
-These pre-built templates not only make your task easier, they also save your decent amount of time that you would spend while working with After Effects or any other similar app that requires you to build things from scratch.
-
-You can follow the instructions given below to **add animated bounce text** to any of your video footages with Filmora:
-
-#### Step 1: Add a Footage to Timeline
-
-Launch Wondershare Filmora on your Windows or Mac PC. By default, the [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) of the project is set to 16:9\. Click anywhere inside the **Media** window at the upper-left section, and select and import footage you want to add bounce text to.
-
-#### Step 2: Insert Text and Add Bounce Effect
-
-Click **Titles** from the standard toolbar at the top, and click and drag your preferred title template from the Library to the timeline. In case you don’t want any specific animation or style on the title, you can use the default title.
-
-In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
-
-![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
-
-**Step 3: Add Shake Filters**
-
-Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
-
-![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
-
-You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
-
-![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
-
-**Step 4: Export the Final Output**
-
-Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
-
-![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
-
-Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
-
-As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Method 2: Generate Animated Bouncing Texts Online
-
-If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
-
-Some most trusted websites to generate **bounce text** are listed below:
-
-#### 1\. ENGFTO
-
-Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
-
-![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
-
-**Step 1: Get to the Animated Bouncing Text Page**
-
-Launch your favorite web browser, and go to the link given above to get to the Engfto’s animated bouncing text page.
-
-**Step 2: Customize Text and Preferences**
-
-Modify the values in the fields under the **SIZE AREA** and **TEXT** sections to customize the text area, the text itself, its size, and font. Next, adjust the values in the fields under the **EFFECT PARAMETERS** section to get the required bounce effect. Also, use the fields under the **BACKGROUND** section to either change the background color, or pick a background image from your PC.
-
-**Step 3: Obtain the Animated Text**
-
-Click the **SAVE GIF ANIMATION** button from the lower section of the page to download the animated text to your PC.
-
-#### 2\. Loading.io
-
-The instructions given below explain how to use Loading.io to get animated **bounce text** effect for your footages:
-
-**Step 1: Get to the Loading.io Webpage**
-
-Launch your favorite web browser and go to <https://loading.io/animation/text/>.
-
-**Step 2: Customize the Text and Choose Animation Effect**
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -715,3 +833,75 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-decodome-top-10-themes-for-betterdiscorders-for-2024/"><u>[New] DecoDome - Top 10 Themes for BetterDiscorders for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-horizon-to-heavens-photo-taking-on-mobile/"><u>[New] Horizon to Heavens  Photo-Taking on Mobile</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-quickly-craft-perfect-subtitles-and-captions-for-facebook-video-feeds-for-2024/"><u>[New] How To Quickly Craft Perfect Subtitles and Captions for Facebook Video Feeds for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-inside-out-comprehensive-understanding-of-stardews-fascinating-ginger-island-for-2024/"><u>[New] Inside Out  Comprehensive Understanding of Stardew’s Fascinating Ginger Island for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-music-merger-for-engaging-fb-video-content-for-2024/"><u>[New] The Music Merger for Engaging FB Video Content for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-quintessential-guide-top-5-tiktok-gif-creation-software-for-2024/"><u>[New] The Quintessential Guide  Top 5 TikTok GIF Creation Software for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-discover-the-5-best-android-software-for-ps2-games-for-2024/"><u>[Updated] Discover the 5 Best Android Software for PS2 Games for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-enjoy-tiktok-at-your-fingertips-download-and-setup-on-macbook/"><u>[Updated] In 2024, Enjoy TikTok at Your Fingertips  Download & Setup on MacBook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-iphone-camera-techniques-for-quality-shots/"><u>[Updated] IPhone Camera Techniques for Quality Shots</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-selective-image-blurring-techniques/"><u>[Updated] Mastering Selective Image Blurring Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-reddits-golden-threads-celebrating-the-highest-rated-posts/"><u>2024 Approved  Reddit's Golden Threads  Celebrating the Highest-Rated Posts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adding-value-with-recommendations-for-2024/"><u>Adding Value with Recommendations for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/audio-visual-vanguard-evaluating-the-best-classroom-recorders-for-2024/"><u>Audio-Visual Vanguard  Evaluating the Best Classroom Recorders for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-xiaomi-13t-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Xiaomi 13T</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-video-performance-top-notch-youtube-seo-strategies-for-2024/"><u>Elevate Video Performance  Top-Notch YouTube SEO Strategies for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/elevate-windows-steam-speed-eliminating-zero-downloads/"><u>Elevate Windows Steam Speed: Eliminating Zero-Downloads</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/filmoras-audio-magic-transform-your-recordings-with-background-noise-reduction-mastery/"><u>Filmoras Audio Magic Transform Your Recordings with Background Noise Reduction Mastery</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/from-basics-to-brilliance-elevating-your-windows-experience-via-ms-store/"><u>From Basics to Brilliance: Elevating Your Windows Experience via MS Store</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-itel-s23-lock-screen-password-by-drfone-android/"><u>How To Change Itel S23 Lock Screen Password?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-magic-5-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Magic 5 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ideal-online-practices-for-vhs-image-polishing/"><u>Ideal Online Practices for VHS Image Polishing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/immersion-station-youtubes-10-best-virtual-reality-films/"><u>Immersion Station  YouTube's 10 Best Virtual Reality Films</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-compreayers-primer-to-navigating-the-online-copyright-labyrinth/"><u>In 2024, A Compreayer's Primer to Navigating the Online Copyright Labyrinth</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>In 2024, A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>In 2024, A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensible-walkthrough-finding-your-youtube-remarks/"><u>In 2024, A Comprehensible Walkthrough  Finding Your YouTube Remarks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>In 2024, A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-guide-to-personalizing-video-images/"><u>In 2024, A Comprehensive Guide to Personalizing Video Images</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-guide-to-the-12-superior-vlogging-cameras/"><u>In 2024, A Comprehensive Guide to the 12 Superior Vlogging Cameras</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-list-top-5-non-youtube-mobile-videos/"><u>In 2024, A Comprehensive List  Top 5 Non-YouTube Mobile Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-list-of-the-best-video-sites-post-youtube/"><u>In 2024, A Comprehensive List of the Best Video Sites Post-YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-look-editing-and-polishing-yt-videos-via-movie-maker/"><u>In 2024, A Comprehensive Look  Editing and Polishing YT Videos via Movie Maker</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-overview-of-youtube-standards-for-content-creators/"><u>In 2024, A Comprehensive Overview of YouTube Standards for Content Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-tour-youtube-creator-suite/"><u>In 2024, A Comprehensive Tour  YouTube Creator Suite</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-tutorial-for-youtube-customization-tools/"><u>In 2024, A Comprehensive Tutorial for YouTube Customization Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-walkthrough-creating-channel-banners/"><u>In 2024, A Comprehensive Walkthrough  Creating Channel Banners</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-comprehensive-walkthrough-setting-up-your-first-wirecast-livestream-to-youtube/"><u>In 2024, A Comprehensive Walkthrough  Setting Up Your First WireCast Livestream to Youtube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary/"><u>In 2024, A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-creators-guide-to-understanding-youtube-policies/"><u>In 2024, A Creator’s Guide to Understanding YouTube Policies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-deep-dive-into-the-fundamentals-of-youtube-shorts/"><u>In 2024, A Deep Dive Into The Fundamentals of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-detailed-exploration-youtubes-visionary-suite/"><u>In 2024, A Detailed Exploration  YouTube's Visionary Suite</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-filmmakers-companion-the-journey-from-capturing-to-post-production-of-360-videos/"><u>In 2024, A Filmmaker's Companion  The Journey From Capturing to Post-Production of 360 Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-filmmakers-essential-guide-to-free-royalty-free-audiosites/"><u>In 2024, A Filmmaker's Essential Guide to Free Royalty-Free Audiosites</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-fresh-take-on-frigidity-crafting-inviting-backdrops/"><u>In 2024, A Fresh Take on Frigidity  Crafting Inviting Backdrops</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-guide-for-mobile-filmmakers-on-crafting-youtube-thumbnails/"><u>In 2024, A Guide for Mobile Filmmakers on Crafting YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-guide-to-crafting-effective-youtube-backlinks/"><u>In 2024, A Guide to Crafting Effective YouTube Backlinks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-guide-to-crafting-engaging-videos-in-adobe-premiere/"><u>In 2024, A Guide to Crafting Engaging Videos in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-guide-to-essential-asmr-video-facts/"><u>In 2024, A Guide to Essential ASMR Video Facts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-guide-to-profit-sharing-for-creators-of-video-clips/"><u>In 2024, A Guide to Profit Sharing for Creators of Video Clips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer/"><u>In 2024, A Journey Through the Digital Landscape  Six Engaging Quizzes for Every Vlogger Admirer</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-list-of-the-best-marriage-videos-celebrations-captured-online-8/"><u>In 2024, A List of the Best Marriage Videos - Celebrations Captured Online (8)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-list-of-the-quickest-rising-youtube-spaces-for-encouragement/"><u>In 2024, A List of the Quickest Rising YouTube Spaces for Encouragement</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-look-at-earnings-understanding-your-monthly-income-from-youtubes-adsense/"><u>In 2024, A Look at Earnings  Understanding Your Monthly Income From YouTube's AdSense</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-new-take-on-favorite-movies-7-alternatives/"><u>In 2024, A New Take on Favorite Movies - #7 Alternatives</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-peek-into-popularity-list-of-the-top-10-youtubers/"><u>In 2024, A Peek Into Popularity  List of the Top 10 YouTubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-peek-into-the-heart-of-youtubes-video-operations/"><u>In 2024, A Peek Into the Heart of YouTube's Video Operations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-practical-approach-to-creating-captivating-youtube-shorts-templates/"><u>In 2024, A Practical Approach to Creating Captivating YouTube Shorts Templates</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-vivo-y36-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Vivo Y36</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-v-purse-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor V Purse to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-studio-setup-starters-top-17-lights-and-more/"><u>In 2024, Studio Setup Starters - Top 17 Lights & More</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-unleash-your-creativity-top-mobile-video-editors-for-iphone-and-android/"><u>In 2024, Unleash Your Creativity Top Mobile Video Editors for iPhone and Android</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-moto-g14-can-t-play-mp4-video-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Moto G14 can't play MP4 video files</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-intel-chipset-compatibility-with-ws-11781-systems/"><u>Refresh Intel Chipset Compatibility with WS 11/7/8.1 Systems</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/streamline-content-sharing-a-complete-instagram-video-upload-guide-from-desktop-for-2024/"><u>Streamline Content Sharing  A Complete Instagram Video Upload Guide From Desktop for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-key-to-successful-multi-view-facebook-streaming-for-2024/"><u>The Key to Successful Multi-View Facebook Streaming for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-exploring-the-creme-de-la-creme-of-distorted-audio-technology-tools/"><u>Updated In 2024, Exploring the Crème De La Crème of Distorted Audio Technology Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-note-12-proplus-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi Note 12 Pro+ 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+</ul></div>

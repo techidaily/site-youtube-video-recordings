@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Addressing YouTube Shorts  No Image Upload Issue?\""
-date: 2024-05-25T10:58:20.680Z
-updated: 2024-05-26T10:58:20.680Z
+date: 2024-07-19T05:17:57.997Z
+updated: 2024-07-20T05:17:57.997Z
 tags:
   - ai video
   - ai youtube
@@ -43,8 +43,14 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 * Click the "pencil" icon next to the Shorts you just uploaded. This video should be at the top of the list.
 * Navigate to the Thumbnail section. Click "Create Thumbnail."
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
 
 It's not you who's the only one with Shorts thumbnails not showing. Many short-form content creators on the platform are also facing this issue. A YouTuber took to Reddit to complain about how he uploaded custom thumbnails for all his videos. The thumbnails are correct in the editor. However, YouTube still displays a random frame as the thumbnail on the Shorts shelf.
@@ -85,6 +91,9 @@ The best thing is that you don't need to transfer the video from your phone to y
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -93,10 +102,16 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
@@ -105,20 +120,41 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Pause the video.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
 * Click "Library" on the left panel.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -127,6 +163,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Tap "Library"
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
 * Scroll down to find "Liked Videos." Click on it.
@@ -135,8 +174,14 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -179,12 +224,18 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -247,6 +298,96 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 ## Edit Your Videos Before Creating Video Thumbnails
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 1\. Have a Consistent Layout
+
+Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
+
+An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## **2\. Use Your Face**
+
+People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+## 3\. Use Graphics/Emojis that are On Topic
+
+Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
+
+Make sure the images you choose are relevant to the topic of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Make Your Text Huge
+
+If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
+
+Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Keep it Clutter-Free
+
+It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
+
+A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
+
+ [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
+
+Here are 5 easy tips for creating thumbnails that get views.
+
+1. **[Have a Consistent Layout](#one)**
+2. **[Use Your Face](#two)**
+3. **[Use Graphics/Emojis That is On Topic](#three)**
+4. **[Make Your Text Huge](#four)**
+5. **[Keep It Clutter-Free!](#five)**
+
+ _Contest now closed._
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Edit Your Videos Before Creating Video Thumbnails
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## 1\. Have a Consistent Layout
@@ -257,12 +398,18 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -315,6 +462,9 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -323,6 +473,9 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -341,6 +494,9 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -351,6 +507,9 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -377,8 +536,14 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Edit Your Videos Before Creating Video Thumbnails
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## 1\. Have a Consistent Layout
@@ -389,6 +554,9 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -417,72 +585,9 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-The **video thumbnails** you use for YouTube are vital to getting views and subscribers. There are a lot of things that go into making people watch your videos, but your video thumbnail might be the most important factor.
-
-Here are 5 easy tips for creating thumbnails that get views.
-
-1. **[Have a Consistent Layout](#one)**
-2. **[Use Your Face](#two)**
-3. **[Use Graphics/Emojis That is On Topic](#three)**
-4. **[Make Your Text Huge](#four)**
-5. **[Keep It Clutter-Free!](#five)**
-
- _Contest now closed._
-
-## Edit Your Videos Before Creating Video Thumbnails
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## 1\. Have a Consistent Layout
-
-Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
-
-An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
-
-![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
-
-## **2\. Use Your Face**
-
-People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-## 3\. Use Graphics/Emojis that are On Topic
-
-Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
-
-Make sure the images you choose are relevant to the topic of your video.
-
-## 4\. Make Your Text Huge
-
-If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
-
-Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-## 5\. Keep it Clutter-Free
-
-It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
-
-A good rule for text is to use only 1-3 words. That way they won’t clutter your screen, and you can make them large enough to read on small-screened devices.
-
- [For even more tips on making great YouTube thumbnails, click here](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
-
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -506,3 +611,70 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-constructing-an-inspirational-tiktok-end-screen/"><u>[New] 2024 Approved  Constructing An Inspirational TikTok End Screen</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-high-cash-content-creators/"><u>[New] In 2024, High-Cash Content Creators</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-intuitive-methods-to-log-your-google-voice-conversations/"><u>[New] In 2024, Intuitive Methods to Log Your Google Voice Conversations</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-is-it-allowable-to-distribute-videos-via-social-networks/"><u>[New] In 2024, Is It Allowable to Distribute Videos via Social Networks?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-strategy-sketches-plotting-the-market-map/"><u>[New] In 2024, Strategy Sketches  Plotting the Market Map</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-launchpad-to-success-establishing-your-own-food-flavor-blogchannel/"><u>[New] Launchpad to Success  Establishing Your Own Food Flavor Blog/Channel</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-your-digital-journey-to-youtube-and-facebook-video-gems-for-2024/"><u>[New] Your Digital Journey to YouTube and Facebook Video Gems for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-explore-top-10-iphoneandroid-intro-creation-software/"><u>[Updated] 2024 Approved  Explore Top 10 iPhone/Android Intro Creation Software</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-mastering-top-10-crafting-winning-tiktok-marketing-campaigns/"><u>[Updated] 2024 Approved  Mastering Top 10  Crafting Winning TikTok Marketing Campaigns</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-engaging-with-your-audience-through-twitter-promos-for-2024/"><u>[Updated] Engaging With Your Audience Through Twitter Promos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-resolve-chromebooks-video-issue/"><u>[Updated] In 2024, Resolve  Chromebook's Video Issue</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-uncover-the-art-of-participating-in-tiktok-live-shows/"><u>[Updated] In 2024, Uncover the Art of Participating in TikTok Live Shows</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-journey-to-aesthetic-excellence-fusing-images-masterfully/"><u>[Updated] Journey to Aesthetic Excellence  Fusing Images Masterfully</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-top-7-cost-free-tiktok-edits-for-mac-users/"><u>[Updated] Top 7 Cost-Free TikTok Edits for Mac Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unified-brand-presence-across-digital-platforms/"><u>[Updated] Unified Brand Presence Across Digital Platforms</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-infusing-creative-edge-in-your-youtube-trailer-production/"><u>2024 Approved  Infusing Creative Edge in Your YouTube Trailer Production</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/2024-approved-vn-video-editor-for-mac-simple-and-powerful-video-editor/"><u>2024 Approved VN Video Editor for Mac Simple and Powerful Video Editor</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-finances-how-much-do-youtubers-earn-per-ad-in-2024/"><u>Deciphering Finances  How Much Do YouTubers Earn Per Ad, In 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-finances-how-much-do-youtubers-earn-per-ad/"><u>Deciphering Finances  How Much Do YouTubers Earn Per Ad?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-how-to-find-my-youtube-comments-posts/"><u>Deciphering How To Find My YouTube Comments Posts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-how-to-find-my-youtube-comments-posts-for-2024/"><u>Deciphering How To Find My YouTube Comments Posts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-how-to-spot-your-video-enthusiasts-for-2024/"><u>Deciphering How to Spot Your Video Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-how-tseries-benefits-from-youtube-for-2024/"><u>Deciphering How TSeries Benefits From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-the-code-understanding-what-unlisted-on-youtube-means-for-2024/"><u>Deciphering the Code  Understanding What 'Unlisted' On YouTube Means for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-the-code-youtube-community-rules-explained-for-2024/"><u>Deciphering the Code  YouTube Community Rules Explained for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-the-must-haves-for-an-enhanced-youtube-experience/"><u>Deciphering the Must-Haves for an Enhanced YouTube Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-the-superior-video-sharing-platform-tiktok-or-youtube-shorts-in-2024/"><u>Deciphering the Superior Video-Sharing Platform  TikTok or YouTube Shorts, In 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-user-insights-in-youtube-comments/"><u>Deciphering User Insights in YouTube Comments</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-your-pathway-to-youtubes-maker-land-for-2024/"><u>Deciphering Your Pathway to YouTube's Maker Land for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtube-conversations/"><u>Deciphering YouTube Conversations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtube-popularity-factors-for-higher-placement-for-2024/"><u>Deciphering YouTube Popularity Factors for Higher Placement for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-cost-per-mille-cpm-structure-for-2024/"><u>Deciphering YouTube’s Cost Per Mille (CPM) Structure for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-featured-comment-selection-for-2024/"><u>Deciphering YouTube's Featured Comment Selection for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-new-earning-standards/"><u>Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-profit-for-a-mil-of-viewers-for-2024/"><u>Deciphering YouTube’s Profit for A Mil of Viewers for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-shorts-funding-mechanism/"><u>Deciphering YouTube's Shorts Funding Mechanism</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-subscriber-code/"><u>Deciphering YouTube's Subscriber Code</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-subscriber-code-for-2024/"><u>Deciphering YouTube's Subscriber Code for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphers-for-digital-content-creators-youtubes-keyword-techniques-for-2024/"><u>Deciphers for Digital Content Creators  YouTube's Keyword Techniques for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decode-the-digital-dollar-with-youtube-an-effective-triple-step-method-for-income-analysis-for-2024/"><u>Decode the Digital Dollar with YouTube  An Effective Triple Step Method for Income Analysis for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-ad-revenue-distribution-in-youtubes-economic-model/"><u>Decoding Ad Revenue Distribution in YouTube's Economic Model</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-dangerous-subscriber-scams-online-for-2024/"><u>Decoding Dangerous Subscriber Scams Online for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-digital-dollars-an-effective-triple-step-process-to-determine-your-subscriber-profits-for-2024/"><u>Decoding Digital Dollars  An Effective Triple Step Process to Determine Your Subscriber Profits for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-digital-dynamics-unveiling-the-secret-sauce-for-youtube-success-and-revenue/"><u>Decoding Digital Dynamics  Unveiling the Secret Sauce for YouTube Success & Revenue</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-dimensions-the-key-to-perfect-aspect-ratios-in-video/"><u>Decoding Dimensions  The Key to Perfect Aspect Ratios in Video</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-revenue-how-much-do-creators-earn-on-youtube-in-2024/"><u>Decoding Revenue  How Much Do Creators Earn on Youtube, In 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-revenue-from-a-million-watches-on-youtube-for-2024/"><u>Decoding Revenue From A Million Watches on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-the-art-of-asmr-filmmaking-techniques-for-2024/"><u>Decoding the Art of ASMR Filmmaking Techniques for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-infinix-hot-30i-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Infinix Hot 30i</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-motorola-moto-g23-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Motorola Moto G23 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-poco-m6-pro-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Poco M6 Pro 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-keeping-your-browsing-free-of-pop-up-videos/"><u>In 2024, Keeping Your Browsing Free of Pop-Up Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-one-step-trick-stellar-instagram-collage-design/"><u>In 2024, One-Step Trick  Stellar Instagram Collage Design</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-streamlined-audio-alteration-techniques-for-manipulating-speed-and-pitch-on-the-internet/"><u>In 2024, Streamlined Audio Alteration Techniques for Manipulating Speed & Pitch on the Internet</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-optimal-frames-per-second-in-cinema-slow-mo/"><u>In 2024, Understanding Optimal Frames Per Second in Cinema Slow-Mo</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713964131665-new-learn-how-to-effectively-use-masking-in-after-effects-with-this-comprehensive-guide-includes-step-by-step-instructions-and-an-alternative-masking-techni/"><u>New Learn How to Effectively Use Masking in After Effects with This Comprehensive Guide. Includes Step-by-Step Instructions and an Alternative Masking Technique for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/nubia-z50s-pro-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Nubia Z50S Pro support - Forgotten screen lock.</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/revolutionary-no-cost-online-convertors-for-tiktop-to-mp3/"><u>Revolutionary No-Cost Online Convertors for TikTop to MP3</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/tale-bearers-school-distinguished-dothee/"><u>Tale Bearers School - Distinguished Dothee</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/transform-your-skype-speech-patterns-with-these-5-must-have-voice-change-tools/"><u>Transform Your Skype Speech Patterns with These 5 Must-Have Voice Change Tools</u></a></li>
+</ul></div>

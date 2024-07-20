@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Captivating Crafting  Writing Intriguing Youtube Descriptions with Templates\""
-date: 2024-06-26T00:20:39.699Z
-updated: 2024-06-27T00:20:39.699Z
+date: 2024-07-19T05:20:36.020Z
+updated: 2024-07-20T05:20:36.020Z
 tags:
   - ai video
   - ai youtube
@@ -26,14 +26,29 @@ Description templates will let you write descriptions very easily. All you have 
 
 What are YouTube descriptions? There are two types: video description and channel description.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### YouTube Video Description ![example of a video description](https://images.wondershare.com/filmora/article-images/youtube-description-templates-video-description-sample.JPG)
 
 The video description is the text below each video. Adding descriptions to your videos is not required. However, if you want success on YouTube, we highly recommend paying attention to video descriptions. It will give viewers more context about the video and will convince them to watch it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### YouTube Channel Description ![example of a channel description](https://images.wondershare.com/filmora/article-images/youtube-description-templates-description-sample.JPG)
 
 This is the text on your About page. It explains to your visitors what your channel is all about. What can they expect from you? You should put this information in your channel description. It's how you can get discovered by people looking for content exactly like what you offer. Basically, your channel description is like an ad. It tells other users why they should subscribe to your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips for Creating an Amazing YouTube Description
 
 YouTube is not only telling people that they should watch your content. It also tells YouTube to recommend the video to users searching for something to watch. YouTube crawls the description to rank your videos in search results. That said, you must do it right. Here are some tips you should keep in mind.
@@ -54,6 +69,9 @@ When thinking about SEO, people think of Google. And rightly so. It is the large
 
 YouTube descriptions play a huge part in SEO. And description templates make writing appealing descriptions easier for content creators like you.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5 Best YouTube Video Description Template
 
 Now, you are well aware of the importance of YouTube descriptions. That may have made you feel more pressured to write fantastic ones. Here are 5 YouTube description templates you can use so it would not be much of a problem.
@@ -76,6 +94,9 @@ _FOLLOW us on Facebook: <https://www.facebook.com/\[accountname\>]_
 
 Do you have a business that sells products? You can use this template for your new product launches.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. YouTube Video Description for Educational Videos
 
 _Hello! Today we will be discussing \[topic.\] We are joined by \[guest, their title\], and he'll take you through \[topic.\]_
@@ -136,10 +157,16 @@ _\[Plus your other socials.\]_
 
 Use this template for videos where you travel to different places.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## 5 Best YouTube Channel Description Template
 
 People who found your video interesting will likely visit your channel. Having a fantastic YouTube Channel description will help encourage them to subscribe. You can edit these channel description templates to make one.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. YouTube Channel Description Template for Business Accounts
 
 Suppose you are using YouTube for marketing purposes. You can use this template to make your channel description.
@@ -204,6 +231,9 @@ Of course, good video and channel descriptions are useless if your videos aren't
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later ![filmora editing videos](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 Wondershare Filmora is a budget-friendly, beginner-friendly, feature-rich video editor. It also gets regular updates. The latest one introduced fantastic features like enhanced keyframes, draw masks, switchable workspace layouts, and more AI tools. With these tools in your hands, you can transform your YouTube videos into masterpieces.
@@ -218,6 +248,9 @@ With well-written descriptions and high-quality videos, your success on YouTube 
 
 Wondershare Filmora is a budget-friendly, beginner-friendly, feature-rich video editor. It also gets regular updates. The latest one introduced fantastic features like enhanced keyframes, draw masks, switchable workspace layouts, and more AI tools. With these tools in your hands, you can transform your YouTube videos into masterpieces.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 YouTube descriptions are crucial to the success of your YouTube channel. If you can't write a good one by yourself, don't worry. You can use YouTube description [**templates**](https://tools.techidaily.com/wondershare/filmora/download/) to make it easier.
@@ -238,6 +271,9 @@ With well-written descriptions and high-quality videos, your success on YouTube 
 
 ## From Script to Screenplay: Expert Video Editing Insights
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 # How to Edit Youtube Videos by the YouTube Video Editor ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -260,6 +296,9 @@ It's easy to learn and the guide below will give you an introduction for editing
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to edit a YouTube video with Filmora
 
 If you want to have more controls on editing YouTube video, here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -270,8 +309,14 @@ Now, download it now to have a try ![![Download Win Version](https://images.wond
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Use YouTube Video Editor to Edit Video on YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 1. Get access to YouTube Video Editor
 
 Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
@@ -314,12 +359,18 @@ YouTube Video Editor also provides the "Quick fixes" function which does a quick
 
 You can just double click the video to enter the "Quick fixes" tab and easily change brightness and contrast, add slow motion and pan zoom effect, and stabilize, audio fix or rotate video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
 
 #### #3 Add filters
 
 You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
 
 #### #4 Add text to video
@@ -332,6 +383,296 @@ To add text to video, go to the "Text" tab, tick "Enable text" and enter the tex
 
 YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
 
+![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
+
+Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
+
+Another short coming is that you can't edit the audio track at all. If a song is longer than your video, you can do nothing but let it play from the beginning until your video stops.
+
+#### #6 Add transitions to video
+
+If several video clips have been added to the timeline, you need transition to make the whole project smoother. To add transition, go to the Transition tab and choose from 16 transition effects.
+
+![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
+
+YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+This desktop video editing tool can help you easily complete video editing tasks.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+**Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide. Now, it is back again.
+
+Video editing usually requires a fair amount of technical knowledge and professional software. But YouTube has introduced its new YouTube Video Editor. It’s deceptively simple compared to the traditional desktop editing programs.
+
+If you haven’t tried the [YouTube editor](https://tools.techidaily.com/wondershare/filmora/download/), it’s time to get started.
+
+It's easy to learn and the guide below will give you an introduction for editing videos on YouTube.
+
+**You May Also Like:**
+[Royalty free music for YouTube Videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
+[Best Screen Recorders for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[YouTube Video Dimensions/Size: Guide for Upload Settings >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[The Best Video Editors for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## How to edit a YouTube video with Filmora
+
+If you want to have more controls on editing YouTube video, here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+You can use it to trim/cut/split YouTube videos with handy tools. It also offer more than 50 royal free music to use. Various video filters and effects are available to make your videos amazing. The best part is you can apply animated text/titles to videos like a pro. After editing, you can directly upload videos to YouTube.
+
+Now, download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## How to Use YouTube Video Editor to Edit Video on YouTube
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 1. Get access to YouTube Video Editor
+
+Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
+
+Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 2. Add your videos to the timeline
+
+After getting to the editor, all your YouTube videos will appear. If you want to add a clip from the pool of videos into the project, simply drag it onto the timeline or hit the plus icon in the top right hand corner of each clip. You can also add any YouTube videos that were uploaded with a "Creative Commons" license.
+
+To do this, go to the CC tab, find a video and drag it to the timeline.
+
+![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
+
+Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+### Step 3. Edit the videos as you like
+
+With the YouTube video editor, you can quick fix your videos, add audio track of your video, add texts, use various filters and more. Below is a detailed guide on how to use YouTube video Editor.
+
+* [Trim/Cut/Split video](#part11)
+* [Change video settings](#part12)
+* [Add filters](#part13)
+
+* [Add text to video](#part14)
+* [Add music to video](#part15)
+* [Add transitions to video](#part16)
+
+#### #1 Trim/Cut/Split video
+
+To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
+
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
+
+#### #2 Change video settings
+
+YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
+
+You can just double click the video to enter the "Quick fixes" tab and easily change brightness and contrast, add slow motion and pan zoom effect, and stabilize, audio fix or rotate video.
+
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
+
+#### #3 Add filters
+
+You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
+
+#### #4 Add text to video
+
+To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
+
+#### #5 Add music to video
+
+YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
+
+![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
+
+Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
+
+Another short coming is that you can't edit the audio track at all. If a song is longer than your video, you can do nothing but let it play from the beginning until your video stops.
+
+#### #6 Add transitions to video
+
+If several video clips have been added to the timeline, you need transition to make the whole project smoother. To add transition, go to the Transition tab and choose from 16 transition effects.
+
+![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
+
+YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+This desktop video editing tool can help you easily complete video editing tasks.
+
+Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+**Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide. Now, it is back again.
+
+Video editing usually requires a fair amount of technical knowledge and professional software. But YouTube has introduced its new YouTube Video Editor. It’s deceptively simple compared to the traditional desktop editing programs.
+
+If you haven’t tried the [YouTube editor](https://tools.techidaily.com/wondershare/filmora/download/), it’s time to get started.
+
+It's easy to learn and the guide below will give you an introduction for editing videos on YouTube.
+
+**You May Also Like:**
+[Royalty free music for YouTube Videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
+[Best Screen Recorders for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[YouTube Video Dimensions/Size: Guide for Upload Settings >>](https://tools.techidaily.com/wondershare/filmora/download/)  
+[The Best Video Editors for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to edit a YouTube video with Filmora
+
+If you want to have more controls on editing YouTube video, here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+You can use it to trim/cut/split YouTube videos with handy tools. It also offer more than 50 royal free music to use. Various video filters and effects are available to make your videos amazing. The best part is you can apply animated text/titles to videos like a pro. After editing, you can directly upload videos to YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Now, download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+## How to Use YouTube Video Editor to Edit Video on YouTube
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Step 1. Get access to YouTube Video Editor
+
+Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
+
+Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
+
+### Step 2. Add your videos to the timeline
+
+After getting to the editor, all your YouTube videos will appear. If you want to add a clip from the pool of videos into the project, simply drag it onto the timeline or hit the plus icon in the top right hand corner of each clip. You can also add any YouTube videos that were uploaded with a "Creative Commons" license.
+
+To do this, go to the CC tab, find a video and drag it to the timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
+
+Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
+
+### Step 3. Edit the videos as you like
+
+With the YouTube video editor, you can quick fix your videos, add audio track of your video, add texts, use various filters and more. Below is a detailed guide on how to use YouTube video Editor.
+
+* [Trim/Cut/Split video](#part11)
+* [Change video settings](#part12)
+* [Add filters](#part13)
+
+* [Add text to video](#part14)
+* [Add music to video](#part15)
+* [Add transitions to video](#part16)
+
+#### #1 Trim/Cut/Split video
+
+To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
+
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
+
+#### #2 Change video settings
+
+YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
+
+You can just double click the video to enter the "Quick fixes" tab and easily change brightness and contrast, add slow motion and pan zoom effect, and stabilize, audio fix or rotate video.
+
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
+
+#### #3 Add filters
+
+You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
+
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
+
+#### #4 Add text to video
+
+To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
+
+#### #5 Add music to video
+
+YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
 
 Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
@@ -396,6 +737,9 @@ Sign in to your YouTube (or Google) account. To get access to YouTube Video Edit
 
 Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
 
 ### Step 2. Add your videos to the timeline
@@ -408,6 +752,9 @@ To do this, go to the CC tab, find a video and drag it to the timeline.
 
 Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3. Edit the videos as you like
 
 With the YouTube video editor, you can quick fix your videos, add audio track of your video, add texts, use various filters and more. Below is a detailed guide on how to use YouTube video Editor.
@@ -424,6 +771,9 @@ With the YouTube video editor, you can quick fix your videos, add audio track of
 
 To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
 
 #### #2 Change video settings
@@ -438,248 +788,18 @@ You can just double click the video to enter the "Quick fixes" tab and easily ch
 
 You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
 
 #### #4 Add text to video
 
 To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
 
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
-
-#### #5 Add music to video
-
-YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
-
-![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
-
-Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
-
-Another short coming is that you can't edit the audio track at all. If a song is longer than your video, you can do nothing but let it play from the beginning until your video stops.
-
-#### #6 Add transitions to video
-
-If several video clips have been added to the timeline, you need transition to make the whole project smoother. To add transition, go to the Transition tab and choose from 16 transition effects.
-
-![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
-
-YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-This desktop video editing tool can help you easily complete video editing tasks.
-
-Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-**Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide. Now, it is back again.
-
-Video editing usually requires a fair amount of technical knowledge and professional software. But YouTube has introduced its new YouTube Video Editor. It’s deceptively simple compared to the traditional desktop editing programs.
-
-If you haven’t tried the [YouTube editor](https://tools.techidaily.com/wondershare/filmora/download/), it’s time to get started.
-
-It's easy to learn and the guide below will give you an introduction for editing videos on YouTube.
-
-**You May Also Like:**
-[Royalty free music for YouTube Videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-[Best Screen Recorders for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)  
-[YouTube Video Dimensions/Size: Guide for Upload Settings >>](https://tools.techidaily.com/wondershare/filmora/download/)  
-[The Best Video Editors for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## How to edit a YouTube video with Filmora
-
-If you want to have more controls on editing YouTube video, here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-You can use it to trim/cut/split YouTube videos with handy tools. It also offer more than 50 royal free music to use. Various video filters and effects are available to make your videos amazing. The best part is you can apply animated text/titles to videos like a pro. After editing, you can directly upload videos to YouTube.
-
-Now, download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## How to Use YouTube Video Editor to Edit Video on YouTube
-
-### Step 1. Get access to YouTube Video Editor
-
-Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
-
-Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
-
-### Step 2. Add your videos to the timeline
-
-After getting to the editor, all your YouTube videos will appear. If you want to add a clip from the pool of videos into the project, simply drag it onto the timeline or hit the plus icon in the top right hand corner of each clip. You can also add any YouTube videos that were uploaded with a "Creative Commons" license.
-
-To do this, go to the CC tab, find a video and drag it to the timeline.
-
-![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
-
-Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-
-### Step 3. Edit the videos as you like
-
-With the YouTube video editor, you can quick fix your videos, add audio track of your video, add texts, use various filters and more. Below is a detailed guide on how to use YouTube video Editor.
-
-* [Trim/Cut/Split video](#part11)
-* [Change video settings](#part12)
-* [Add filters](#part13)
-
-* [Add text to video](#part14)
-* [Add music to video](#part15)
-* [Add transitions to video](#part16)
-
-#### #1 Trim/Cut/Split video
-
-To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
-
-#### #2 Change video settings
-
-YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
-
-You can just double click the video to enter the "Quick fixes" tab and easily change brightness and contrast, add slow motion and pan zoom effect, and stabilize, audio fix or rotate video.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
-
-#### #3 Add filters
-
-You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
-
-#### #4 Add text to video
-
-To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
-
-#### #5 Add music to video
-
-YouTube also allows you to swap out the audio with one of its licensed tracks. To do this, go back to the main interface of the editor and click the Audio tab. Then select a song from the library and either drag it to the soundtrack timeline or press the plus sign to the right of each title.
-
-![youtube video editor tip](https://images.wondershare.com/images/multimedia/video-editor/add-music-youtube.jpg)
-
-Note: You should note that some are songs are subject to licensing agreements, which means YouTube will automatically add advertisements to the video clip.
-
-Another short coming is that you can't edit the audio track at all. If a song is longer than your video, you can do nothing but let it play from the beginning until your video stops.
-
-#### #6 Add transitions to video
-
-If several video clips have been added to the timeline, you need transition to make the whole project smoother. To add transition, go to the Transition tab and choose from 16 transition effects.
-
-![how to use youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/add-transition-youtube.jpg)
-
-YouTube Video Editor is really easy to use, but it only provides some basic video editing functions and is really easy to crash when dealing with large file. If you want to make your video more professional, try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-This desktop video editing tool can help you easily complete video editing tasks.
-
-Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-**Note:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide. Now, it is back again.
-
-Video editing usually requires a fair amount of technical knowledge and professional software. But YouTube has introduced its new YouTube Video Editor. It’s deceptively simple compared to the traditional desktop editing programs.
-
-If you haven’t tried the [YouTube editor](https://tools.techidaily.com/wondershare/filmora/download/), it’s time to get started.
-
-It's easy to learn and the guide below will give you an introduction for editing videos on YouTube.
-
-**You May Also Like:**
-[Royalty free music for YouTube Videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-[Best Screen Recorders for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)  
-[YouTube Video Dimensions/Size: Guide for Upload Settings >>](https://tools.techidaily.com/wondershare/filmora/download/)  
-[The Best Video Editors for YouTube >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## How to edit a YouTube video with Filmora
-
-If you want to have more controls on editing YouTube video, here we recommend using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-You can use it to trim/cut/split YouTube videos with handy tools. It also offer more than 50 royal free music to use. Various video filters and effects are available to make your videos amazing. The best part is you can apply animated text/titles to videos like a pro. After editing, you can directly upload videos to YouTube.
-
-Now, download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## How to Use YouTube Video Editor to Edit Video on YouTube
-
-### Step 1. Get access to YouTube Video Editor
-
-Sign in to your YouTube (or Google) account. To get access to YouTube Video Editor, you can go directly to [YouTube studio (video editor)](https://studio.youtube.com). Or click avatar icon in your YouTube site > YouTube Studio.
-
-Learn more about [Upload MP3 to YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/youtube-video-editor.jpg "youtube video editor")
-
-### Step 2. Add your videos to the timeline
-
-After getting to the editor, all your YouTube videos will appear. If you want to add a clip from the pool of videos into the project, simply drag it onto the timeline or hit the plus icon in the top right hand corner of each clip. You can also add any YouTube videos that were uploaded with a "Creative Commons" license.
-
-To do this, go to the CC tab, find a video and drag it to the timeline.
-
-![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
-
-Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
-
-### Step 3. Edit the videos as you like
-
-With the YouTube video editor, you can quick fix your videos, add audio track of your video, add texts, use various filters and more. Below is a detailed guide on how to use YouTube video Editor.
-
-* [Trim/Cut/Split video](#part11)
-* [Change video settings](#part12)
-* [Add filters](#part13)
-
-* [Add text to video](#part14)
-* [Add music to video](#part15)
-* [Add transitions to video](#part16)
-
-#### #1 Trim/Cut/Split video
-
-To cut or split your video, hover over the target clip and hit the scissor icon to cut the clip into pieces. You can also cursor over the edge of your video in the timeline and drag the handle to shorten or trim your video.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
-
-#### #2 Change video settings
-
-YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
-
-You can just double click the video to enter the "Quick fixes" tab and easily change brightness and contrast, add slow motion and pan zoom effect, and stabilize, audio fix or rotate video.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
-
-#### #3 Add filters
-
-You can also add stunning video filters provided by this editor. To get access this function, double click the video and switch to the "Filter" tab.
-
-![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-filters.png "youtube video editor")
-
-#### #4 Add text to video
-
-To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
 
 #### #5 Add music to video
@@ -727,3 +847,52 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-crafting-a-youtube-future-scaling-up-or-staying-independent/"><u>[New] 2024 Approved  Crafting a YouTube Future  Scaling Up or Staying Independent?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagrams-secrets-selective-story-watching/"><u>[New] 2024 Approved  Instagram's Secrets - Selective Story Watching</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-android-dominance-top-10-moba-games-showcase-for-2024/"><u>[New] Android Dominance  Top 10 MOBA Games Showcase for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eciphering-youtubes-profit-for-a-mil-of-viewers-for-2024/"><u>[New] Deciphering YouTube’s Profit for A Mil of Viewers for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-gamers-eden-record-without-paying-in-24/"><u>[New] Gamers' Eden  Record Without Paying in '24</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-creating-humor-making-funny-parody-videos/"><u>[New] In 2024, Creating Humor  Making Funny Parody Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unleash-creative-potential-with-top-tips-for-gopro-timelapses-for-2024/"><u>[New] Unleash Creative Potential with Top Tips for GoPro Timelapses for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-digital-dance-of-popularity-alike-or-likeit-more-who-wins-over-tiktok/"><u>[Updated] 2024 Approved  Digital Dance of Popularity  Alike or LikeIt More, Who Wins Over TikTok?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-unlocking-the-potential-of-pc-based-tiktok-live-shows-for-2024/"><u>[Updated] Unlocking the Potential of PC-Based TikTok Live Shows for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-8-popular-oculus-rift-games/"><u>2024 Approved  8 Popular Oculus Rift Games</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-eye-catching-typography-top-5-font-tools-to-propel-your-tiktok-growth/"><u>2024 Approved  Eye-Catching Typography  Top 5 Font Tools to Propel Your TikTok Growth</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-recovery-mode-on-apple-iphone-7-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit Recovery Mode on Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Vivo S18 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-srt-a-thorough-exploration-of-its-essence/"><u>In 2024, Mastering SRT  A Thorough Exploration of Its Essence</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-professional-techniques-for-effective-voice-recording-on-galaxy-s10s9-devices/"><u>In 2024, Professional Techniques for Effective Voice Recording on Galaxy S10/S9 Devices</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/join-the-fun-top-5-free-online-video-merger-tools-you-need-to-try-for-2024/"><u>Join the Fun Top 5 Free Online Video Merger Tools You Need to Try for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/journey-through-the-stars-with-these-innovative-science-youtubers/"><u>Journey Through the Stars with These Innovative Science YouTubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/journey-through-time-with-these-top-10-historical-youtube-sources/"><u>Journey Through Time with These Top 10 Historical YouTube Sources</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/journey-through-virtuality-youtubes-best-10/"><u>Journey Through Virtuality  YouTube's Best 10</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/journey-through-youtubes-spectacular-vr-realms/"><u>Journey Through YouTube's Spectacular VR Realms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/joyful-jests-crafting-top-humorous-content-ideas-for-youtubers/"><u>Joyful Jests  Crafting Top Humorous Content Ideas for YouTubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/joyful-jokes-youtubes-funniest-creators-to-relax-with/"><u>Joyful Jokes  YouTube's Funniest Creators to Relax With</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/juggling-youtube-success-and-full-time-work-a-guide/"><u>Juggling YouTube Success & Full-Time Work  A Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/jump-into-sub4sub-guide-awaits-to-ensure-success/"><u>Jump Into Sub4sub - Guide Awaits to Ensure Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>Jumpstart to Partner Elevation  Secure 10K Views in Minutes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/jumpstart-traffic-top-tier-video-seo-tools/"><u>Jumpstart Traffic – Top-Tier Video SEO Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/jumpstart-your-journey-essential-youtubing-skills-course/"><u>Jumpstart Your Journey  Essential YouTubing Skills Course</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/jumpstart-your-youtube-channel-growth-with-key-editing-skills-from-sony-vegas/"><u>Jumpstart Your YouTube Channel Growth with Key Editing Skills From Sony Vegas</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-it-legal-how-to-convert-youtube-to-mp4-safely/"><u>Keep It Legal  How to Convert YouTube to MP4 Safely</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-it-real-keep-it-right-tips-for-authentic-daily-videos/"><u>Keep It Real, Keep It Right  Tips for Authentic Daily Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-the-vision-clear-without-rests/"><u>Keep the Vision Clear Without Rests</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-them-coming-back-top-6-ways-to-enhance-your-audiences-staying-power-on-youtube/"><u>Keep Them Coming Back  Top 6 Ways To Enhance Your Audience's Staying Power on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-watching-youtube-on-the-go-with-iphoneandroid/"><u>Keep Watching YouTube On-the-Go with iPhone/Android</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-your-videos-trending-on-youtube-by-sustaining-creative-commitments/"><u>Keep Your Videos Trending on YouTube by Sustaining Creative Commitments</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/keep-your-youtube-stream-lining-in-background/"><u>Keep Your YouTube Stream Lining in Background</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/key-approaches-to-building-effective-youtube-collaborations/"><u>Key Approaches to Building Effective YouTube Collaborations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/key-audio-equipment-for-content-creators/"><u>Key Audio Equipment for Content Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/key-factors-for-long-term-profitability-with-youtube-shorts/"><u>Key Factors for Long-Term Profitability with YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/key-insights-fifa-content-on-youtube-charted/"><u>Key Insights  FIFA Content on YouTube Charted</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/key-points-to-remember-a-comprehensive-look-at-youtube-tv/"><u>Key Points to Remember  A Comprehensive Look at YouTube TV</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/moving-the-crowd-discover-trending-simple-tiktok-beats/"><u>Moving the Crowd  Discover Trending, Simple TikTok Beats</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-open-source-video-editing-top-10-free-tools/"><u>New In 2024, Open-Source Video Editing Top 10 Free Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Nokia C12 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+</ul></div>

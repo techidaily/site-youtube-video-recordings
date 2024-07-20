@@ -1,7 +1,7 @@
 ---
 title: "\"FIFA Footage Analysis  Trendy Video Patterns\""
-date: 2024-05-25T11:52:38.278Z
-updated: 2024-05-26T11:52:38.278Z
+date: 2024-07-19T05:57:31.153Z
+updated: 2024-07-20T05:57:31.153Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes FIFA Footage Analysis: Trendy Video Patterns\""
 excerpt: "\"This Article Describes FIFA Footage Analysis: Trendy Video Patterns\""
 keywords: "FIFA Footage Trends,Soccer Video Patterns,Footage Analytics,Video Sports Trends,Football Film Analysis,Soccer Media Insights,Video Game Football Trends"
-thumbnail: https://www.lifewire.com/thmb/yUwTZpCNo69jlc1KnyqQFn2f6SQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-screen-mirroring-842272124-5a7897e104d1cf0037763c0a.jpg
+thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c3cb7fed4a8969e3e80f00a3.jpg
 ---
 
 ## FIFA Footage Analysis: Trendy Video Patterns
@@ -28,6 +28,9 @@ The 2018 FIFA World Cup Russia is over for another four years and the grand fina
 
 We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
 
 ## Football Content Has Never Been More Popular on YouTube
@@ -44,6 +47,52 @@ Music videos related to previous World Cups have attracted 12% of women more tha
 
 As a matter of fact, football audiences are also largely attracted to gaming content, entertainment, and music videos since as much as 18% of the football audience frequently watches entertainment videos.
 
+## Are Sports the Next Big Thing On YouTube?
+
+At the moment, sports videos are growing faster than any other genre of videos you can find on YouTube, including entertainment or music, while the branded partnerships in this niche are growing 111% faster than all of the sports videos combined. The window of opportunity is clear for all brands that support sports activities.
+
+Furthermore, brand ads for corporate giants such as Nike, Gatorade or Addidas attracted millions of views, which means that the leading brands in the world of sports have recognized YouTube as a marketplace they can no longer ignore. Brands that want to gain more recognition on the international market can seize this opportunity to team up with influencers on YouTube to present and broaden the reach of their products.
+
+Besides soccer that is currently dominating the largest video sharing platform in the world, basketball, extreme sports and winter sports also provide access to huge audiences and show promising signs that they can help brands and influencers generate more revenue. Popular YouTubers should try to include more sports-related videos on their channels because it might help them attract new followers and secure a foothold in a rapidly growing market.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The 2018 FIFA World Cup Russia is over for another four years and the grand finale of this tournament was really outstanding, and France won the World Cup for the second time after overcoming Croatia 4-2 in a thrilling final in Moscow. While the entire world is anxiously about the 2018 FIFA World Cup, the football videos on YouTube are booming. In fact, the football-related searches on this platform have been soaring in the months leading up to the 2018 FIFA World Cup, despite the fact that some of the most popular football clubs in the world are still ignoring how powerful YouTube has become.
+
+We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
+
+![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Football Content Has Never Been More Popular on YouTube
+
+The football gods, like Cristiano Ronaldo, Lionel Messi or Neymar Jr are making enormous amounts of money, in addition to having an iconic status in the mass media. Such state of affairs explains why YouTube videos with these superstars saw an 80% increase in watch time over the course of the last year.
+
+Interestingly, the highest amount of football-related searches on the world's largest video sharing platform are coming from the South American and European countries. For example, France's young star Kylian Mbappé is a popular search in his home country, while videos of Messi, Ronaldo or Neymar are popular searches around the globe.
+
+The number of YouTube users who are watching the game highlights has doubled over the course of the last two years, while the number of match recap viewers has increased 9 times since the last World Cup in 2014\. The live streaming content related to football is also gaining momentum, although it still isn't nearly as popular as the Trick Shot videos or Drills and Skills videos that saw a 6x increase in watch time in the last four years.
+
+Furthermore, some of the most viewed videos on YouTube are football related, since Shakira's Waka Waka, the official 2010 World Cup song currently has 1.9 billion views. These statistics show how big the football audience on YouTube really is, and that brands and independent entrepreneurs have much to gain by including football related content on their YouTube channels.
+
+Music videos related to previous World Cups have attracted 12% of women more than the videos that show footage of the Euro Cup, which clearly demonstrates that large audiences can be reached if the video doesn't include the actual gameplay.
+
+As a matter of fact, football audiences are also largely attracted to gaming content, entertainment, and music videos since as much as 18% of the football audience frequently watches entertainment videos.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Are Sports the Next Big Thing On YouTube?
 
 At the moment, sports videos are growing faster than any other genre of videos you can find on YouTube, including entertainment or music, while the branded partnerships in this niche are growing 111% faster than all of the sports videos combined. The window of opportunity is clear for all brands that support sports activities.
@@ -92,6 +141,9 @@ Furthermore, brand ads for corporate giants such as Nike, Gatorade or Addidas at
 
 Besides soccer that is currently dominating the largest video sharing platform in the world, basketball, extreme sports and winter sports also provide access to huge audiences and show promising signs that they can help brands and influencers generate more revenue. Popular YouTubers should try to include more sports-related videos on their channels because it might help them attract new followers and secure a foothold in a rapidly growing market.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -108,6 +160,9 @@ The 2018 FIFA World Cup Russia is over for another four years and the grand fina
 
 We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
 
 ## Football Content Has Never Been More Popular on YouTube
@@ -124,46 +179,9 @@ Music videos related to previous World Cups have attracted 12% of women more tha
 
 As a matter of fact, football audiences are also largely attracted to gaming content, entertainment, and music videos since as much as 18% of the football audience frequently watches entertainment videos.
 
-## Are Sports the Next Big Thing On YouTube?
+<!-- affiliate ads begin -->
 
-At the moment, sports videos are growing faster than any other genre of videos you can find on YouTube, including entertainment or music, while the branded partnerships in this niche are growing 111% faster than all of the sports videos combined. The window of opportunity is clear for all brands that support sports activities.
-
-Furthermore, brand ads for corporate giants such as Nike, Gatorade or Addidas attracted millions of views, which means that the leading brands in the world of sports have recognized YouTube as a marketplace they can no longer ignore. Brands that want to gain more recognition on the international market can seize this opportunity to team up with influencers on YouTube to present and broaden the reach of their products.
-
-Besides soccer that is currently dominating the largest video sharing platform in the world, basketball, extreme sports and winter sports also provide access to huge audiences and show promising signs that they can help brands and influencers generate more revenue. Popular YouTubers should try to include more sports-related videos on their channels because it might help them attract new followers and secure a foothold in a rapidly growing market.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The 2018 FIFA World Cup Russia is over for another four years and the grand finale of this tournament was really outstanding, and France won the World Cup for the second time after overcoming Croatia 4-2 in a thrilling final in Moscow. While the entire world is anxiously about the 2018 FIFA World Cup, the football videos on YouTube are booming. In fact, the football-related searches on this platform have been soaring in the months leading up to the 2018 FIFA World Cup, despite the fact that some of the most popular football clubs in the world are still ignoring how powerful YouTube has become.
-
-We have produced the infographic below which clearly shows how popular football videos are on YouTube, so let's have a look at some of the mind-blowing facts we've discovered.
-
-![top insights into football videos on youtube](https://filmora.wondershare.com/youtube-video-editing/top-insights-into-football-videos-on-youtube.png)
-
-## Football Content Has Never Been More Popular on YouTube
-
-The football gods, like Cristiano Ronaldo, Lionel Messi or Neymar Jr are making enormous amounts of money, in addition to having an iconic status in the mass media. Such state of affairs explains why YouTube videos with these superstars saw an 80% increase in watch time over the course of the last year.
-
-Interestingly, the highest amount of football-related searches on the world's largest video sharing platform are coming from the South American and European countries. For example, France's young star Kylian Mbappé is a popular search in his home country, while videos of Messi, Ronaldo or Neymar are popular searches around the globe.
-
-The number of YouTube users who are watching the game highlights has doubled over the course of the last two years, while the number of match recap viewers has increased 9 times since the last World Cup in 2014\. The live streaming content related to football is also gaining momentum, although it still isn't nearly as popular as the Trick Shot videos or Drills and Skills videos that saw a 6x increase in watch time in the last four years.
-
-Furthermore, some of the most viewed videos on YouTube are football related, since Shakira's Waka Waka, the official 2010 World Cup song currently has 1.9 billion views. These statistics show how big the football audience on YouTube really is, and that brands and independent entrepreneurs have much to gain by including football related content on their YouTube channels.
-
-Music videos related to previous World Cups have attracted 12% of women more than the videos that show footage of the Euro Cup, which clearly demonstrates that large audiences can be reached if the video doesn't include the actual gameplay.
-
-As a matter of fact, football audiences are also largely attracted to gaming content, entertainment, and music videos since as much as 18% of the football audience frequently watches entertainment videos.
-
+<!-- affiliate ads end -->
 ## Are Sports the Next Big Thing On YouTube?
 
 At the moment, sports videos are growing faster than any other genre of videos you can find on YouTube, including entertainment or music, while the branded partnerships in this niche are growing 111% faster than all of the sports videos combined. The window of opportunity is clear for all brands that support sports activities.
@@ -192,6 +210,9 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Twinkling Typefaces: The Essence of Bouncy Text
 
 # How to Create Animated Bouncing Text
@@ -228,16 +249,25 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -246,6 +276,9 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -258,6 +291,9 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -312,6 +348,9 @@ Follow @Liza Brown
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -354,8 +393,14 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -406,6 +451,9 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -420,6 +468,9 @@ Follow @Liza Brown
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -454,6 +505,9 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -462,6 +516,9 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -514,6 +571,9 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -528,6 +588,9 @@ Follow @Liza Brown
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -546,6 +609,9 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
 **Step 3: Add Shake Filters**
@@ -556,6 +622,9 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
@@ -622,6 +691,9 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -645,3 +717,61 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-master-list-the-finest-no-money-video-player-tools-and-software-pcmobile/"><u>[New] Master List  The Finest No-Money Video Player Tools & Software (PC/Mobile)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfecting-post-production-on-tiktok-via-zoom/"><u>[New] Perfecting Post-Production on TikTok via Zoom</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-compelling-content-with-personalized-video-setups/"><u>[Updated] Creating Compelling Content with Personalized Video Setups</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-cost-effective-youtube-closure-elements/"><u>[Updated] Creating Cost-Effective YouTube Closure Elements</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-custom-subscribe-urls-for-online-content/"><u>[Updated] Creating Custom Subscribe URLs for Online Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-dynamic-content-with-youtube-playlist-embedding/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-engaging-youtube-content-a-step-by-step-approach/"><u>[Updated] Creating Engaging YouTube Content  A Step-by-Step Approach</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-impressive-3d-beginnings-on-youtube/"><u>[Updated] Creating Impressive 3D Beginnings on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-impressive-video-tracks-with-a-newbie-mac-user/"><u>[Updated] Creating Impressive Video Tracks with a Newbie Mac User</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-professional-edits-using-youtube-studio-editor/"><u>[Updated] Creating Professional Edits Using YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-profit-on-youtube-the-ultimate-list-of-top-business-channels/"><u>[Updated] Creating Profit on YouTube  The Ultimate List of Top Business Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-revenue-in-gamer-channels/"><u>[Updated] Creating Revenue in Gamer Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-seamless-connections-spotify-to-youtube-music-conversion/"><u>[Updated] Creating Seamless Connections  Spotify to YouTube Music Conversion</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-striking-channel-imagery-best-practices-for-success/"><u>[Updated] Creating Striking Channel Imagery  Best Practices for Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-unique-youtube-music-mixtapes/"><u>[Updated] Creating Unique YouTube Music Mixtapes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-viral-haul-videos-a-comprehensible-guide/"><u>[Updated] Creating Viral Haul Videos  A Comprehensible Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creative-camerawork-innovative-techniques-for-video-savvy-youtubers/"><u>[Updated] Creative Camerawork  Innovative Techniques for Video-Savvy YouTubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creative-conjurations-youtube-editing-wonders/"><u>[Updated] Creative Conjurations  YouTube Editing Wonders</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creative-vanguard-audio-visual-convergence/"><u>[Updated] Creative Vanguard  Audio-Visual Convergence</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creative-vlog-ideas-for-daily-use/"><u>[Updated] Creative Vlog Ideas for Daily Use</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creator-revenue-streams-amidst-the-world-of-youtube-shorts/"><u>[Updated] Creator Revenue Streams Amidst the World of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crescendo-control-secure-sound-sharing-online/"><u>[Updated] Crescendo Control  Secure Sound Sharing Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-critical-asmr-series-to-experience/"><u>[Updated] Critical ASMR Series to Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-critical-asmr-video-elements-to-note/"><u>[Updated] Critical ASMR Video Elements to Note</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-critical-components-affecting-youtube-video-scores/"><u>[Updated] Critical Components Affecting YouTube Video Scores</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-critical-game-analysis-from-top-creators/"><u>[Updated] Critical Game Analysis From Top Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cross-platform-content-excellence-the-full-guide-on-linked-youtube-plus-tiktok-accounts/"><u>[Updated] Cross-Platform Content Excellence  The Full Guide on Linked YouTube + TikTok Accounts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cross-platform-dimensions-titling-for-ytb-shorts-and-beyond/"><u>[Updated] Cross-Platform Dimensions  Titling for YTB Shorts & Beyond</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cross-platform-streaming-techniques-from-youtube-to-30plus-platforms/"><u>[Updated] Cross-Platform Streaming Techniques  From YouTube to 30+ Platforms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crucial-details-for-deciding-on-a-youtube-tv-subscription/"><u>[Updated] Crucial Details for Deciding on a YouTube TV Subscription</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-culinary-callings-innovative-naming-for-foodie-channels/"><u>[Updated] Culinary Callings  Innovative Naming for Foodie Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-culinary-carousel-swirling-up-top-food-network-names/"><u>[Updated] Culinary Carousel  Swirling Up Top Food Network Names</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-culinary-comrades-youtubes-best-food-blogs/"><u>[Updated] Culinary Comrades  YouTube's Best Food Blogs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-culinary-craftsmanship-innovative-naming-for-food-shows/"><u>[Updated] Culinary Craftsmanship  Innovative Naming for Food Shows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-forge-funny-online-content-on-the-fly/"><u>[Updated] Forge Funny Online Content on the Fly</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-enhance-engagement-personalize-twitter-videos-with-new-thumbnails/"><u>[Updated] In 2024, Enhance Engagement  Personalize Twitter Videos with New Thumbnails</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-restoring-rightful-representation-amidst-misguided-chatter/"><u>[Updated] Restoring Rightful Representation Amidst Misguided Chatter</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-swift-students-guide-to-bypassing-edgenuity-videos/"><u>[Updated] The Swift Student's Guide to Bypassing Edgenuity Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harnessing-digital-artistry-top-6-nft-makers-reviewed/"><u>2024 Approved  Harnessing Digital Artistry - Top 6 NFT Makers Reviewed</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-edit-flv-videos-for-free-top-5-software-options/"><u>2024 Approved Edit FLV Videos for Free Top 5 Software Options</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/celebrity-voice-changer-key-features-user-guides-and-alternatives/"><u>Celebrity Voice Changer Key Features, User Guides and Alternatives</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/crafting-and-gauging-the-success-of-fb-instream-ads/"><u>Crafting and Gauging the Success of FB Instream Ads</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-xiaomi-redmi-12-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Xiaomi Redmi 12 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-create-a-sports-highlight-video/"><u>How to Create a Sports Highlight Video</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/how-to-loop-a-video-on-android-for-2024/"><u>How to Loop a Video on Android for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-channel-cash-flow-management-for-youtubers/"><u>In 2024, Channel Cash Flow Management for YouTubers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-m1-dominance-video-editors-rejoice-in-seamless-experience/"><u>In 2024, M1 Dominance  Video Editors Rejoice in Seamless Experience</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-setup-the-finest-4k-dslr-shoulder-rigs-reviewed/"><u>In 2024, Prime Setup  The Finest 4K DSLR Shoulder Rigs Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-speech-to-text-perfectionism-unleash-with-google-ai/"><u>In 2024, Speech-to-Text Perfectionism  Unleash with Google AI</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/innovative-mc-shelter-design-tips-for-2024/"><u>Innovative MC Shelter Design Tips for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/stop-the-stop-start-prevent-freezing-on-photo-booth-for-2024/"><u>Stop the Stop-Start  Prevent Freezing on Photo Booth for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unveiling-worlds-in-virtual-reality-tours/"><u>Unveiling Worlds in Virtual Reality Tours</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Vivo Y78 5G | Dr.fone</u></a></li>
+</ul></div>

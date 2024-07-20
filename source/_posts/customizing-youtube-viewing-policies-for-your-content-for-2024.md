@@ -1,7 +1,7 @@
 ---
 title: "Customizing YouTube Viewing Policies for Your Content for 2024"
-date: 2024-05-25T11:35:11.669Z
-updated: 2024-05-26T11:35:11.669Z
+date: 2024-07-19T05:44:46.601Z
+updated: 2024-07-20T05:44:46.601Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Customizing YouTube Viewing Policies for Your Content for 2024"
 excerpt: "This Article Describes Customizing YouTube Viewing Policies for Your Content for 2024"
 keywords: "YouTubes Custom Policy,Content Viewership Rules,Personalized YouTube Policy,YouTube Viewing Guidelines,Tailored Video Watch Policy,Editing YouTube Restrictions,Policies for Video Consumption"
-thumbnail: https://www.lifewire.com/thmb/GoAax8nJwi0NijvEzoxiibKbKJo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2019-09-13at1.09.03PM-ddf604a03c214e72a2d639f50c6d5cc4.jpg
+thumbnail: https://thmb.techidaily.com/0091dc61c65475448e6b20380c1ba19b6aec743f43714543b259bc14c7475306.jpg
 ---
 
 ## Customizing YouTube Viewing Policies for Your Content
@@ -58,8 +58,14 @@ thumbnail: https://www.lifewire.com/thmb/GoAax8nJwi0NijvEzoxiibKbKJo=/400x300/fi
 
  It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -68,6 +74,9 @@ thumbnail: https://www.lifewire.com/thmb/GoAax8nJwi0NijvEzoxiibKbKJo=/400x300/fi
 
  When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 **Method 2:**
@@ -78,6 +87,111 @@ thumbnail: https://www.lifewire.com/thmb/GoAax8nJwi0NijvEzoxiibKbKJo=/400x300/fi
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Sharing Private Videos
+
+ If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+## Conclusion
+
+ And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Privacy settings on YouTube allow you to control who can see your videos. There are three settings — Public, unlisted, and private. This article will give you a brief introduction of what those three settings mean, and how to use them.
+
+* [**Part1: Public VS Unlisted VS Private**](#part1)
+* [**Part2: How to Change Privacy Settings**](#part2)
+* [**Part2: Sharing Private Videos**](#part3)
+
+---
+
+ Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## Part 1: Public VS Unlisted VS Private
+
+ Let's figure out some terms before runing into the how-to part.
+
+ **Public Videos**
+
+ These are videos that everyone can view. This is the majority of YouTube videos, and just about every one you’ve ever watched will have been public. You'll want this if you want lots of people to watch your video.
+
+ **Unlisted**
+
+ Unlisted videos are ones that anybody can view so long as they have the link. The video won’t show up on search results or in "related" or "suggested" videos.
+
+ This is a great setting for sharing a video amongst small groups. You might have a rough edit you want to show a few people, or you might have a show reel that you only want certain people to see.
+
+ **Private**
+
+ Completely private videos cannot be watched by anyone who doesn’t have permission. You grant people permission by allowing their Google accounts to access the video. Nobody else can see the video, regardless of whether they have the link.
+
+ It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Change Privacy Settings
+
+ There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
+
+**Method 1:**
+
+ When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
+
+**Method 2:**
+
+ To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
+
+![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+ To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -88,6 +202,113 @@ thumbnail: https://www.lifewire.com/thmb/GoAax8nJwi0NijvEzoxiibKbKJo=/400x300/fi
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Privacy settings on YouTube allow you to control who can see your videos. There are three settings — Public, unlisted, and private. This article will give you a brief introduction of what those three settings mean, and how to use them.
+
+* [**Part1: Public VS Unlisted VS Private**](#part1)
+* [**Part2: How to Change Privacy Settings**](#part2)
+* [**Part2: Sharing Private Videos**](#part3)
+
+---
+
+ Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## Part 1: Public VS Unlisted VS Private
+
+ Let's figure out some terms before runing into the how-to part.
+
+ **Public Videos**
+
+ These are videos that everyone can view. This is the majority of YouTube videos, and just about every one you’ve ever watched will have been public. You'll want this if you want lots of people to watch your video.
+
+ **Unlisted**
+
+ Unlisted videos are ones that anybody can view so long as they have the link. The video won’t show up on search results or in "related" or "suggested" videos.
+
+ This is a great setting for sharing a video amongst small groups. You might have a rough edit you want to show a few people, or you might have a show reel that you only want certain people to see.
+
+ **Private**
+
+ Completely private videos cannot be watched by anyone who doesn’t have permission. You grant people permission by allowing their Google accounts to access the video. Nobody else can see the video, regardless of whether they have the link.
+
+ It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How to Change Privacy Settings
+
+ There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
+
+**Method 1:**
+
+ When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
+
+**Method 2:**
+
+ To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
+
+![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+ To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: Sharing Private Videos
+
+ If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+## Conclusion
+
+ And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -146,6 +367,9 @@ Follow @Richard Bennett
 
  When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 **Method 2:**
@@ -156,6 +380,9 @@ Follow @Richard Bennett
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -168,162 +395,18 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- Privacy settings on YouTube allow you to control who can see your videos. There are three settings — Public, unlisted, and private. This article will give you a brief introduction of what those three settings mean, and how to use them.
-
-* [**Part1: Public VS Unlisted VS Private**](#part1)
-* [**Part2: How to Change Privacy Settings**](#part2)
-* [**Part2: Sharing Private Videos**](#part3)
-
----
-
- Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## Part 1: Public VS Unlisted VS Private
-
- Let's figure out some terms before runing into the how-to part.
-
- **Public Videos**
-
- These are videos that everyone can view. This is the majority of YouTube videos, and just about every one you’ve ever watched will have been public. You'll want this if you want lots of people to watch your video.
-
- **Unlisted**
-
- Unlisted videos are ones that anybody can view so long as they have the link. The video won’t show up on search results or in "related" or "suggested" videos.
-
- This is a great setting for sharing a video amongst small groups. You might have a rough edit you want to show a few people, or you might have a show reel that you only want certain people to see.
-
- **Private**
-
- Completely private videos cannot be watched by anyone who doesn’t have permission. You grant people permission by allowing their Google accounts to access the video. Nobody else can see the video, regardless of whether they have the link.
-
- It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
-
-![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
-
-## Part 2: How to Change Privacy Settings
-
- There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
-
-**Method 1:**
-
- When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
-
-![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
-
-**Method 2:**
-
- To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
-
-![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
-
- To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
-## Part 3: Sharing Private Videos
-
- If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
-
-![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
-
-## Conclusion
-
- And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- Privacy settings on YouTube allow you to control who can see your videos. There are three settings — Public, unlisted, and private. This article will give you a brief introduction of what those three settings mean, and how to use them.
-
-* [**Part1: Public VS Unlisted VS Private**](#part1)
-* [**Part2: How to Change Privacy Settings**](#part2)
-* [**Part2: Sharing Private Videos**](#part3)
-
----
-
- Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## Part 1: Public VS Unlisted VS Private
-
- Let's figure out some terms before runing into the how-to part.
-
- **Public Videos**
-
- These are videos that everyone can view. This is the majority of YouTube videos, and just about every one you’ve ever watched will have been public. You'll want this if you want lots of people to watch your video.
-
- **Unlisted**
-
- Unlisted videos are ones that anybody can view so long as they have the link. The video won’t show up on search results or in "related" or "suggested" videos.
-
- This is a great setting for sharing a video amongst small groups. You might have a rough edit you want to show a few people, or you might have a show reel that you only want certain people to see.
-
- **Private**
-
- Completely private videos cannot be watched by anyone who doesn’t have permission. You grant people permission by allowing their Google accounts to access the video. Nobody else can see the video, regardless of whether they have the link.
-
- It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
-
-![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
-
-## Part 2: How to Change Privacy Settings
-
- There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
-
-**Method 1:**
-
- When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
-
-![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
-
-**Method 2:**
-
- To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
-
-![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
-
- To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
-## Part 3: Sharing Private Videos
-
- If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
-
-![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
-
-## Conclusion
-
- And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -344,6 +427,9 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Efface Thin Borders for a Seamless YouTube Experience
 
 # How to Remove Black Bars from YouTube Videos
@@ -373,6 +459,9 @@ Follow @Richard Bennett
 * Set your desired frameset (16:9, 4:3 or customized aspect ratio) and see your video in the preview pane.
 * Save the new video without the black bars by clicking on "Export".
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2\.  Sony Vegas Pro
@@ -405,6 +494,9 @@ Follow @Richard Bennett
 
  It is very simple to remove black bars from existing YouTube videos or while uploading a video. Click on the Edit button next to the video, and add the most suited instruction in the Tag bar below:
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Remove black bars from youtube videos](https://images.wondershare.com/filmora/article-images/remove-black-bars-from-youtube.jpg)
 
  **yt:crop=16:9**
@@ -484,6 +576,9 @@ Follow @Richard Bennett
 
  It is very simple to remove black bars from existing YouTube videos or while uploading a video. Click on the Edit button next to the video, and add the most suited instruction in the Tag bar below:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Remove black bars from youtube videos](https://images.wondershare.com/filmora/article-images/remove-black-bars-from-youtube.jpg)
 
  **yt:crop=16:9**
@@ -531,6 +626,9 @@ Follow @Richard Bennett
 * Set your desired frameset (16:9, 4:3 or customized aspect ratio) and see your video in the preview pane.
 * Save the new video without the black bars by clicking on "Export".
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2\.  Sony Vegas Pro
@@ -596,6 +694,9 @@ Follow @Richard Bennett
 * [Part 1: Removing the black bars before uploading](#part1)
 * [Part 2: Removing the black bars from uploaded YouTube videos](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Remove the black bars before uploading
 
  You can make use of the following software to remove the black bars from your videos.
@@ -642,6 +743,9 @@ Follow @Richard Bennett
 
  It is very simple to remove black bars from existing YouTube videos or while uploading a video. Click on the Edit button next to the video, and add the most suited instruction in the Tag bar below:
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Remove black bars from youtube videos](https://images.wondershare.com/filmora/article-images/remove-black-bars-from-youtube.jpg)
 
  **yt:crop=16:9**
@@ -681,3 +785,55 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-improve-aesthetics-techniques-for-instagram-video-borders/"><u>[New] 2024 Approved  Improve Aesthetics  Techniques for Instagram Video Borders</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-techniques-for-forming-youtube-collab-videos/"><u>[New] Essential Techniques for Forming YouTube Collab Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-melody-mix-up-how-to-tune-your-facebook-videos-with-songs/"><u>[New] Melody Mix-Up  How to Tune Your Facebook Videos with Songs</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels/"><u>[Updated] Green Screen Mastery  Essential Free Lessons From YouTube's Best 4 Channels</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hide-identity-in-images-best-face-cutting-apps-revealed/"><u>[Updated] Hide Identity in Images  Best Face-Cutting Apps Revealed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-chorus-cache-secure-and-inspect-audio-recordings/"><u>2024 Approved  Chorus Cache  Secure & Inspect Audio Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-fb-a-resource-for-video-discovery-enthusiasts/"><u>2024 Approved  FB   A Resource for Video Discovery Enthusiasts</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-navigating-the-soundscape-of-premiere-pro-simple-strategies-for-audio-layer-management/"><u>2024 Approved Navigating the Soundscape of Premiere Pro Simple Strategies for Audio Layer Management</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-vivo-y200-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Vivo Y200.</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p40-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Itel P40 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-12-mini-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone 12 mini Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-a-guide-to-using-obs-studio-to-stream-to-facebook-for-2024/"><u>New A Guide to Using OBS Studio To Stream to Facebook for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-pro-video-editors-choice-10-invaluable-plugins-for-seamless-cutting-and-trimming-for-2024/"><u>New Pro Video Editors Choice 10 Invaluable Plugins for Seamless Cutting and Trimming for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamline-your-vlog-with-video-length-optimization/"><u>Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamline-your-youtube-experience-creating-custom-subscription-bar-with-filmora/"><u>Streamline Your YouTube Experience  Creating Custom Subscription Bar with Filmora</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamline-your-youtube-productions-with-pc-editing-techniques/"><u>Streamline Your YouTube Productions with PC Editing Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamline-your-youtube-short-experience/"><u>Streamline Your YouTube Short Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamline-your-youtube-watch-with-no-black-or-white-edges/"><u>Streamline Your YouTube Watch with No Black or White Edges</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamline-your-yt-content-with-background-softening-tricks/"><u>Streamline Your YT Content with Background Softening Tricks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-approach-save-youtube-videos/"><u>Streamlined Approach  Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-mp4-creation-must-have-tools-on-mac/"><u>Streamlined MP4 Creation  Must-Have Tools on Mac</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-process-to-download-parts-from-youtube-videos/"><u>Streamlined Process to Download Parts From YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-processes-for-swift-comment-removal-on-youtube/"><u>Streamlined Processes for Swift Comment Removal on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-sharing-the-best-shortened-link-apps-for-youtubers/"><u>Streamlined Sharing  The Best Shortened Link Apps for Youtubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-strategy-for-youtube-feedback-management/"><u>Streamlined Strategy for Youtube Feedback Management</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlined-video-production-youtube-studio-edition/"><u>Streamlined Video Production  YouTube Studio Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-content-creation-with-youtube-rules/"><u>Streamlining Content Creation with YouTube Rules</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-discovery-the-key-to-effective-video-titling/"><u>Streamlining Discovery  The Key to Effective Video Titling</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-revenue-with-youtubes-mobile-monetization-features-for-creators/"><u>Streamlining Revenue with YouTube's Mobile Monetization Features for Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-short-form-content-leading-edits-for-iosandroid/"><u>Streamlining Short-Form Content  Leading Edits for iOS/Android</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-social-media-how-to-seamlessly-switch-between-youtube-and-tiktok/"><u>Streamlining Social Media  How to Seamlessly Switch Between YouTube and TikTok</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-the-production-process-of-your-short-videos/"><u>Streamlining the Production Process of Your Short Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-video-craft-youtube-studio-edition/"><u>Streamlining Video Craft  YouTube Studio Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-video-sharing-across-youtube-and-tiktok/"><u>Streamlining Video Sharing Across YouTube and TikTok</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-content-upload-with-ios-tools/"><u>Streamlining Your Content Upload with iOS Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-path-to-personal-youtube-soundscape/"><u>Streamlining Your Path to Personal Youtube Soundscape</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-personal-library-from-spotify-to-youtube-music/"><u>Streamlining Your Personal Library  From Spotify, To YouTube Music</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-spotify-to-youtube-music-library-transition/"><u>Streamlining Your Spotify to YouTube Music Library Transition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-video-sequence-on-youtube/"><u>Streamlining Your Video Sequence on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-youtube-content-with-finalcut-pro-expertise/"><u>Streamlining Your YouTube Content with FinalCut Pro Expertise</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-youtube-presence-with-best-video-formats/"><u>Streamlining Your YouTube Presence with Best Video Formats</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-youtube-views-a-guide-to-blocking-advertisements/"><u>Streamlining Your YouTube Views  A Guide to Blocking Advertisements</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-audio-pace-via-devices/"><u>Streamlining YouTube Audio Pace via Devices</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-sharing-with-google-account-accessibility/"><u>Streamlining YouTube Sharing with Google Account Accessibility</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>Streamlining YouTube Videos  Adding Subtitles & CC Proficiently</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-free-open-sources-20-best-pubg-shots-for-2024/"><u>Ultimate Free, Open Sources  20 Best PUBG Shots for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-find-the-best-luts-for-lightroom-for-2024/"><u>Updated Find The Best LUTs for Lightroom for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Oppo A59 5G | Dr.fone</u></a></li>
+</ul></div>

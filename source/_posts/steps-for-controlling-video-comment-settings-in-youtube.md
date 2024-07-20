@@ -1,7 +1,7 @@
 ---
 title: "Steps for Controlling Video Comment Settings in YouTube"
-date: 2024-06-18T11:31:45.536Z
-updated: 2024-06-19T11:31:45.536Z
+date: 2024-07-19T06:43:21.190Z
+updated: 2024-07-20T06:43:21.190Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,18 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -38,6 +50,9 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -68,6 +83,9 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 #### **Additional Info about Comments Options**
@@ -90,6 +108,9 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -126,6 +147,9 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -140,6 +164,9 @@ That depends on the nature of the comments. For instance, if you modify the sett
 
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -268,6 +295,9 @@ That depends on the nature of the comments. For instance, if you modify the sett
 
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -364,6 +394,9 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
@@ -382,6 +415,9 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -396,6 +432,9 @@ That depends on the nature of the comments. For instance, if you modify the sett
 
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -428,6 +467,9 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
@@ -446,6 +488,9 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
@@ -474,6 +519,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -552,6 +604,9 @@ That said, it is a problem you want to solve. Here are 7 FAQs about YouTube Shor
 
 ![youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/youtube-shorts-thumbnail-not-showing.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q1\. Can I Customize YouTube Shorts Thumbnails?
 
 Yes, you can. YouTube did allow short-form video creators to upload custom thumbnails for their Shorts. However, they aren't that optimized. For instance, some people may not see them on the Shorts shelf. Also, if you share a link to the video somewhere else, the old video thumbnail may show instead of the new one.
@@ -564,10 +619,16 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 * Get to your desktop computer or laptop. Open your channel's YouTube Studio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![opening youtube studio on computer](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-2.JPG)
 
 * On the left navigation menu, click "Content."
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![content section on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-3.JPG)
 
 * Click the "pencil" icon next to the Shorts you just uploaded. This video should be at the top of the list.
@@ -585,6 +646,9 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -593,6 +657,9 @@ Unfortunately, there is no reliable fix to this problem yet. YouTubers have trie
 
 Some YouTubers have tried using different images. Others have experimented with changing the aspect ratio of the thumbnail or using Adobe editor for ratios. Clearing histories and cache, using different browsers, resizing, and changing the images' resolution have also been done. Sadly, these are all failed attempts.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q4\. How To Boost Views When I Have no Control Over YouTube Shorts Thumbnails?
 
 Attracting viewers on Shorts is the same as attracting viewers on the main YouTube. You use interesting thumbnails and video titles. Since thumbnails are out of the options, selecting great video titles has become even more important.
@@ -635,20 +702,32 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Pause the video.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
 * Click "Library" on the left panel.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 * Like the Shorts video.
@@ -657,16 +736,25 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Tap "Library"
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
 * Scroll down to find "Liked Videos." Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -675,12 +763,18 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -689,14 +783,23 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
 * Pause the video.
@@ -709,8 +812,14 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -719,6 +828,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Like the Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
 * Tap "Library"
@@ -727,12 +840,18 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 * Scroll down to find "Liked Videos." Click on it.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -754,3 +873,81 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-digital-diagnostics-vll-app-examination/"><u>[New] 2024 Approved  Digital Diagnostics  VLL App Examination</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-discovering-win11s-finest-screen-grabbers/"><u>[New] 2024 Approved  Discovering Win11's Finest Screen Grabbers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-setting-up-the-pip-feature-in-the-youtube-app-for-easy-video-streaming/"><u>[New] 2024 Approved  Setting up the PIP Feature in the YouTube App for Easy Video Streaming</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-chime-chronicles-mastering-the-art-of-tamil-ringtones/"><u>[New] Chime Chronicles  Mastering the Art of Tamil Ringtones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-crafting-tomorrows-art-today-the-finest-9-resources-for-3d-typographic-exploration/"><u>[New] Crafting Tomorrow's Art Today  The Finest 9 Resources for 3D Typographic Exploration</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-stabilized-mobile-shooting-with-precision-mounts/"><u>[New] Stabilized Mobile Shooting with Precision Mounts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-guide-to-perfectly-pair-videos-and-stories/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Perfectly Pair Videos and Stories</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-choreograph-cheeky-comics-via-giphy/"><u>[Updated] Choreograph Cheeky Comics via Giphy</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-deciding-audio-platforms-podcasts-or-youtube-in-2024/"><u>[Updated] Deciding Audio Platforms  Podcasts or YouTube, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-a-compreehers-path-to-aspect-ratio-mastery-in-facebook-videos/"><u>[Updated] In 2024, A Compreeher's Path to Aspect Ratio Mastery in Facebook Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-gopro-hero-5-black-vs-nikon-keymission-170-which-one-is-better/"><u>[Updated] In 2024, GoPro Hero 5 Black vs Nikon Keymission 170  Which One Is Better?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-viral-fame-boosting-your-videos-popularity-on-youtube/"><u>[Updated] Mastering Viral Fame  Boosting Your Video's Popularity on YouTube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-soundscape-strategy-incorporating-melodies-into-vimeo-videos/"><u>[Updated] The Soundscape Strategy  Incorporating Melodies Into Vimeo Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comedic-counterpoints-funny-song-flips/"><u>2024 Approved  Comedic Counterpoints  Funny Song Flips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comfortable-viewing-looping-youtube-videos-on-big-displays/"><u>2024 Approved  Comfortable Viewing  Looping YouTube Videos on Big Displays</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-commanding-the-screen-top-10-women-gamers-yt/"><u>2024 Approved  Commanding the Screen  Top 10 Women Gamers YT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-common-youtube-shorts-when-thumbnails-disappear-without-notice/"><u>2024 Approved  Common YouTube Shorts  When Thumbnails Disappear Without Notice</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comparative-assessment-youtube-vs-dailymention/"><u>2024 Approved  Comparative Assessment  YouTube Vs. DailyMention</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compare-and-contrast-leading-online-and-desktop-gif-tools/"><u>2024 Approved  Compare & Contrast  Leading Online & Desktop GIF Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comparing-digital-platform-profits-dailymovement-to-youtube-revenue/"><u>2024 Approved  Comparing Digital Platform Profits  DailyMovement to YouTube Revenue</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comparing-free-and-premium-youtube-experiences-whats-best/"><u>2024 Approved  Comparing Free and Premium YouTube Experiences  What's Best?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comparing-the-costs-and-advantages-of-various-youtube-plans/"><u>2024 Approved  Comparing the Costs and Advantages of Various YouTube Plans</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comparing-youtube-policies-with-creative-commons/"><u>2024 Approved  Comparing YouTube Policies with Creative Commons</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compilation-worlds-leading-youtube-mp3-downloaders/"><u>2024 Approved  Compilation  World's Leading YouTube Mp3 Downloaders</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-complete-code-of-conduct-for-youtube-creators/"><u>2024 Approved  Complete Code of Conduct for YouTube Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-complete-guide-to-aspect-ratios-about-youtube-videosshortsads/"><u>2024 Approved  Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-complete-unpacking-the-world-of-virtual-idols/"><u>2024 Approved  Complete Unpacking  The World of Virtual Idols</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-complete-walkthrough-to-grab-youtube-playlists/"><u>2024 Approved  Complete Walkthrough to Grab YouTube Playlists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compliance-in-recording-video-streams-on-youtube/"><u>2024 Approved  Compliance in Recording Video Streams on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-composing-news-wrap-up-scripts/"><u>2024 Approved  Composing News Wrap-Up Scripts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compre-points-for-a-smooth-and-compliant-4k-youtube-file-transfer/"><u>2024 Approved  Compre Points for a Smooth and Compliant 4K Youtube File Transfer</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compre-written-guide-on-incorporating-markup-features-in-youtube/"><u>2024 Approved  Compre Written Guide on Incorporating Markup Features in YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-compreeved-guide-to-creating-stellar-youtube-outros/"><u>2024 Approved  Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-assessment-of-digital-entertainers/"><u>2024 Approved  Comprehensive Assessment of Digital Entertainers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-codes-of-conduct-for-the-yt-community/"><u>2024 Approved  Comprehensive Codes of Conduct for the Yt Community</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-coverage-coalition-picking-an-mcn/"><u>2024 Approved  Comprehensive Coverage Coalition  Picking an MCN</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-directory-extracting-yt-template-videos-online/"><u>2024 Approved  Comprehensive Directory  Extracting YT Template Videos Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-guide-to-embedding-multiple-youtube-playlists-in-websites/"><u>2024 Approved  Comprehensive Guide to Embedding Multiple YouTube Playlists in Websites</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-guide-to-youtubes-subscription-advantages/"><u>2024 Approved  Comprehensive Guide to YouTube's Subscription Advantages</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>2024 Approved  Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conceal-dont-reveal-how-to-blur-faces-online/"><u>2024 Approved  Conceal, Don't Reveal  How to Blur Faces Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-concise-content-the-best-url-cutter-tools-for-youtubers/"><u>2024 Approved  Concise Content  The Best URL Cutter Tools for Youtubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-confirmation-procedures-for-youtube-users/"><u>2024 Approved  Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-connect-with-creativity-join-our-list-of-20-dynamic-youtube-music-crews/"><u>2024 Approved  Connect with Creativity  Join Our List of 20 Dynamic YouTube Music Crews</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-connect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires/"><u>2024 Approved  Connect With Creators  Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-connect-with-more-audiences-smart-multitasking-on-youtube-and-twitch/"><u>2024 Approved  Connect with More Audiences  Smart Multitasking on YouTube and Twitch</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-connoisseurs-melding-visionary-sounds-and-frames/"><u>2024 Approved  Connoisseurs Melding Visionary Sounds & Frames</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conquer-profits-on-the-go-youtube-studio-monetization-explained/"><u>2024 Approved  Conquer Profits On-the-Go  YouTube Studio Monetization Explained</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conquer-the-blackened-canvas-of-youtube/"><u>2024 Approved  Conquer the Blackened Canvas of YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conquer-the-viewer-void-10-tactics-for-youtube-video-growth/"><u>2024 Approved  Conquer the Viewer Void  10 Tactics for YouTube Video Growth</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conquer-your-audience-the-top-5-youtube-strategies-for-brands/"><u>2024 Approved  Conquer Your Audience  The #Top 5 YouTube Strategies for Brands</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>2024 Approved  Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-premier-voice-command-conversion-apps-for-windows-users/"><u>2024 Approved Premier Voice Command Conversion Apps for Windows Users</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-the-elite-lineup-of-audio-reverse-applications-discovering-your-ideal-choices-for-mobile-and-computing/"><u>2024 Approved The Elite Lineup of Audio Reverse Applications Discovering Your Ideal Choices for Mobile & Computing</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-guide-for-digital-video-photo-effects-application/"><u>Comprehensive Guide for Digital Video Photo Effects Application</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/discovering-old-content-on-facebook-via-your-smartphonecomputer/"><u>Discovering Old Content on Facebook via Your Smartphone/Computer</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/finding-value-in-sport-photography-cameras-for-the-price-conscious/"><u>Finding Value in Sport Photography – Cameras for the Price-Conscious</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-8-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-xiaomi-14-pro-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Xiaomi 14 Pro</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-11-pro-max-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-zte-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass ZTE FRP</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-oppo-f25-pro-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Oppo F25 Pro 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-xiaomi-redmi-note-12-pro-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Xiaomi Redmi Note 12 Pro 5G FRP Bypass</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-unveiling-the-secrets-of-effective-screencasts/"><u>In 2024, Unveiling the Secrets of Effective Screencasts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/iphone-shutterbug-secrets-perfecting-reflections-in-water/"><u>IPhone Shutterbug Secrets  Perfecting Reflections in Water</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-leading-applications-for-clearing-up-audio-distractions-during-filming/"><u>New In 2024, Leading Applications for Clearing Up Audio Distractions During Filming</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-top-6-drones-for-videography/"><u>New In 2024, Top 6 Drones for Videography</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-fixes-for-accessing-your-iis-management-center/"><u>Quick Fixes for Accessing Your IIS Management Center</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/rights-and-recourse-following-sudden-account-suspension-on-fb/"><u>Rights and Recourse Following Sudden Account Suspension on FB</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ts-to-successful-youtube-filmmaking-with-pc-editing-software/"><u>Secrets to Successful YouTube Filmmaking with PC Editing Software</u></a></li>
+<li><a href="https://techidaily.com/the-best-electronic-signature-way-to-sign-word-2000-documents-online-by-ldigisigner-sign-a-word-sign-a-word/"><u>The best electronic signature way to sign Word 2000 documents online</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-xiaomi-redmi-note-12-4g-by-fonelab-android-recover-data/"><u>Undelete lost data from Xiaomi Redmi Note 12 4G</u></a></li>
+</ul></div>

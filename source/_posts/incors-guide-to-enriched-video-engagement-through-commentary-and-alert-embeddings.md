@@ -1,7 +1,7 @@
 ---
 title: "Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings"
-date: 2024-05-25T12:16:43.266Z
-updated: 2024-05-26T12:16:43.266Z
+date: 2024-07-19T06:15:39.269Z
+updated: 2024-07-20T06:15:39.270Z
 tags:
   - ai video
   - ai youtube
@@ -11,13 +11,16 @@ categories:
 description: "This Article Describes Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings"
 excerpt: "This Article Describes Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings"
 keywords: "Video Engagement Guide,Video Commentary Insights,Alert Embedding Strategies,Enriched Video Content,Multimedia Engagement Tips,Social Media Video Trends,Embedded Video Interactivity"
-thumbnail: https://www.lifewire.com/thmb/asCAao3Tfs8ZxVZumyLz52-mVek=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-increase-internet-speed-5181475-b6fd84098c634a04a6934302184c5b1b.jpg
+thumbnail: https://thmb.techidaily.com/84aaf27f955a6ba5c37b777f8ab3f4dc75b3cebc10a8c5dcc535bfa16bc60ba0.jpg
 ---
 
 ## Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,6 +35,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -45,6 +51,130 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## How to add YouTube Cards
+
+YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
+
+* Click on the "Video Manager" tab
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+* Click "Edit" tab under the video screen shot you want to add the card on
+* Click on the "Cards" tab
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+* On the right panel click on "Add Card" drop down menu and select the type of card you want to add
+* Click on the create button which will open the corresponding video
+* Once you finish the subsequent information required click create card
+* Select the timeline for the playhead to appear which leads to the card slide
+
+![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+* Apply changes and exit
+
+## How to add YouTube annotations
+
+YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
+
+* Click on the video manager tab
+* Click edit tab under the video screen shot you want to add the annotation on
+* Click on the "End screen & Annotation" tab
+
+![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+* On the right panel click on "+ Add Element" and select the kind of annotation you want to add
+* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
+
+![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+* Apply changes
+
+**The types of YouTube annotations:**
+
+#### 1\. Speech Bubbles
+
+Speech Bubbles: look like the dialogue box in a comic strip. There is a tail which you can adjust so it looks like one of the people in your video is saying what is written in the annotation. Speech bubbles are great for adding in funny comments.
+
+#### 2\. Notes
+
+Notes: come in a limited selection of colors and can be adjusted to take up a maximum of 30% of your player screen. Sometimes you need a huge annotation to get an important point across, but using huge note annotations too often – especially near the beginnings of your videos – will annoy viewers. If you need a large note annotation make sure to place it later in your video, when a viewer will already be invested in what they are watching and less likely to click away.
+
+#### 3\. Titles
+
+Titles: are large pieces of text that go either at the beginning of your video or in-between different topics within your video. YouTube’s titles are not very nice to look at, but they are a decent option if you do not have access to video editing software.
+
+#### 4\. Spotlights
+
+Spotlights: have a subtle border and are completely clear inside. Your text only appears when a user hovers over the spotlight. Spotlights are great for turning elements within your video into links.
+
+#### 5\. Labels
+
+Labels: are completely transparent, like spotlights, but the user does not have to hover over them for your text to be visible.
+
+#### 6\. Pauses
+
+Pauses: are no longer available to add to your videos, although Pause Annotations added before they were removed still work. Pause Annotations used to stop your video for a set period of time when your annotation appeared.
+
+If somebody watches your video and gets to the end then that means they enjoyed it and will probably be open to checking out more of your content. Rather than hoping that your other videos show up in the ‘Suggested Videos’ YouTube will show after yours has finished playing you should always include an outro, or ending card, after your video to recommend your own work. Annotations are used in a lot of successful YouTuber’s ending cards.
+
+One form this takes is small Note annotations in the bottom corners of the screen, one linking to your previous video and one to the next. Sometimes your viewers might not necessarily get the most enjoyment out of your videos by watching them in order, though. Sometimes you want to link viewers to the videos that are most related to the one they just watched.
+
+The best outros also include a subscribe button, which can be created using annotations. These annotations work best when combined with a verbal call to action. Make sure your outro lasts long enough for people to make the decision to subscribe or click another video.
+
+No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+**Update:** YouTube has replaced annotation with end screen. You can find the latest informaiton about [YouTube screen and YouTube cards](https://tools.techidaily.com/wondershare/filmora/download/) here.
+
+YouTube Cards and Annotations are very useful if you want to encourage your viewrs to take an action, like Subscribe, go to another video or associated website, etc. Today, we're going to show you the differences between cards and annotations, and how to add them in YouTube videos.
+
+---
+
+Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+The main difference between annotation and cards is their outlook. Cards are more graphical whereas annotations are text based. The cards slide in once you click the small "i" button on the video where as the annotation is there based on the timings set by the user. Moreover the main differences between the two are:
+
+1\. YouTube Cards are small and unobtrusive, unless a viewer chooses to click on them, which is why they are the better option when you are trying to get views on other videos. Irritating a few people with a big annotation might be worth it if you also draw other people’s attention to your cause or website, but it is not a good way to endear yourself to people you are trying to get views and subscriptions from. When a card is clicked a thumbnail will appear with a link to your additional content. YouTube Cards are often better than annotations for adding links to your videos because they look much tidier. Also, unlike annotations, cards will be visible to people watching your videos on their mobile devices.
+
+2\. You cannot use Cards just to insert notes into your videos, though, and you cannot adjust their size like you can with annotations. So, if you do need a link to be large and extremely noticeable, annotations might still be your best option. Cards and annotations can even be used in combination sometimes.
+
+* [Part 1: How to Add YouTube Cards](#part1)
+* [Part 2: How to Add YouTube Annotations](#part2)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -118,6 +248,9 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -138,6 +271,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -157,11 +293,17 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -181,11 +323,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -257,6 +405,9 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -279,112 +430,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
-## How to add YouTube annotations
-
-YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
-
-* Click on the video manager tab
-* Click edit tab under the video screen shot you want to add the annotation on
-* Click on the "End screen & Annotation" tab
-
-![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
-
-* On the right panel click on "+ Add Element" and select the kind of annotation you want to add
-* Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
-
-![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-* Apply changes
-
-**The types of YouTube annotations:**
-
-#### 1\. Speech Bubbles
-
-Speech Bubbles: look like the dialogue box in a comic strip. There is a tail which you can adjust so it looks like one of the people in your video is saying what is written in the annotation. Speech bubbles are great for adding in funny comments.
-
-#### 2\. Notes
-
-Notes: come in a limited selection of colors and can be adjusted to take up a maximum of 30% of your player screen. Sometimes you need a huge annotation to get an important point across, but using huge note annotations too often – especially near the beginnings of your videos – will annoy viewers. If you need a large note annotation make sure to place it later in your video, when a viewer will already be invested in what they are watching and less likely to click away.
-
-#### 3\. Titles
-
-Titles: are large pieces of text that go either at the beginning of your video or in-between different topics within your video. YouTube’s titles are not very nice to look at, but they are a decent option if you do not have access to video editing software.
-
-#### 4\. Spotlights
-
-Spotlights: have a subtle border and are completely clear inside. Your text only appears when a user hovers over the spotlight. Spotlights are great for turning elements within your video into links.
-
-#### 5\. Labels
-
-Labels: are completely transparent, like spotlights, but the user does not have to hover over them for your text to be visible.
-
-#### 6\. Pauses
-
-Pauses: are no longer available to add to your videos, although Pause Annotations added before they were removed still work. Pause Annotations used to stop your video for a set period of time when your annotation appeared.
-
-If somebody watches your video and gets to the end then that means they enjoyed it and will probably be open to checking out more of your content. Rather than hoping that your other videos show up in the ‘Suggested Videos’ YouTube will show after yours has finished playing you should always include an outro, or ending card, after your video to recommend your own work. Annotations are used in a lot of successful YouTuber’s ending cards.
-
-One form this takes is small Note annotations in the bottom corners of the screen, one linking to your previous video and one to the next. Sometimes your viewers might not necessarily get the most enjoyment out of your videos by watching them in order, though. Sometimes you want to link viewers to the videos that are most related to the one they just watched.
-
-The best outros also include a subscribe button, which can be created using annotations. These annotations work best when combined with a verbal call to action. Make sure your outro lasts long enough for people to make the decision to subscribe or click another video.
-
-No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-**Update:** YouTube has replaced annotation with end screen. You can find the latest informaiton about [YouTube screen and YouTube cards](https://tools.techidaily.com/wondershare/filmora/download/) here.
-
-YouTube Cards and Annotations are very useful if you want to encourage your viewrs to take an action, like Subscribe, go to another video or associated website, etc. Today, we're going to show you the differences between cards and annotations, and how to add them in YouTube videos.
-
----
-
-Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-The main difference between annotation and cards is their outlook. Cards are more graphical whereas annotations are text based. The cards slide in once you click the small "i" button on the video where as the annotation is there based on the timings set by the user. Moreover the main differences between the two are:
-
-1\. YouTube Cards are small and unobtrusive, unless a viewer chooses to click on them, which is why they are the better option when you are trying to get views on other videos. Irritating a few people with a big annotation might be worth it if you also draw other people’s attention to your cause or website, but it is not a good way to endear yourself to people you are trying to get views and subscriptions from. When a card is clicked a thumbnail will appear with a link to your additional content. YouTube Cards are often better than annotations for adding links to your videos because they look much tidier. Also, unlike annotations, cards will be visible to people watching your videos on their mobile devices.
-
-2\. You cannot use Cards just to insert notes into your videos, though, and you cannot adjust their size like you can with annotations. So, if you do need a link to be large and extremely noticeable, annotations might still be your best option. Cards and annotations can even be used in combination sometimes.
-
-* [Part 1: How to Add YouTube Cards](#part1)
-* [Part 2: How to Add YouTube Annotations](#part2)
-
-## How to add YouTube Cards
-
-YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
-
-* Click on the "Video Manager" tab
-
-![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
-
-* Click "Edit" tab under the video screen shot you want to add the card on
-* Click on the "Cards" tab
-
-![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-* On the right panel click on "Add Card" drop down menu and select the type of card you want to add
-* Click on the create button which will open the corresponding video
-* Once you finish the subsequent information required click create card
-* Select the timeline for the playhead to appear which leads to the card slide
-
-![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
-
-* Apply changes and exit
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -460,6 +508,9 @@ Follow @Richard Bennett
 
 # 10 Recording Tips for Recording Audio with High Quality
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -481,6 +532,9 @@ Getting the best sound for your recording is not as simplistic as buying an expe
 [**9\. ADR**](#ADR)  
 [**10\. Record Ambient Sound**](#Record-Ambient-Sound)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Bonus Tip-Record Your Audio with Wondershare Filmora
 
 Wondershare Filmora has great recording features that enable you to [record screen](https://tools.techidaily.com/wondershare/filmora/download/), voiceover, and webcam. Just connect the recording device to your computer, and start the recording in Wondershare Filmora and you will get high-quality audio. And you can also easily pick a song from the royalty-free music library on Wondershare Filmora. These audio features on Filmora are rare and very simple to use, you only need to click a few times and your video will have a new sound and background song.
@@ -491,10 +545,16 @@ Wondershare Filmora has great recording features that enable you to [record scre
 
 When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **2\. Put your mobile phone in airplane mode**
 
 Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **3\. Minimize echo**
 
 If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
@@ -517,6 +577,102 @@ Before pressing the record button, see how loudly your microphone picks up the s
 
 If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
 
+### **8\. Get close to the sound**
+
+Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **9\. ADR**
+
+When you need to record a scene in a loud setting where you have very little control over the noise, record additional vocals later and replace the original vocals through a process called automated dialogue replacement.
+
+### **10\. Record Ambient Sound**
+
+Remember to record ambient sound or “room tone.” You can use these recordings to fill in the blanks if you run out of audio and also smooth out parts of your audio where you hear pops, clicks, and other unwanted noise.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Getting the best sound for your recording is not as simplistic as buying an expensive microphone. There are many different things you can do to record your audio more clearly. Here are 10 recording tips to record high-quality audio.
+
+[**1\. Silence everything you don’t want your microphone to record**](#Silence)  
+[**2\. Put your mobile phone in airplane mode**](#airplane-mode)  
+[**3\. Minimize echo**](#Minimize-echo)  
+[**4\. Block wind from reaching your microphone**](#Block-wind)  
+[**5\. Upgrade your microphone**](#Upgrade-your-microphone)  
+[**6\. Adjust your levels**](#Adjust-your-levels)  
+[**7\. Start with a sound cue if you’re planning to do some syncing in post**](#sound-cue)  
+[**8\. Get close to the sound**](#Get-close-to-the-sound)  
+[**9\. ADR**](#ADR)  
+[**10\. Record Ambient Sound**](#Record-Ambient-Sound)
+
+### Bonus Tip-Record Your Audio with Wondershare Filmora
+
+Wondershare Filmora has great recording features that enable you to [record screen](https://tools.techidaily.com/wondershare/filmora/download/), voiceover, and webcam. Just connect the recording device to your computer, and start the recording in Wondershare Filmora and you will get high-quality audio. And you can also easily pick a song from the royalty-free music library on Wondershare Filmora. These audio features on Filmora are rare and very simple to use, you only need to click a few times and your video will have a new sound and background song.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### **1\. Silence everything you don’t want your microphone to record**
+
+When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **2\. Put your mobile phone in airplane mode**
+
+Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
+
+### **3\. Minimize echo**
+
+If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **4\. Block wind from reaching your microphone**
+
+Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
+
+### **5\. Upgrade your microphone**
+
+As much as you try to control all the noise in your surroundings, your greatest recording limitation will come from the hardware that you use. Improve your recordings by plugging in an external microphone into your camera’s microphone jack or record audio completely separately with a professional microphone.
+
+Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### **6\. Adjust your levels**
+
+Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
+
+### **7\. Start with a sound cue if you’re planning to do some syncing in post**
+
+If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **8\. Get close to the sound**
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
@@ -584,18 +740,39 @@ As much as you try to control all the noise in your surroundings, your greatest 
 
 Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **6\. Adjust your levels**
 
 Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **7\. Start with a sound cue if you’re planning to do some syncing in post**
 
 If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **8\. Get close to the sound**
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ### **9\. ADR**
 
 When you need to record a scene in a loud setting where you have very little control over the noise, record additional vocals later and replace the original vocals through a process called automated dialogue replacement.
@@ -635,6 +812,9 @@ Getting the best sound for your recording is not as simplistic as buying an expe
 
 Wondershare Filmora has great recording features that enable you to [record screen](https://tools.techidaily.com/wondershare/filmora/download/), voiceover, and webcam. Just connect the recording device to your computer, and start the recording in Wondershare Filmora and you will get high-quality audio. And you can also easily pick a song from the royalty-free music library on Wondershare Filmora. These audio features on Filmora are rare and very simple to use, you only need to click a few times and your video will have a new sound and background song.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### **1\. Silence everything you don’t want your microphone to record**
@@ -645,20 +825,32 @@ When you’re recording audio, you have to be more aware of the subtle sounds th
 
 Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **3\. Minimize echo**
 
 If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **4\. Block wind from reaching your microphone**
 
 Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **5\. Upgrade your microphone**
 
 As much as you try to control all the noise in your surroundings, your greatest recording limitation will come from the hardware that you use. Improve your recordings by plugging in an external microphone into your camera’s microphone jack or record audio completely separately with a professional microphone.
 
 Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **6\. Adjust your levels**
 
 Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
@@ -667,81 +859,9 @@ Before pressing the record button, see how loudly your microphone picks up the s
 
 If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
 
-### **8\. Get close to the sound**
-
-Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
-
-### **9\. ADR**
-
-When you need to record a scene in a loud setting where you have very little control over the noise, record additional vocals later and replace the original vocals through a process called automated dialogue replacement.
-
-### **10\. Record Ambient Sound**
-
-Remember to record ambient sound or “room tone.” You can use these recordings to fill in the blanks if you run out of audio and also smooth out parts of your audio where you hear pops, clicks, and other unwanted noise.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Getting the best sound for your recording is not as simplistic as buying an expensive microphone. There are many different things you can do to record your audio more clearly. Here are 10 recording tips to record high-quality audio.
-
-[**1\. Silence everything you don’t want your microphone to record**](#Silence)  
-[**2\. Put your mobile phone in airplane mode**](#airplane-mode)  
-[**3\. Minimize echo**](#Minimize-echo)  
-[**4\. Block wind from reaching your microphone**](#Block-wind)  
-[**5\. Upgrade your microphone**](#Upgrade-your-microphone)  
-[**6\. Adjust your levels**](#Adjust-your-levels)  
-[**7\. Start with a sound cue if you’re planning to do some syncing in post**](#sound-cue)  
-[**8\. Get close to the sound**](#Get-close-to-the-sound)  
-[**9\. ADR**](#ADR)  
-[**10\. Record Ambient Sound**](#Record-Ambient-Sound)
-
-### Bonus Tip-Record Your Audio with Wondershare Filmora
-
-Wondershare Filmora has great recording features that enable you to [record screen](https://tools.techidaily.com/wondershare/filmora/download/), voiceover, and webcam. Just connect the recording device to your computer, and start the recording in Wondershare Filmora and you will get high-quality audio. And you can also easily pick a song from the royalty-free music library on Wondershare Filmora. These audio features on Filmora are rare and very simple to use, you only need to click a few times and your video will have a new sound and background song.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### **1\. Silence everything you don’t want your microphone to record**
-
-When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
-
-### **2\. Put your mobile phone in airplane mode**
-
-Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
-
-### **3\. Minimize echo**
-
-If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
-
-### **4\. Block wind from reaching your microphone**
-
-Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
-
-### **5\. Upgrade your microphone**
-
-As much as you try to control all the noise in your surroundings, your greatest recording limitation will come from the hardware that you use. Improve your recordings by plugging in an external microphone into your camera’s microphone jack or record audio completely separately with a professional microphone.
-
-Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
-
-### **6\. Adjust your levels**
-
-Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
-
-### **7\. Start with a sound cue if you’re planning to do some syncing in post**
-
-If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
-
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### **8\. Get close to the sound**
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
@@ -777,3 +897,46 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-a-fanbase-with-youtube-streams/"><u>[New] 2024 Approved  Building a Fanbase with YouTube Streams</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-flawless-screen-capture-s-assassins-creed-odyssey/"><u>[New] Flawless Screen Capture 'S Assassin's Creed Odyssey</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-journey-through-high-dynamic-range-pc-viewing-and-creative-pursuits/"><u>[Updated] 2024 Approved  Journey Through High Dynamic Range  PC Viewing & Creative Pursuits</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-curated-list-dj-video-sources-at-your-fingertips/"><u>[Updated] Curated List  DJ Video Sources at Your Fingertips</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-the-thread-of-thought-sharing-sewing-skills-with-tiktokers-for-2024/"><u>[Updated] The Thread of Thought  Sharing Sewing Skills with TikTokers for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-achieve-unprecedented-image-quality-via-av1-on-youtube/"><u>2024 Approved  Achieve Unprecedented Image Quality via AV1 on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-elevate-your-ad-game-a-deep-dive-into-spotify-promotion/"><u>2024 Approved  Elevate Your Ad Game  A Deep Dive Into Spotify Promotion</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlocking-creative-potential-embedding-online-videos-in-slideshows/"><u>2024 Approved  Unlocking Creative Potential  Embedding Online Videos in Slideshows</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-asus-rog-phone-7-ultimate-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Asus ROG Phone 7 Ultimate to Roku | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/bring-your-vision-to-life-8-stellar-mac-movie-makers-for-2024/"><u>Bring Your Vision to Life 8 Stellar Mac Movie Makers for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-infinix-smart-7-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Infinix Smart 7 Phones with/without a PC</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-nokia-c300-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Nokia C300? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-honor-90-lite-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Honor 90 Lite Phone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-mastering-audio-clarity-simplified-techniques-for-noise-elimination-in-audacity-and-filmorapro/"><u>In 2024, Mastering Audio Clarity Simplified Techniques for Noise Elimination in Audacity & FilmoraPro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-eliminating-youtube-content/"><u>Masterclass in Eliminating YouTube Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-glamour-beauty-tutorials-for-all/"><u>Masterclass in Glamour  Beauty Tutorials for All</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-logo-making-best-of-9-free-software-for-youtubers/"><u>Masterclass in Logo-Making  Best of 9 Free Software for YouTubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-time-the-top-10-youtube-channels-for-history-students/"><u>Masterclass in Time  The Top 10 YouTube Channels For History Students</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-transforming-youtubes-shorts-to-mp4/"><u>Masterclass in Transforming YouTube's Shorts to MP4</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-on-minimizing-video-footage-in-youtube/"><u>Masterclass on Minimizing Video Footage in YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastercut-pc-edition-perfecting-videos-piping-music-in/"><u>MasterCut PC Edition  Perfecting Videos, Piping Music In</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastercut-suite-polished-pc-media-magic-for-the-modern-editor/"><u>MasterCut Suite  Polished PC Media Magic for the Modern Editor</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterful-content-creation-and-branding-via-top-5-youtube-strategies/"><u>Masterful Content Creation and Branding via #Top 5 YouTube Strategies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterful-edits-highest-rated-video-tools-for-youtube/"><u>Masterful Edits  Highest Rated Video Tools For YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterful-guide-integrating-youtube-and-social-media-platforms-fb/"><u>Masterful Guide  Integrating YouTube and Social Media Platforms FB</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterful-thumbnails-in-a-flash-professional-valorant-creations/"><u>Masterful Thumbnails in a Flash  Professional Valorant Creations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterful-video-analytics-unlocking-potential-with-social-blade-and-youtube/"><u>Masterful Video Analytics  Unlocking Potential with Social Blade & YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-audio-and-visual-quality-in-youtube-videos/"><u>Mastering Audio & Visual Quality in YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-background-replacement-get-cost-free-lessons-in-green-screen-effects-from-youtubes-best/"><u>Mastering Background Replacement  Get Cost-Free Lessons in Green Screen Effects From YouTube's Best</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-channels-on-the-fly-tubebuddy-essentials/"><u>Mastering Channels on the Fly - TubeBuddy Essentials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-cinematography-youtube-guides-by-aspiring-directors/"><u>Mastering Cinematography  YouTube Guides by Aspiring Directors</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-clear-sound-recording-without-mic-techniques/"><u>Mastering Clear Sound  Recording Without Mic Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-common-issues-in-youtube-shorts/"><u>Mastering Common Issues in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-content-the-key-to-engaging-yt-shorts/"><u>Mastering Content  The Key to Engaging YT Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-fair-use-navigating-youtube-copyright-challenges/"><u>Mastering Fair Use  Navigating YouTube Copyright Challenges</u></a></li>
+<li><a href="https://extra-support.techidaily.com/professional-audio-techniques-in-audacity-for-2024/"><u>Professional Audio Techniques in Audacity for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-poco-x6-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Poco X6 Black and White | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-5-top-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated In 2024, 5 Top Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+</ul></div>

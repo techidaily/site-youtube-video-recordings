@@ -1,7 +1,7 @@
 ---
 title: "Dissecting Mr. Beast's Fortune Portfolio"
-date: 2024-05-25T11:40:02.505Z
-updated: 2024-05-26T11:40:02.505Z
+date: 2024-07-19T05:48:30.619Z
+updated: 2024-07-20T05:48:30.619Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Dissecting Mr. Beast's Fortune Portfolio"
 excerpt: "This Article Describes Dissecting Mr. Beast's Fortune Portfolio"
 keywords: "\"Beast Financial Analysis,Mr. Beast Investments,Wealth Portfolio Insight,Fortune Dissection Review,Beast's Holdings Breakdown,Riches and Risks Study,Mega-Millionaire Assets\""
-thumbnail: https://www.lifewire.com/thmb/MlwaJMBkgv5AdUUFqmutbxLipO8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1224786282-2d9033313a164d34a921f3bbf068ae50.jpg
+thumbnail: https://thmb.techidaily.com/8a7c2713a5a85ee94384e3a403324debf1e357fa3f2637bf212870351e0edf0f.jpg
 ---
 
 ## Dissecting Mr. Beast's Fortune Portfolio
@@ -65,6 +65,9 @@ Mr. Beast’s YouTube income is around $3 Million per month, which mostly goes b
 
 As you know, YouTube operates on a cbasis. This means per 1000 views, you can expect to make $3-$10\. By estimated calculations, Mr. Beast makes $500,000 -$1 million per video.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![mr beast wealth growth over the years](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-3.jpg)
 
 The data represents Mr. Beast’s YouTube earning of last 6 years. His earnings were substantially low since the start of his YouTube career in early 2017 when he posted his first video of [counting 100,000](https://www.youtube.com/watch?v=xWcldHxHFpo). However, it began to increase with time.
@@ -109,6 +112,9 @@ You might have looked at the creative side of Mr. Beast uptil now, but he is als
 
 The keen element of his video is to generate enough engagement that would help him spare the money for the poor, and that is what stands him out.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tips: How To Be a Successful YouTuber and Make Videos Like Mr. Beast
 
 Becoming a successful YouTuber like MrBeast is not too complicated. Here are some bonus tips:
@@ -167,12 +173,18 @@ You may alter the duration of the video using the Speed and Duration Settings.
 
 Similarly, if you want to add more than one video together, you can carry out the same process on multiple tracks to share the same frame.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![speed and duration settings](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-7.jpg)
 
 ##### Step4 Adjust the size and positioning of the video
 
 You can also access the editing interface to adjust the position of the video on top. Simply drag the sliders on the interface to change the size, direction and position of the video.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adjust the position](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-8.jpg)
 
 ##### Step5 Advance editing
@@ -181,6 +193,9 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 1\. Applying motion effects
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
 
 2\. Adjust the tone of video
@@ -193,10 +208,16 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 4\. Play with the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
 
 Filmora also has the feature of applying masks to the video; these come in different shapes and positions and can be adjusted accordingly.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-13.jpg)
 
 ##### Step6 Add effects, stock video, elements, and transitions from Filmora's vast library
@@ -207,6 +228,9 @@ Filmora has additional features like stock photos and video footage that can be 
 
 Go to the top menu and click on effects; you can find many of them; they are categorized in the left vertical menu.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-14.jpg)
 
 **Stock Videos:**
@@ -217,6 +241,9 @@ You can also access the stock videos from Pixels, Giphy, Pixabay, and Unsplash w
 
 Now you can easily find content to make your videos attractive.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![filmora stock media](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-15.jpg)
 
 **Elements:**
@@ -225,6 +252,9 @@ Filmora has an extensive stock of Elements; with the proper use of Elements in Y
 
 Find multiple elements from the Element section beside the effects and transition section in Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora elements](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-16.jpg)
 
 **Transition:**
@@ -298,6 +328,9 @@ As you know, YouTube operates on a cbasis. This means per 1000 views, you can ex
 
 The data represents Mr. Beast’s YouTube earning of last 6 years. His earnings were substantially low since the start of his YouTube career in early 2017 when he posted his first video of [counting 100,000](https://www.youtube.com/watch?v=xWcldHxHFpo). However, it began to increase with time.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Why is Mr. Beast Trending on YouTube?
 
 Mr. Beast is known for going above and beyond for his YouTube content. He also runs other YouTube channels, besides Mr. Beast, that are mainly based on Philanthropy, Gaming videos, Short Videos, etc that also account for his huge income. Some of the reasons why he is so successful are
@@ -338,6 +371,9 @@ You might have looked at the creative side of Mr. Beast uptil now, but he is als
 
 The keen element of his video is to generate enough engagement that would help him spare the money for the poor, and that is what stands him out.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tips: How To Be a Successful YouTuber and Make Videos Like Mr. Beast
 
 Becoming a successful YouTuber like MrBeast is not too complicated. Here are some bonus tips:
@@ -402,6 +438,9 @@ Similarly, if you want to add more than one video together, you can carry out th
 
 You can also access the editing interface to adjust the position of the video on top. Simply drag the sliders on the interface to change the size, direction and position of the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adjust the position](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-8.jpg)
 
 ##### Step5 Advance editing
@@ -418,14 +457,23 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 3\. Change the colors of video
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![adjust the colors of video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-11.jpg)
 
 4\. Play with the audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
 
 Filmora also has the feature of applying masks to the video; these come in different shapes and positions and can be adjusted accordingly.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-13.jpg)
 
 ##### Step6 Add effects, stock video, elements, and transitions from Filmora's vast library
@@ -472,6 +520,9 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Final Words
 
 YouTube has made careers of a lot of people under the banner of creative video content that could otherwise go unnoticed.
@@ -498,6 +549,9 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
 
 # How To Make YouTube Videos on Your Smartphone
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -506,6 +560,102 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
 
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Make YouTube Videos on Your Smartphone
 
  Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
@@ -576,90 +726,9 @@ Follow @Richard Bennett
 
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
-
-## How To Make YouTube Videos on Your Smartphone
-
- Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
-
-#### Part 1\. Keep It Steady
-
- For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
-
- There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
-
-#### Part 2\. Be Heard
-
- You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
-
- Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
-
-#### Part 3\. Tilt Your Phone
-
- When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
-
- The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
-
- Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
-
-[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
-
- After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
-
-## How To Make YouTube Videos on Your Smartphone
-
- Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
-
-#### Part 1\. Keep It Steady
-
- For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
-
- There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
-
-#### Part 2\. Be Heard
-
- You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
-
- Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
-
-#### Part 3\. Tilt Your Phone
-
- When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
-
- The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
-
- Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
-
-[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
-
- After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -683,3 +752,44 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audio-ambition-selecting-top-6-free-downloader-apps-from-youtube-vaults/"><u>[New] In 2024, Audio Ambition  Selecting Top 6 Free Downloader Apps From YouTube Vaults</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-guide-online-tools-to-save-your-youtube-videos/"><u>2024 Approved  Easy Guide  Online Tools to Save Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-guide-to-youtube-livestreaming-from-google-meet/"><u>2024 Approved  Easy Guide to YouTube Livestreaming From Google Meet</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-loop-keeping-iphone-videos-running/"><u>2024 Approved  Easy Loop  Keeping iPhone Videos Running</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-mp3-conversion-from-mp3-files-to-youtube-videos-3-ways/"><u>2024 Approved  Easy MP3 Conversion  From MP3 Files to YouTube Videos [3 Ways]</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-path-to-popularity-two-tactics-for-youtube-fame/"><u>2024 Approved  Easy Path to Popularity  Two Tactics for YouTube Fame</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-setup-making-a-direct-path-for-youtube-subscribers/"><u>2024 Approved  Easy Setup  Making a Direct Path for YouTube Subscribers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-start-the-definitive-guide-to-free-channel-openers/"><u>2024 Approved  Easy Start  The Definitive Guide to Free Channel Openers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-steps-to-directly-share-videos-from-iphoneipad/"><u>2024 Approved  Easy Steps to Directly Share Videos From iPhone/iPad</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-tutorial-uploading-youtube-shorts-video-via-computer-and-phone/"><u>2024 Approved  Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-ways-to-get-free-views-on-youtube-alternative-methods/"><u>2024 Approved  Easy Ways To Get Free Views on YouTube! Alternative Methods</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-youtube-file-transfer-techniques/"><u>2024 Approved  Easy YouTube File Transfer Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-to-navigate-top-10-youtube-downloader-tools/"><u>2024 Approved  Easy-to-Navigate Top 10 YouTube Downloader Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-echo-video-storyteller/"><u>2024 Approved  Echo Video Storyteller</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-echoes-of-amusement-comical-tune-transformations/"><u>2024 Approved  Echoes of Amusement  Comical Tune Transformations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-echoes-of-chuckles-parody-playlists/"><u>2024 Approved  Echoes of Chuckles  Parody Playlists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-echoes-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger/"><u>2024 Approved  Echoes of Exploration  Your Step-by-Step Blueprint to Becoming a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-eclectic-lineup-the-best-anime-channels-on-youtube/"><u>2024 Approved  Eclectic Lineup  The Best Anime Channels on Youtube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-eclipsing-fears-in-your-first-10-videos/"><u>2024 Approved  Eclipsing Fears in Your First 10 Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-econo-audio-amps-for-youtubers-with-limited-dough/"><u>2024 Approved  Econo Audio Amps for Youtubers with Limited Dough</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-economical-camera-options-best-deals-for-diy-vloggers/"><u>2024 Approved  Economical Camera Options  Best Deals for DIY Vloggers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-economical-embellishments-free-youtube-template-packs/"><u>2024 Approved  Economical Embellishments  FREE YouTube Template Packs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-edible-imagery-stepwise-food-film-making/"><u>2024 Approved  Edible Imagery  Stepwise Food Film Making</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-edit-with-ease-10-video-to-mp3-tools-of-the-trade/"><u>2024 Approved  Edit with Ease  #10 Video-to-Mp3 Tools of the Trade</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-edit-with-ease-prime-10-converters-unveiled/"><u>2024 Approved  Edit with Ease  Prime 10 Converters Unveiled</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-editcanvas-solutions/"><u>2024 Approved  EditCanvas Solutions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-immutable-disabling-routine-for-youtubes-quick-content/"><u>2024 Approved  Immutable Disabling Routine for YouTube’s Quick Content</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/8-best-motion-graphics-online-tools-for-your-inspiration-for-2024/"><u>8 Best Motion Graphics Online Tools for Your Inspiration for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-10-prime-online-stores-for-curious-gift-boxes-for-2024/"><u>Explore 10 Prime Online Stores for Curious Gift Boxes for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-oppo-reno-11f-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Oppo Reno 11F 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-11x-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme 11X 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oppo-a18-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Oppo A18</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfecting-the-fisheye-lens-for-immersive-views/"><u>In 2024, Perfecting the Fisheye Lens for Immersive Views</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-12-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 12</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-unlock-the-potential-of-live-streaming-facebook-via-obs-devices/"><u>In 2024, Unlock the Potential of Live Streaming Facebook via OBS Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-mute-microphone-issue-during-video-recordings/"><u>Tackling Mute Microphone Issue During Video Recordings</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/youtube-audio-downloader-tips-tricks-and-best-practices-for-2024/"><u>YouTube Audio Downloader Tips, Tricks, and Best Practices for 2024</u></a></li>
+</ul></div>

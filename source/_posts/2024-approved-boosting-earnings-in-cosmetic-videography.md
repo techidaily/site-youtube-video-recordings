@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Boosting Earnings in Cosmetic Videography\""
-date: 2024-05-25T11:01:32.813Z
-updated: 2024-05-26T11:01:32.813Z
+date: 2024-07-19T05:19:47.234Z
+updated: 2024-07-20T05:19:47.234Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Boosting Earnings in Cosmetic Videography\""
 excerpt: "\"This Article Describes 2024 Approved: Boosting Earnings in Cosmetic Videography\""
 keywords: "Cosmetics Shoot,Beauty Video,Profit Photography,Creative Makeup,VFX Cosmetics,Earn Vid Shots,Beauty Filming"
-thumbnail: https://www.lifewire.com/thmb/8AR4KPZSuKj5eifD4ccsltjomD0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/SmartLuggage_MaurizioPesce-5a49851522fa3a003693996c.jpg
+thumbnail: https://thmb.techidaily.com/122fad585a96b844750a62c04c4dce3455583d7dfd3b684b7339ff82c163bd28.jpg
 ---
 
 ## Boosting Earnings in Cosmetic Videography
@@ -32,6 +32,9 @@ There are a lot of ways you can make money by posting makeup, beauty, or fashion
 
 Here’s more advice on how you can make money from your makeup videos:
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## Sponsorships
 
 If you are truly passionate about makeup or fashion then you probably have a few favorite brands. Even if you have never really thought about a brand as your favorite, chances are you purchase one or two types of lip gloss – or any other product – over others on a regular basis.
@@ -52,6 +55,9 @@ Monetizing your videos and earning ad revenue is one of the primary ways beauty 
 
 Pay attention to the estimated revenue reports to see which of your videos are earning the most money from ads (they won’t always be your most popular videos). By making more videos on similar topics you will be able to make more money.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Affiliate Links
 
 By becoming an Amazon affiliate, or joining the affiliate program of another online store, you can make money by including links to products in the descriptions of your video or in your related blog posts.
@@ -62,6 +68,9 @@ Even better – if that person keeps shopping, or even skips the curling iron an
 
 Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Gifts
 
 Sometimes companies might just give you stuff.
@@ -206,6 +215,9 @@ There are a lot of ways you can make money by posting makeup, beauty, or fashion
 
 Here’s more advice on how you can make money from your makeup videos:
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sponsorships
 
 If you are truly passionate about makeup or fashion then you probably have a few favorite brands. Even if you have never really thought about a brand as your favorite, chances are you purchase one or two types of lip gloss – or any other product – over others on a regular basis.
@@ -236,6 +248,9 @@ Even better – if that person keeps shopping, or even skips the curling iron an
 
 Affiliate links are mostly used by bloggers, not YouTubers, but you can still include them in the descriptions of your videos (not YouTube Cards or annotations though). It is not a bad idea for you to create blog posts to accompany your videos and post your affiliate links. Blogs are a great way to generate traffic to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Gifts
 
 Sometimes companies might just give you stuff.
@@ -264,10 +279,16 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimize YouTube for Superior Image Quality Using AV1
 
 Do you notice that many YouTube videos have been streamed in AV1? **YouTube AV1** just happened suddenly a few years ago. This article will inform you about all the things you want to know about **AV1 Youtube** settings. I will let you know the tutorial to turn in AV1 settings on YouTube and the reason why should choose AV1 along with the others, and some more things about AV1.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![av1 logo](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-1.jpg)
 
 ## Part 1: How to turn on AV1 settings on YouTube?
@@ -276,6 +297,9 @@ Do you wonder how to turn on **AV1 settings on YouTube**? For your information, 
 
 ##### Step1Go to playback and performance
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-2.jpg)
 
 * To turn on the AV1 settings, go to your YouTube account, after that click "Playback and Performance".
@@ -284,6 +308,9 @@ Do you wonder how to turn on **AV1 settings on YouTube**? For your information, 
 
 ##### Step2Test if the AV1 settings are already enabled in your video
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
@@ -294,14 +321,23 @@ Now, do you need a reason why you should choose AV1 compared to VP9 and the othe
 
 The main thing is, as mentioned before, AV1 is developed by a consortium of companies founded in 2015\. It is supported by The Alliance for Open Media (AOMedia) such as Amazon, Facebook, Google, Microsoft, and Netflix, and also by web browser developers and semiconductor firms. Aomedia made it clear the algorithm is free-to-use. It means that there are no greedy negotiators that will be dependent on the developers.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![giant techs behind av1](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-4.jpg)
 
 Also, these days, with a format that provides a much smaller workload for internet providers. Their today focus is, that AV1 can reach the quality but can get the job done with 20% more efficiency. Then, with AV1 encoding, a "standard" 4K movie will be much more accessible than it is now. These are some more reasons why you should choose AV1.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Royalty-free
 
 As mentioned before, AV1 is royalty-free. AV1 is such a next-generation of royalty video codec. It means that it is not just free to use, but also free of charge, obligations, or even liability. It is an open and royalty-free video codec that the video platform will not charge to pay royalties to the Moving Picture Experts Group (MPEG), the developer of video codecs.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![av1 is royalty-free](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-5.jpg)
 
 When it comes to the group that will ask for the royalty, MPEG is not the only one. There are also other patent groups and companies that can ask for it. Aomedia integrated Google, Mozilla, and Cisco, while they were busy creating their new video codec. However, the three companies joined together to create one codec to beat them all.
@@ -314,16 +350,25 @@ It is said that the AV1 codec is 30% more efficient. According to the tests cond
 
 AV1 is designed so exclusively to function better than all the other codecs in the market. It is an open-sourced codec with simple patent licensing, and the integration manages to save, as mentioned, up to 30% of the bandwidth for the exactly same image quality. In other words, with AV1, distributors can send streams much faster and cheaper and we can enjoy higher definitions in the same bandwidth.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. AV2 to come in the future
 
 AV1 is undoubtedly superior if we compare it to other available video codecs and the exploration of the codec technology AV2 has already begun. This is such an early performance evaluation. There is some interesting part of the exploration development of AV2, such as multiple line selection for Intra prediction can make you select not just neighboring row/column for directional prediction. The same tool also exists in VVC.
 
 There are also three essential improvements, which are simplifying the existing feature (also complete removal) and picking the tool used by VVC/H.266 (It is lack originality but so much work on it) and improvement periodically improvement of an existing tool, it is too few and also not original. We haven't known yet when AV2 will be done completely though, maybe there still be some more essential improvements.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: What's the best video editor for YouTubers with AV1 format?
 
 When we talk about YouTube, it feels incomplete if we don't talk about the video editor. So, what is the best video editing software for YouTubers with AV1 format? Yes, it is [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). It is such a great video editing software that allows you to import and edit many video file formats. Filmora also allows users to export AV1 MP4 format video and then can directly upload it to YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora logo](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-7.jpg)
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) gives some ways to export your videos. Here are the five ways. You can also customize the export settings then you can save them to reuse the same settings next time. The first is you can export your project file and video to the local computer. It supports export as MP4, AVI, WMV, AV1, MOV, GoPro Cineform, F4V, MKV, TS, and 3GP.
@@ -359,3 +404,47 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-deep-dive-into-the-top-9-youtube-downloader-apps-for-android/"><u>[New] In 2024, A Deep Dive Into the Top 9 YouTube Downloader Apps for Android</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-resource-for-microsoft-azure-speech-services/"><u>[New] The Ultimate Resource for Microsoft Azure Speech Services</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unveiling-my-lost-followers-insta-unfollow-check/"><u>[New] Unveiling My Lost Followers  Insta Unfollow Check</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-debating-platform-preferences-igtv-versus-youtube-video-sharing/"><u>[Updated] In 2024, Debating Platform Preferences  IGTV Versus YouTube Video Sharing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-maximize-your-online-video-with-these-best-free-webm-tools/"><u>[Updated] In 2024, Maximize Your Online Video with These Best Free WebM Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unveiling-the-secrets-to-snap-success-for-2024/"><u>[Updated] Unveiling the Secrets to Snap Success for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-harvesting-hours-top-10-friendly-farm-gaming-experiences/"><u>2024 Approved  Harvesting Hours  Top 10 Friendly Farm Gaming Experiences</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mac-cam-tips-superior-quality-recordings/"><u>2024 Approved  Mac Cam Tips  Superior Quality Recordings</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-system-issues-of-apple-iphone-11-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-success-infusing-personality-into-templates/"><u>In 2024, Channel Success  Infusing Personality Into Templates</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-success-strategy-standard-studio-or-beta-edge/"><u>In 2024, Channel Success Strategy  Standard Studio or Beta Edge</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-titles-that-shine-how-to-innovate/"><u>In 2024, Channel Titles That Shine  How to Innovate</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-to-checkbook-conversion-the-path-from-adsense-to-banking/"><u>In 2024, Channel to Checkbook Conversion  The Path From AdSense to Banking</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-trailers-that-convert-viewers-into-customers/"><u>In 2024, Channel Trailers that Convert Viewers Into Customers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-transformation-from-zero-to-thousand-followers/"><u>In 2024, Channel Transformation  From Zero to Thousand Followers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-transformation-through-strategic-use-of-youtube-outros/"><u>In 2024, Channel Transformation Through Strategic Use of YouTube Outros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-transformation-with-strategic-use-of-youtube-outros/"><u>In 2024, Channel Transformation with Strategic Use of YouTube Outros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-up-the-essential-guide-to-computer-and-mobile-video-upload/"><u>In 2024, Channel Up  The Essential Guide to Computer & Mobile Video Upload</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-up-your-wealth-profit-from-effective-use-of-youtube-shorts/"><u>In 2024, Channel Up Your Wealth  Profit From Effective Use of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-worth-watching-youtube-music-groups/"><u>In 2024, Channel Worth Watching  YouTube Music Groups</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs/"><u>In 2024, Channel Your Creativity  Convert YouTube Clips Into Dynamic Gifs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-your-inner-narrative-impactful-life-stories-yt/"><u>In 2024, Channel Your Inner Narrative  Impactful Life Stories YT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channeling-changes-transition-to-youtubes-updated-membership-model/"><u>In 2024, Channeling Changes  Transition to YouTube's Updated Membership Model</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channeling-musical-charm-crafting-custom-playlists-on-youtube/"><u>In 2024, Channeling Musical Charm  Crafting Custom Playlists on Youtube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channeling-success-navigating-the-new-youtube-membership-model/"><u>In 2024, Channeling Success  Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-a-course-for-success-top-5-effective-video-marketing-strategies-on-youtube/"><u>In 2024, Chart a Course for Success  Top 5 Effective Video Marketing Strategies on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-a-course-to-higher-views-with-top-optimization-tactics/"><u>In 2024, Chart a Course to Higher Views with Top Optimization Tactics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-a-course-to-popularity-the-fundamentals-of-channel-featuring-on-youtube/"><u>In 2024, Chart a Course to Popularity  The Fundamentals of Channel Featuring on Youtube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-new-horizons-in-branding-with-these-top-10-youtube-tools/"><u>In 2024, Chart New Horizons in Branding with These Top 10 YouTube Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>In 2024, Chart Your Course  Navigating the Waters of YouTube Subscription Surges</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-topping-ideas-to-invigorate-your-youtube-channel/"><u>In 2024, Chart-Topping Ideas to Invigorate Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-chart-topping-video-milestones-hitting-100-million-views-in-24/"><u>In 2024, Chart-Topping Video Milestones Hitting 100 Million Views in '24</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-charting-a-course-youtubes-best-brands/"><u>In 2024, Charting a Course  YouTube's Best Brands</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-charting-a-course-to-success-understanding-youtube-income/"><u>In 2024, Charting a Course to Success  Understanding YouTube Income</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-charting-a-path-to-success-exploring-15-top-youtube-beginnings/"><u>In 2024, Charting a Path to Success  Exploring 15 Top YouTube Beginnings</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphone-x-lens-capabilities-a-guide/"><u>In 2024, Mastering iPhone X Lens Capabilities  A Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/key-principles-for-powerful-video-testimonial-production-for-2024/"><u>Key Principles for Powerful Video Testimonial Production for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-stutters-on-xiaomi-and-stops-randomly-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV stutters on Xiaomi  and stops randomly</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-free-flight-bird-sounds-in-mp3/"><u>Updated Free Flight Bird Sounds in MP3</u></a></li>
+</ul></div>

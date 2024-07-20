@@ -1,7 +1,7 @@
 ---
 title: "Creating Engaging YouTube Trailers in Filmora for 2024"
-date: 2024-05-25T11:34:16.585Z
-updated: 2024-05-26T11:34:16.585Z
+date: 2024-07-19T05:43:59.386Z
+updated: 2024-07-20T05:43:59.386Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "This Article Describes Creating Engaging YouTube Trailers in Filmora for 2024"
 excerpt: "This Article Describes Creating Engaging YouTube Trailers in Filmora for 2024"
 keywords: "\"Filmora Trailer Making,YouTube Video Crafting,Engaging Media Creation,Film Production Videos,Video Editing for Films,Cinematic Trailer Design,Produce Attention-Grabbing Content\""
-thumbnail: https://www.lifewire.com/thmb/jbamhywtXiyGSlJ3P3Gh1VQ_dkA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/FaceTime-Conference-Call-d68241b6f5914009a7eb2486fddab0e1.jpg
+thumbnail: https://thmb.techidaily.com/2151304b15358b5e0486365b1b4e0f5fc2185a4452deb2b08eaf2b9d1e47c0a1.jpg
 ---
 
 ## Creating Engaging YouTube Trailers in Filmora
@@ -26,6 +26,9 @@ A YouTube trailer is a short intro video for your channel. What do you do? What 
 
 In other words, a YouTube trailer is necessary for your channel. It will give the audience a better understanding of yourself and what to expect from your YouTube channel.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** also, the trailer will be visible for non-subscribed viewers who come to your channel for the first time. So as first impressions matter, they need to be creative and engaging.
@@ -62,6 +65,9 @@ The trick here is to get the viewers' attention within 5 seconds, so they're int
 
 Make a short intro, depending on the content and your presence on the screen. Again, developing a friendly relationship between the viewers and yourself is beneficial.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![self-introduction example](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-2.gif)
 
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
@@ -80,6 +86,9 @@ One of the easiest ways is to use perfect music. So if you want to know how to s
 
 Here, you should explain to your audience the purpose of your channel and what they can expect from you. At this stage, new potential viewers can get you, whether your goal is to entertain them, teach something specific, or discuss certain topics and how you intend to achieve them.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![an example of a creative trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-3.jpg)
 
 **Determine the style of your video**
@@ -96,6 +105,9 @@ You can refer to the most popular style in your area. Then, making the possibili
 
 Schedules are vital if you want regularly engaging viewers. The audience will be kept track of your activities and be there as soon as you upload your video. Also, new viewers know when to expect new content from you and commit to your goal, so they know your strategy.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video posts schedules](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-4.jpg)
 
 ##### Step6 Call to action
@@ -156,6 +168,9 @@ Make a short intro, depending on the content and your presence on the screen. Ag
 
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** keep in mind to make a short intro. Please don't spend too much time on it. And remember, it's all about the audience.
@@ -186,6 +201,9 @@ You can refer to the most popular style in your area. Then, making the possibili
 
 Schedules are vital if you want regularly engaging viewers. The audience will be kept track of your activities and be there as soon as you upload your video. Also, new viewers know when to expect new content from you and commit to your goal, so they know your strategy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![video posts schedules](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-4.jpg)
 
 ##### Step6 Call to action
@@ -242,6 +260,9 @@ Here are 3 methods for creating an awesome story:
 * [Method 2: USE EMPATHY](#part2)
 * [Method 3: TAKE THE AUDIENCE ON A MEANINGFUL JOURNEY](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Create Suspense
 
 The hero has an objective, but the plan might fail.
@@ -316,6 +337,9 @@ Through this short video, the repetition of the name is used to show her confide
 
 The more you say something or show something, the more important it becomes for the audience — at least, you want it to appear important.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Use Empathy
 
 A storyteller must be empathetic.
@@ -388,6 +412,9 @@ Are there any YouTubers that you consider to be fantastic storytellers? Please s
 
  Users worldwide highly recommend Filmora because it comes loaded with various features, which helps to discover the editing skills, add an image to the imagination, and empower creativity.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -534,6 +561,9 @@ That is a metaphor comparing school to prison. Most people haven’t been to pri
 
 By connecting two different things, you allow the audience to paint the image in their mind quickly. It doesn’t take a lot of words to create a memorable metaphor. I encourage you to use metaphors anytime you need to address something complicated.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## 3\. Take the Audience on a Meaningful Journey
 
 Perhaps the most important element of a good story is that the journey is meaningful.
@@ -560,6 +590,9 @@ Are there any YouTubers that you consider to be fantastic storytellers? Please s
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -582,6 +615,188 @@ Here are 3 methods for creating an awesome story:
 * [Method 2: USE EMPATHY](#part2)
 * [Method 3: TAKE THE AUDIENCE ON A MEANINGFUL JOURNEY](#part3)
 
+## 1\. Create Suspense
+
+The hero has an objective, but the plan might fail.
+
+The likelihood of something going wrong is what makes a story suspenseful. When you tell a suspenseful story, your audience will have a heightened focus and a strong motivation to continue listening. They want to know if the hero succeeds. Keep the audience waiting and expecting. Don’t give away the ending right away.
+
+#### What Does a Suspenseful Story Sound Like?
+
+When we talk about a story that is dragging on, it is because there is no suspense. There is nothing at stake, there are no obstacles, there is no problem and, with no problem, there is no promise of resolution.
+
+Here are a few examples you can use to pump more suspense into your story:
+
+\- Address a fear (example: being alone for the prom)
+
+\- An objective (example: asking the crush out to the dance)
+
+\- Consequences of failing (example: being embarrassed in front of the whole school)
+
+\- Limited time (example: prom is next week)
+
+\- Obstacles (example: the crush has an aggressive ex.)
+
+You can feel your heart rate speeding up simply thinking about the character’s story in the example. Does it have a happy ending or not? We want to know!
+
+#### Raise Questions After Questions
+
+A good storyteller knows that as soon as they answer a question for their audience, they need to present another one. The audience will always need to have a puzzle in their mind, one that needs to be solved. That is what will keep their interest.
+
+For example: If the hero ends up going to the prom with his crush, the next big question can be: Will they kiss at the last dance?
+
+This continues building on the tension and increasing the stakes evermore.
+
+Check out the suspenseful story from YouTuber, [MissRemiAshten](https://www.youtube.com/channel/UCKN9PT9mTOnUHqUnEE0gfyw). The way she tells the story, we discover more and about her psycho neighbor and the incident gradually. A little bit of information about the neighbor is revealed at a time… not all at once.
+
+#### Include a Cliffhanger
+
+We’ve all had those moments at the end of an intense television show where we are shouting at the screen because it suddenly cut to black as the main characters were left in a precarious position. That emotional outburst is brought to us by a good cliffhanger, and a good cliffhanger can assure us that the audience will return for more.
+
+But there needs to be more! A cliffhanger is a promise to the viewer that eventually they will be rewarded for their patience and it will be satisfying.
+
+In this cliffhanger from Casey Neistat, he simply asks us a question, “Was that good?” This calls upon us to recall all the awesome YouTube videos we have seen created by filmmakers that aren’t considered “prestigious.” A cliffhanger does not have to end with an epic reveal; it can wrap up with loose ends and allow the audience to tie it up themselves.
+
+#### How to Deliver a Good Cliffhanger
+
+Applying good cliffhangers to your YouTube videos is a balancing act. You want to draw your audience in, but you also need to have a payoff that is worth the wait.
+
+Done well, a cliffhanger will leave your audience wanting more. Done poorly, a cliffhanger will leave your audience feeling to mislead and a little ripped off, hesitant to listen to more stories from you.
+
+A good cliffhanger does not have to be life or death, but it does have to be the moment the story has been leading up to.
+
+**Before you start telling your story, consider the key details that are most impactful.**
+
+Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
+
+Here are two ways you can present your cliffhanger for amplified effect:
+
+#### 1\. Slow Down and Have Pauses
+
+As your story intensifies, bring the pace down — or stop completely. The silence becomes the cliffhanger. It can last a second or more, depending on how confident you are in the tension you have built.
+
+Your next words or shots can be the reveal. If you are skilled enough, you can lead into another story one that connects to the previous. If you are trying this, make sure that in the end, the payoff has double the impact. The reveal needs to be twice as powerful if you are going to take the audience on another journey before wrapping up and answering the long-awaited questions.
+
+#### 2\. Use Repetition
+
+Whether you want to misdirect your audience or hammer home a point, using repetition throughout your story will help you build the tension you need to establish the cliffhanger.
+
+In this example, we see YouTuber, [A little bit of Monika](https://www.youtube.com/user/moniGobaira) uses both pace and repetition in her storytelling method.
+
+The video starts off at a speedy pace, all the way until the last scene where the confrontation occurs. That’s her slowing down the story so that we are all anticipating the reveal. Is she or is she not actor, Saoirse Ronan?
+
+Through this short video, the repetition of the name is used to show her confidence that her roommate is not who she said it is. The more affirming she becomes, the more likely we as the viewers are going to side with her. This is a simple example of misdirection.
+
+The more you say something or show something, the more important it becomes for the audience — at least, you want it to appear important.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 2\. Use Empathy
+
+A storyteller must be empathetic.
+
+If your audience cannot empathize with what you are communicating, it would not have the intended effect. Storytelling is all about taking people out of their bodies and putting them in someone else’s.
+
+If you are telling a story about the time your car broke down, you want people to empathize and feel the helplessness of being stuck on a highway, waving cars down to help.
+
+Empathy makes people feel more human. Telling a story people can relate to, even if it didn’t happen to them, is a sign of a quality storyteller.
+
+#### Don’t Use Too Many Facts and Figures
+
+If you began your story by saying that 1/1,000 cars on the highway break down, that doesn’t evoke any major emotion. There is nothing human about it.
+
+It’s an interesting stat, sure, but the audience is unsure how they should respond. Is that a lot? Is that because of the highway? Is it because of the drivers? Nobody knows… it’s numbered with no context.
+
+However, if you told the story about that time you had to abandon your vehicle and walk down the highway in order to make your important appointment. Suddenly, the audience can empathize with the tribulations you have gone through.
+
+Facts and figures are useful in reports, but not as much in compelling stories.
+
+#### Evoke the Senses
+
+If I talk about hot melting chocolate, standing in the rain, or the smell of your grandmother’s bedroom, your senses are activated. From all your life experiences, your brain is able to form familiar sensations without any physical changes to your surrounding. That’s the power of storytelling.
+
+Good storytellers use these sensory details and descriptive imagery to spice up a story. This draws the audience in and gives them a more immersive experience when listening to your stories.
+
+Ask yourself these questions:
+
+\- What does it smell like?
+
+\- What can you hear?
+
+\- What do you see?
+
+\- What can you physically feel?
+
+This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVLz21lU7TG39ogUvPFFjA) perfectly exemplifies what sensory igniting storytelling can do. He illustrates the sensation of being in Hong Kong, not simply through visuals but physical motions and audio effects.
+
+#### Use Metaphors
+
+As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
+
+If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
+
+That is a metaphor comparing school to prison. Most people haven’t been to prison, but understand what the metaphor is insinuating. School is not a fun place to be because of that teacher.
+
+By connecting two different things, you allow the audience to paint the image in their mind quickly. It doesn’t take a lot of words to create a memorable metaphor. I encourage you to use metaphors anytime you need to address something complicated.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+## 3\. Take the Audience on a Meaningful Journey
+
+Perhaps the most important element of a good story is that the journey is meaningful.
+
+\- Is it educational?
+
+\- Is it entertaining?
+
+\- Is it motivational or inspiring?
+
+Knowing how you want to leave your audience feeling is foresight that will improve your YouTube storytelling abilities. Before you start telling your tale, ask: How do I want to change my audience?
+
+YouTuber, [Jamie Windsor](https://www.youtube.com/user/jamiewindsor) tells a few stories connected to creativity and plagiarism. Anyone who has ever created anything can relate to his story and thus his audience can empathize.
+
+It is also clear as a viewer that at the end of this 15-minute long video, his audience will have gone on a meaningful journey with him.
+
+His story is a cautionary tale. He wants to educate us so that we can avoid making the same mistakes he did. He used his real-life experience to teach us and that makes it a meaningful video to watch. That was a good story.
+
+Are there any YouTubers that you consider to be fantastic storytellers? Please share it in the comments box below.
+
+## Select a Versatile Video Editing Software to Stand Up from Numerous YouTubers
+
+ Users worldwide highly recommend Filmora because it comes loaded with various features, which helps to discover the editing skills, add an image to the imagination, and empower creativity.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+In the distracting world, we live in, you need to be a good storyteller to grow your YouTube channel. Your audience is not going to stick around to watch your whole video if your content isn’t enticing or relatable. If you want to get people to watch all your videos, you need to get them emotionally invested with your stories.
+
+Here are 3 methods for creating an awesome story:
+
+* [Method 1: CREATE SUSPENSE](#part1)
+* [Method 2: USE EMPATHY](#part2)
+* [Method 3: TAKE THE AUDIENCE ON A MEANINGFUL JOURNEY](#part3)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Create Suspense
 
 The hero has an objective, but the plan might fail.
@@ -704,6 +919,9 @@ That is a metaphor comparing school to prison. Most people haven’t been to pri
 
 By connecting two different things, you allow the audience to paint the image in their mind quickly. It doesn’t take a lot of words to create a memorable metaphor. I encourage you to use metaphors anytime you need to address something complicated.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Take the Audience on a Meaningful Journey
 
 Perhaps the most important element of a good story is that the journey is meaningful.
@@ -728,176 +946,9 @@ Are there any YouTubers that you consider to be fantastic storytellers? Please s
 
  Users worldwide highly recommend Filmora because it comes loaded with various features, which helps to discover the editing skills, add an image to the imagination, and empower creativity.
 
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-In the distracting world, we live in, you need to be a good storyteller to grow your YouTube channel. Your audience is not going to stick around to watch your whole video if your content isn’t enticing or relatable. If you want to get people to watch all your videos, you need to get them emotionally invested with your stories.
-
-Here are 3 methods for creating an awesome story:
-
-* [Method 1: CREATE SUSPENSE](#part1)
-* [Method 2: USE EMPATHY](#part2)
-* [Method 3: TAKE THE AUDIENCE ON A MEANINGFUL JOURNEY](#part3)
-
-## 1\. Create Suspense
-
-The hero has an objective, but the plan might fail.
-
-The likelihood of something going wrong is what makes a story suspenseful. When you tell a suspenseful story, your audience will have a heightened focus and a strong motivation to continue listening. They want to know if the hero succeeds. Keep the audience waiting and expecting. Don’t give away the ending right away.
-
-#### What Does a Suspenseful Story Sound Like?
-
-When we talk about a story that is dragging on, it is because there is no suspense. There is nothing at stake, there are no obstacles, there is no problem and, with no problem, there is no promise of resolution.
-
-Here are a few examples you can use to pump more suspense into your story:
-
-\- Address a fear (example: being alone for the prom)
-
-\- An objective (example: asking the crush out to the dance)
-
-\- Consequences of failing (example: being embarrassed in front of the whole school)
-
-\- Limited time (example: prom is next week)
-
-\- Obstacles (example: the crush has an aggressive ex.)
-
-You can feel your heart rate speeding up simply thinking about the character’s story in the example. Does it have a happy ending or not? We want to know!
-
-#### Raise Questions After Questions
-
-A good storyteller knows that as soon as they answer a question for their audience, they need to present another one. The audience will always need to have a puzzle in their mind, one that needs to be solved. That is what will keep their interest.
-
-For example: If the hero ends up going to the prom with his crush, the next big question can be: Will they kiss at the last dance?
-
-This continues building on the tension and increasing the stakes evermore.
-
-Check out the suspenseful story from YouTuber, [MissRemiAshten](https://www.youtube.com/channel/UCKN9PT9mTOnUHqUnEE0gfyw). The way she tells the story, we discover more and about her psycho neighbor and the incident gradually. A little bit of information about the neighbor is revealed at a time… not all at once.
-
-#### Include a Cliffhanger
-
-We’ve all had those moments at the end of an intense television show where we are shouting at the screen because it suddenly cut to black as the main characters were left in a precarious position. That emotional outburst is brought to us by a good cliffhanger, and a good cliffhanger can assure us that the audience will return for more.
-
-But there needs to be more! A cliffhanger is a promise to the viewer that eventually they will be rewarded for their patience and it will be satisfying.
-
-In this cliffhanger from Casey Neistat, he simply asks us a question, “Was that good?” This calls upon us to recall all the awesome YouTube videos we have seen created by filmmakers that aren’t considered “prestigious.” A cliffhanger does not have to end with an epic reveal; it can wrap up with loose ends and allow the audience to tie it up themselves.
-
-#### How to Deliver a Good Cliffhanger
-
-Applying good cliffhangers to your YouTube videos is a balancing act. You want to draw your audience in, but you also need to have a payoff that is worth the wait.
-
-Done well, a cliffhanger will leave your audience wanting more. Done poorly, a cliffhanger will leave your audience feeling to mislead and a little ripped off, hesitant to listen to more stories from you.
-
-A good cliffhanger does not have to be life or death, but it does have to be the moment the story has been leading up to.
-
-**Before you start telling your story, consider the key details that are most impactful.**
-
-Once you have the points you want to hit, plan out the reveal. Weave the story together, but withhold the pivotal details until the cliffhanger. Then[deliver it on camera confidently](https://tools.techidaily.com/wondershare/filmora/download/).
-
-Here are two ways you can present your cliffhanger for amplified effect:
-
-#### 1\. Slow Down and Have Pauses
-
-As your story intensifies, bring the pace down — or stop completely. The silence becomes the cliffhanger. It can last a second or more, depending on how confident you are in the tension you have built.
-
-Your next words or shots can be the reveal. If you are skilled enough, you can lead into another story one that connects to the previous. If you are trying this, make sure that in the end, the payoff has double the impact. The reveal needs to be twice as powerful if you are going to take the audience on another journey before wrapping up and answering the long-awaited questions.
-
-#### 2\. Use Repetition
-
-Whether you want to misdirect your audience or hammer home a point, using repetition throughout your story will help you build the tension you need to establish the cliffhanger.
-
-In this example, we see YouTuber, [A little bit of Monika](https://www.youtube.com/user/moniGobaira) uses both pace and repetition in her storytelling method.
-
-The video starts off at a speedy pace, all the way until the last scene where the confrontation occurs. That’s her slowing down the story so that we are all anticipating the reveal. Is she or is she not actor, Saoirse Ronan?
-
-Through this short video, the repetition of the name is used to show her confidence that her roommate is not who she said it is. The more affirming she becomes, the more likely we as the viewers are going to side with her. This is a simple example of misdirection.
-
-The more you say something or show something, the more important it becomes for the audience — at least, you want it to appear important.
-
-## 2\. Use Empathy
-
-A storyteller must be empathetic.
-
-If your audience cannot empathize with what you are communicating, it would not have the intended effect. Storytelling is all about taking people out of their bodies and putting them in someone else’s.
-
-If you are telling a story about the time your car broke down, you want people to empathize and feel the helplessness of being stuck on a highway, waving cars down to help.
-
-Empathy makes people feel more human. Telling a story people can relate to, even if it didn’t happen to them, is a sign of a quality storyteller.
-
-#### Don’t Use Too Many Facts and Figures
-
-If you began your story by saying that 1/1,000 cars on the highway break down, that doesn’t evoke any major emotion. There is nothing human about it.
-
-It’s an interesting stat, sure, but the audience is unsure how they should respond. Is that a lot? Is that because of the highway? Is it because of the drivers? Nobody knows… it’s numbered with no context.
-
-However, if you told the story about that time you had to abandon your vehicle and walk down the highway in order to make your important appointment. Suddenly, the audience can empathize with the tribulations you have gone through.
-
-Facts and figures are useful in reports, but not as much in compelling stories.
-
-#### Evoke the Senses
-
-If I talk about hot melting chocolate, standing in the rain, or the smell of your grandmother’s bedroom, your senses are activated. From all your life experiences, your brain is able to form familiar sensations without any physical changes to your surrounding. That’s the power of storytelling.
-
-Good storytellers use these sensory details and descriptive imagery to spice up a story. This draws the audience in and gives them a more immersive experience when listening to your stories.
-
-Ask yourself these questions:
-
-\- What does it smell like?
-
-\- What can you hear?
-
-\- What do you see?
-
-\- What can you physically feel?
-
-This example from YouTuber, [Kiril Dobrev](https://www.youtube.com/channel/UCPVLz21lU7TG39ogUvPFFjA) perfectly exemplifies what sensory igniting storytelling can do. He illustrates the sensation of being in Hong Kong, not simply through visuals but physical motions and audio effects.
-
-#### Use Metaphors
-
-As a YouTube storyteller, sometimes you will have to communicate complex ideas. When that happens, [use a metaphor](https://www.mindtools.com/pages/article/newCT%5F93.htm)to increase the impact.
-
-If you are telling a story about how much you dislike your teacher, you can list off all the ways she is unlikable or you can sum it up with a line like this: “My teacher makes the school a prison.”
-
-That is a metaphor comparing school to prison. Most people haven’t been to prison, but understand what the metaphor is insinuating. School is not a fun place to be because of that teacher.
-
-By connecting two different things, you allow the audience to paint the image in their mind quickly. It doesn’t take a lot of words to create a memorable metaphor. I encourage you to use metaphors anytime you need to address something complicated.
-
-## 3\. Take the Audience on a Meaningful Journey
-
-Perhaps the most important element of a good story is that the journey is meaningful.
-
-\- Is it educational?
-
-\- Is it entertaining?
-
-\- Is it motivational or inspiring?
-
-Knowing how you want to leave your audience feeling is foresight that will improve your YouTube storytelling abilities. Before you start telling your tale, ask: How do I want to change my audience?
-
-YouTuber, [Jamie Windsor](https://www.youtube.com/user/jamiewindsor) tells a few stories connected to creativity and plagiarism. Anyone who has ever created anything can relate to his story and thus his audience can empathize.
-
-It is also clear as a viewer that at the end of this 15-minute long video, his audience will have gone on a meaningful journey with him.
-
-His story is a cautionary tale. He wants to educate us so that we can avoid making the same mistakes he did. He used his real-life experience to teach us and that makes it a meaningful video to watch. That was a good story.
-
-Are there any YouTubers that you consider to be fantastic storytellers? Please share it in the comments box below.
-
-## Select a Versatile Video Editing Software to Stand Up from Numerous YouTubers
-
- Users worldwide highly recommend Filmora because it comes loaded with various features, which helps to discover the editing skills, add an image to the imagination, and empower creativity.
-
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -923,3 +974,38 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-microrecorder-assessment-onscreen-snaps/"><u>[New] 2024 Approved  MicroRecorder Assessment  Onscreen Snaps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-capturing-ps4-a-comprehensive-review-of-recording-options-for-2024/"><u>[New] Capturing PS4  A Comprehensive Review of Recording Options for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-banner-design-rules-for-top-youtube-channels/"><u>[New] Essential Banner Design Rules for Top YouTube Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-business-youtube-sites-you-must-follow/"><u>[New] Essential Business YouTube Sites You Must Follow</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-editing-techniques-for-yt-channel-summaries/"><u>[New] Essential Editing Techniques for YT Channel Summaries</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-free-apps-for-youtube-to-wav-transformation/"><u>[New] Essential Free Apps for YouTube to WAV Transformation</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-free-mcb-theme-templates/"><u>[New] Essential Free MCB Theme Templates</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-free-services-for-designing-impactful-youtube-intros/"><u>[New] Essential Free Services for Designing Impactful YouTube Intros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>[New] Essential Free Tools  Convert YouTube Audio to MP3 on iPhone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-free-video-editing-apps-for-iphonesipads/"><u>[New] Essential Free Video Editing Apps for iPhones/iPads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-game-streamers-for-your-watchlist/"><u>[New] Essential Game Streamers for Your Watchlist</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-gear-for-video-blogging-top-rated-camera-lenses-revealed/"><u>[New] Essential Gear for Video Blogging  Top-Rated Camera Lenses Revealed</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-gif-making-software-the-ultimate-guide/"><u>[New] Essential GIF Making Software  The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-for-prime-webcams-in-youtube-live-broadcasts/"><u>[New] Essential Guide for Prime Webcams in YouTube Live Broadcasts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-for-youtube-video-clips/"><u>[New] Essential Guide for YouTube Video Clips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-to-enhancing-youtube-content-post-upload/"><u>[New] Essential Guide to Enhancing YouTube Content Post-Upload</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-to-forming-powerful-content-partnerships-on-youtube/"><u>[New] Essential Guide to Forming Powerful Content Partnerships on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-to-mastering-asmr-experience/"><u>[New] Essential Guide to Mastering ASMR Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-to-upgrade-your-shorts-into-premium-mp4-files/"><u>[New] Essential Guide to Upgrade Your Shorts Into Premium Mp4 Files</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-to-uploading-high-res-videos-on-youtube/"><u>[New] Essential Guide to Uploading High-Res Videos on Youtube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-guide-to-youtube-video-resolutions-and-aspects/"><u>[New] Essential Guide to YouTube Video Resolutions & Aspects</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-humor-hub-adobe-meme-manipulation/"><u>[New] Humor Hub  Adobe Meme Manipulation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-diy-guide-screen-capture-and-sound-from-youtube/"><u>[New] In 2024, DIY Guide  Screen Capture & Sound From YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigate-to-the-top-10-most-advanced-photo-changer-apps/"><u>[New] Navigate to the Top 10 Most Advanced Photo Changer Apps</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-comprehensive-selection-of-top-10-free-srt-changers/"><u>2024 Approved  The Comprehensive Selection of Top 10 FREE SRT Changers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-15-tips-for-accessing-nba-games-online/"><u>2024 Approved  Top 15 Tips for Accessing NBA Games Online</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/conquer-screen-capture-in-depth-windows-pc-guide-for-live-tv-recording/"><u>Conquer Screen Capture  In-Depth Windows PC Guide for Live TV Recording</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-samsung-galaxy-xcover-7-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Samsung Galaxy XCover 7 Through Google Earth?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-sony-xperia-1-v-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Sony Xperia 1 V by Name | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-websites-for-digital-3d-text-with-a-golden-accent/"><u>Leading Websites for Digital 3D Text with a Golden Accent</u></a></li>
+</ul></div>

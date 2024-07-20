@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Legality  Taking Content Offline\""
-date: 2024-05-25T13:28:33.266Z
-updated: 2024-05-26T13:28:33.266Z
+date: 2024-07-19T07:11:07.297Z
+updated: 2024-07-20T07:11:07.297Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes YouTube Legality: Taking Content Offline\""
 excerpt: "\"This Article Describes YouTube Legality: Taking Content Offline\""
 keywords: "YouTube Law,Content Removal,Online Copyright,Video Legitimacy,Digital Rights,Offline Piracy,Content Takedown"
-thumbnail: https://www.lifewire.com/thmb/wQyUGp2Buuw3r4RGW-gpULMVqX4=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-906869866-6ffa6ccefe6343cbb4fc0125395b047b.jpg
+thumbnail: https://thmb.techidaily.com/bc72bcdc29440f3559a7ac3b3d313c8c685d10379af7ea84f2fb960950ffa85c.jpg
 ---
 
 ## YouTube Legality: Taking Content Offline
@@ -28,6 +28,9 @@ However, if you have been asking is screen recording on YouTube illegal? Yes it 
 
 If YouTube detects any illegal upload, it will suspend the subscriber's account. The illegal content is removed from the YouTube platform within 24 hours. It is advisable for all the users to comply with the set policy strictly and do the screen recording in legal ways and allowed purposes. Before recording any content on YouTube, you must ask yourself this question first; is screen recording on YouTube illegal?
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## How to Record YouTube Videos
 
 With the above in mind, it is important to know how to record YouTube videos on PC in the right way. To be able to record the videos in the right way, you need to use one of the many available screen recording programs available in the market today.
@@ -69,6 +72,9 @@ For macOS 10.12 or later
 
 **Step 2: Launch Filmora.**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record games filmora](https://images.wondershare.com/filmora/guide/recording-01.png)
 
 Now that you have installed this software, launch the Wondershare Filmora program and the main interface of the Filmora application will pop up to get you to the recording options. This interface has about four options; Audio reframe, Audio Best Sync, PC screen, and AI portrait. All these are set to make your work easier when recording videos and audio. Click on the new project from the welcome screen.
@@ -81,6 +87,9 @@ You can customize your recording options to suit your interest and then open you
 
 ![record games filmora](https://images.wondershare.com/filmora/article-images/start-recording-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Edit Recorded YouTube Video
 
 Regardless of the software, you are using to edit your YouTube videos, there are common steps that you can follow to make your journey a success. Filmora is efficient and reliable software that you can easily operate when editing your videos. This is why I will take you through the steps that you need to take when editing YouTube videos with this program.
@@ -105,6 +114,9 @@ At this point, you can rotate the video at any angle, or direction and you can a
 
 **Step 3: Add audio, texts, and more effects.**
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![add text effects filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 Now that you have edited your different video shots into a single video, you can now take the step of adding some more effects to your video. At this point, you can add different staff such as music, texts, and different other effects that you would prefer your viewers to see in your video. Some may think this is difficult to do if they have not tried it before.
@@ -145,6 +157,9 @@ For macOS 10.12 or later
 
 **Step 2: Launch Filmora.**
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![record games filmora](https://images.wondershare.com/filmora/guide/recording-01.png)
 
 Now that you have installed this software, launch the Wondershare Filmora program and the main interface of the Filmora application will pop up to get you to the recording options. This interface has about four options; Audio reframe, Audio Best Sync, PC screen, and AI portrait. All these are set to make your work easier when recording videos and audio. Click on the new project from the welcome screen.
@@ -157,6 +172,9 @@ You can customize your recording options to suit your interest and then open you
 
 ![record games filmora](https://images.wondershare.com/filmora/article-images/start-recording-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Edit Recorded YouTube Video
 
 Regardless of the software, you are using to edit your YouTube videos, there are common steps that you can follow to make your journey a success. Filmora is efficient and reliable software that you can easily operate when editing your videos. This is why I will take you through the steps that you need to take when editing YouTube videos with this program.
@@ -181,6 +199,9 @@ At this point, you can rotate the video at any angle, or direction and you can a
 
 **Step 3: Add audio, texts, and more effects.**
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add text effects filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 Now that you have edited your different video shots into a single video, you can now take the step of adding some more effects to your video. At this point, you can add different staff such as music, texts, and different other effects that you would prefer your viewers to see in your video. Some may think this is difficult to do if they have not tried it before.
@@ -189,6 +210,9 @@ The Wondershare Filmora screen editor has appropriate features to help you add a
 
 **Step 4: Save and Export**
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![export or save videos filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
 
 After adding all the special effects, you are almost at the final stage. The next important thing to do is to choose the format of saving your video file. After making sure that your video format is set, and then you can export your video file.
@@ -227,6 +251,9 @@ Now that you have installed this software, launch the Wondershare Filmora progra
 
 **Step 3: Click on the record PC screen option.**
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora recording options](https://images.wondershare.com/filmora/guide/recording-04.png)
 
 You can customize your recording options to suit your interest and then open your browser and open the YouTube video you want to record. After this is done, click on the red button to start recording the screen. Now you are aware of the steps you need to take when you want to **record a YouTube video with audio**.
@@ -241,6 +268,9 @@ Regardless of the software, you are using to edit your YouTube videos, there are
 
 Just like other alternative editing programs, the Wondershare Filmora video editing program has a timeline view of the project you are working on. This is where you can cut or drop your shots as each of the shots are in separate files that you should combine with others to make one complete video.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![split video filmora](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
 
 Filmora has an effective split feature, that can help you cut footage into parts, and after, you can move the splits into the correct position or delete the unwanted parts. The Quick Trim feature can help you to choose any part of your video quickly when previewing.
@@ -257,6 +287,9 @@ At this point, you can rotate the video at any angle, or direction and you can a
 
 **Step 3: Add audio, texts, and more effects.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![add text effects filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 Now that you have edited your different video shots into a single video, you can now take the step of adding some more effects to your video. At this point, you can add different staff such as music, texts, and different other effects that you would prefer your viewers to see in your video. Some may think this is difficult to do if they have not tried it before.
@@ -277,6 +310,9 @@ When editing your YouTube videos on your computer, remember to follow the above 
 
 Having equipped yourself with such knowledge, you can download the Filmora software and install it on your computer as it is one of the very best software when it comes to recording and editing videos and audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now you know what to do and what not to do when it comes to recording and editing YouTube videos. Remember, for you to avoid problems with the YouTube platform, work in the brackets of the set policy. Find the right and fitting video editor such as Filmora to assist you in recording and editing videos for YouTube. There are many Filmora tutorial guides that can help you know how to download and install it on your PC.
@@ -297,12 +333,27 @@ For macOS 10.12 or later
 
 **Step 2: Launch Filmora.**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![record games filmora](https://images.wondershare.com/filmora/guide/recording-01.png)
 
 Now that you have installed this software, launch the Wondershare Filmora program and the main interface of the Filmora application will pop up to get you to the recording options. This interface has about four options; Audio reframe, Audio Best Sync, PC screen, and AI portrait. All these are set to make your work easier when recording videos and audio. Click on the new project from the welcome screen.
 
 **Step 3: Click on the record PC screen option.**
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora recording options](https://images.wondershare.com/filmora/guide/recording-04.png)
 
 You can customize your recording options to suit your interest and then open your browser and open the YouTube video you want to record. After this is done, click on the red button to start recording the screen. Now you are aware of the steps you need to take when you want to **record a YouTube video with audio**.
@@ -327,6 +378,9 @@ For you to combine several footages into one, you need to place all clips in the
 
 **Step 2: Rotate, Crop, Pan, and Zoom**
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![pan and zoom video filmora](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
 At this point, you can rotate the video at any angle, or direction and you can as well change the scale of your video footage. If you want the viewers to focus on a certain part of the video frame, apply the Pan & Zoom feature.
@@ -341,6 +395,9 @@ The Wondershare Filmora screen editor has appropriate features to help you add a
 
 **Step 4: Save and Export**
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![export or save videos filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
 
 After adding all the special effects, you are almost at the final stage. The next important thing to do is to choose the format of saving your video file. After making sure that your video format is set, and then you can export your video file.
@@ -353,6 +410,9 @@ When editing your YouTube videos on your computer, remember to follow the above 
 
 Having equipped yourself with such knowledge, you can download the Filmora software and install it on your computer as it is one of the very best software when it comes to recording and editing videos and audio.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now you know what to do and what not to do when it comes to recording and editing YouTube videos. Remember, for you to avoid problems with the YouTube platform, work in the brackets of the set policy. Find the right and fitting video editor such as Filmora to assist you in recording and editing videos for YouTube. There are many Filmora tutorial guides that can help you know how to download and install it on your PC.
@@ -410,6 +470,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -426,6 +489,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Poll**: Encourage viewers to participate in a poll (vote)
 * **Link**: links to a website which compliments whatever content is in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -436,6 +502,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
@@ -509,10 +578,20 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -537,6 +616,9 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How To Use Youtube End Screen
 
 Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
@@ -565,6 +647,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -606,6 +691,9 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
@@ -638,6 +726,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -645,6 +736,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Poll**: Encourage viewers to participate in a poll (vote)
 * **Link**: links to a website which compliments whatever content is in the video.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -659,6 +753,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -682,3 +779,49 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-best-intro-maker-apps-for-iphone-and-android/"><u>[New] 10 Best Intro Maker Apps for iPhone and Android</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-best-mobile-edits-youtube-shorts-clips-on-iosandroid/"><u>[New] 10 Best Mobile Edits  YouTube Shorts Clips on iOS/Android</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-best-vr-videos-on-youtube-to-have-immersive-experience/"><u>[New] 10 Best VR Videos on YouTube to Have Immersive Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-budget-friendly-platforms-for-youtube-branding-mastery/"><u>[New] 10 Budget-Friendly Platforms for YouTube Branding Mastery</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-essential-vlog-editing-hacks-for-novice-creators/"><u>[New] 10 Essential Vlog Editing Hacks for Novice Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-expert-suggestions-to-make-your-yt-shorts-stand-out/"><u>[New] 10 Expert Suggestions to Make Your YT Shorts Stand Out</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-fastest-growing-youtube-channels-to-light-up-your-mind/"><u>[New] 10 Fastest Growing YouTube Channels to Light Up Your Mind</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-iconic-beauty-personalities-to-follow-on-youtube/"><u>[New] 10 Iconic Beauty Personalities to Follow on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-leading-flv-to-youtube-video-converters/"><u>[New] 10 Leading FLV to YouTube Video Converters</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-most-inspiring-yoga-channels-on-the-web/"><u>[New] 10 Most Inspiring Yoga Channels on the Web</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-most-popular-beauty-gurus-on-youtube/"><u>[New] 10 Most Popular Beauty Gurus on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-must-have-keyword-gurus-for-video-success/"><u>[New] 10 Must-Have Keyword Gurus for Video Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-must-see-free-film-picks-for-youtube-viewers/"><u>[New] 10 Must-See FREE Film Picks for YouTube Viewers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-premium-yoga-channels-for-ultimate-fitness-journey/"><u>[New] 10 Premium Yoga Channels for Ultimate Fitness Journey</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-stellar-tools-that-amplify-your-videos-youtube-presence/"><u>[New] 10 Stellar Tools That Amplify Your Video's YouTube Presence</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-superior-youtube-mp3-extractors/"><u>[New] 10 Superior YouTube Mp3 Extractors</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-top-ranked-youtube-news-entities/"><u>[New] 10 Top-Ranked YouTube News Entities</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-user-friendly-free-tools-to-create-professional-video-thumbnails/"><u>[New] 10 User-Friendly Free Tools to Create Professional Video Thumbnails</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10-youtube-havens-for-entrepreneurs-and-business-gurus/"><u>[New] 10 YouTube Havens for Entrepreneurs & Business Gurus</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10plus-best-free-video-editing-programs-of-2023/"><u>[New] 10+ Best Free Video Editing Programs of 2023</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-10plus-incredible-free-youtube-intro-makers/"><u>[New] 10+ Incredible Free YouTube Intro Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-structuring-inspirational-lifestyle-content-for-audiences/"><u>[New] 2024 Approved  Structuring Inspirational Lifestyle Content for Audiences</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-editing-techniques-for-yt-channel-summaries-for-2024/"><u>[New] Essential Editing Techniques for YT Channel Summaries for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-guide-to-quick-video-recording-on-youtube-for-2024/"><u>[New] Guide to Quick Video Recording on YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-aerial-artistry-in-motion-examining-gopro-karma-performance/"><u>[New] In 2024, Aerial Artistry in Motion  Examining GoPro Karma Performance</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-streamline-video-calls-using-google-hangouts-efficiently/"><u>[New] In 2024, Streamline Video Calls  Using Google Hangouts Efficiently</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-plunge-into-quality-leading-camcorders-for-aquatic-adventurers/"><u>[New] Plunge Into Quality  Leading Camcorders for Aquatic Adventurers</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-precision-in-presentation-finalizing-videos-on-vimeo-effectively/"><u>[Updated] 2024 Approved  Precision in Presentation  Finalizing Videos on Vimeo Effectively</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-understanding-drones-their-functionality-explored/"><u>[Updated] Understanding Drones  Their Functionality Explored</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-unveil-secrets-how-to-master-video-angles-using-vlc-for-2024/"><u>[Updated] Unveil Secrets  How to Master Video Angles Using VLC for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-capture-igtv-media-step-by-step-guide-for-pc-and-mac-devices/"><u>2024 Approved  Capture IGTV Media  Step-by-Step Guide for PC & Mac Devices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-non-sport-spectacles-in-the-top-ten-front-rows/"><u>2024 Approved  Non-Sport Spectacles in the Top Ten Front Rows</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-streamlining-your-figma-project-eliminate-the-unwanted-background/"><u>2024 Approved  Streamlining Your Figma Project  Eliminate the Unwanted Background</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-top-picks-best-xbox-hdd-models-reviewed/"><u>2024 Approved  Top Picks  Best Xbox HDD Models Reviewed</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-lava-yuva-2-pro-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Lava Yuva 2 Pro Pattern Lock Screen</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-nokia-c12-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Nokia C12 Pro in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-g-stylus-2023-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto G Stylus (2023) If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-recovery-on-iphone-13-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery on iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-from-bland-visuals-to-dynamic-displays-adding-audio-elements-to-your-digital-videos-for-2024/"><u>New From Bland Visuals to Dynamic Displays Adding Audio Elements to Your Digital Videos for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-windows-video-editing-software-that-rivals-sony-vegas/"><u>New In 2024, Windows Video Editing Software That Rivals Sony Vegas</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-motorola-g54-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Motorola G54 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+</ul></div>

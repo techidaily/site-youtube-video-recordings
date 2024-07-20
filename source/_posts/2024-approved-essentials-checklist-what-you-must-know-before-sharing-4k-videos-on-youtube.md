@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essentials Checklist - What You Must Know Before Sharing 4K Videos on Youtube\""
-date: 2024-05-25T11:14:49.294Z
-updated: 2024-05-26T11:14:49.294Z
+date: 2024-07-19T05:29:40.350Z
+updated: 2024-07-20T05:29:40.350Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Essentials Checklist - What You Must Know Before Sharing 4K Videos on Youtube\""
 excerpt: "\"This Article Describes 2024 Approved: Essentials Checklist - What You Must Know Before Sharing 4K Videos on Youtube\""
 keywords: "\"Share 4K YouTube,Essential Video Tips,Pre-Upload Checklist,4K Content Guide,YouTube Sharing Basics,High Res Video Ready,Youtube Video Standards\""
-thumbnail: https://www.lifewire.com/thmb/RVHYcHxZK80TLaMk4bNfK1rMPWY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/getty_images_Morsa_Images-166b38a9c3184b1aa5d051f113d51828.jpg
+thumbnail: https://thmb.techidaily.com/482035835ea328d1609501451811446cad884a7a61227ca3ca092b735291d94d.jpg
 ---
 
 ## Essentials Checklist - What You Must Know Before Sharing 4K Videos on Youtube
@@ -127,6 +127,9 @@ Follow the steps below to post your video to YouTube:
 
 10\. You can also automatically set it to publish at a later date.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips On How To Make Sure The Video You're Uploading Is Of High Quality
 
 The following are five tips for amateur and top newbie YouTubers who want to improve their videos.
@@ -157,6 +160,18 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** This is pretty much everything we've gathered to assist you in uploading 4K videos to YouTube. Do not become worried. Your 4K video will be in low resolution when you first publish it. This is due to YouTube's high-resolution processing requiring time. It could take a few hours for your video to be available in 4K mode.
@@ -181,6 +196,9 @@ If you've decided to make videos in 4K resolution, you'll find information on re
 
 04 [Tips On How To Make Sure The Video You're Uploading Is Of High Quality](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is The Distinction Between Various Resolutions?
 
 The number of pixels on a screen is referred to as resolution. Low resolution indicates fewer pixels and typically less space, whereas high resolution means more pixels and generally greater space and detail. You probably have a poor resolution if you're using a standard laptop or an old screen.
@@ -246,12 +264,18 @@ Follow the steps below to post your video to YouTube:
 
 3\. Select "Upload video" from the drop-down menu.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![upload 4k video to youtube](https://images.wondershare.com/filmora/article-images/2021/upload-4k-video-to-youtube-1.jpg)
 
 4\. Drag and drop your video file into the upload box, or select your file from the "Select File" menu and click "Open."
 
 5\. Make a note of the title and description while YouTube is processing your video.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![how to upload 4k video to youtube](https://images.wondershare.com/filmora/article-images/2021/upload-4k-video-to-youtube-2.jpg)
 
 6\. Select a video thumbnail from the options or upload your own and select your "Audience" from the drop-down menu. To manage age restriction settings.
@@ -362,6 +386,9 @@ This sort of resolution, often known as 4Kor UHD (Ultra High Definition), has a 
 
 The resolution of 4K videos is: 3840 x 2160 (or 2160p / simply 4K) is a resolution of 3840 x 2160 pixels.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Why Would You Want To Upload A 4k Video?
 
 YouTube is the second-largest social media site, with approximately 1.9 billion monthly active users. YouTube is where you want to be to access this large audience and promote your brand, with one billion hours of video watched every day on the platform.
@@ -385,6 +412,9 @@ Follow the steps below to post your video to YouTube:
 
 3\. Select "Upload video" from the drop-down menu.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ![upload 4k video to youtube](https://images.wondershare.com/filmora/article-images/2021/upload-4k-video-to-youtube-1.jpg)
 
 4\. Drag and drop your video file into the upload box, or select your file from the "Select File" menu and click "Open."
@@ -435,6 +465,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** This is pretty much everything we've gathered to assist you in uploading 4K videos to YouTube. Do not become worried. Your 4K video will be in low resolution when you first publish it. This is due to YouTube's high-resolution processing requiring time. It could take a few hours for your video to be available in 4K mode.
@@ -459,6 +492,9 @@ If you've decided to make videos in 4K resolution, you'll find information on re
 
 04 [Tips On How To Make Sure The Video You're Uploading Is Of High Quality](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is The Distinction Between Various Resolutions?
 
 The number of pixels on a screen is referred to as resolution. Low resolution indicates fewer pixels and typically less space, whereas high resolution means more pixels and generally greater space and detail. You probably have a poor resolution if you're using a standard laptop or an old screen.
@@ -524,6 +560,9 @@ Follow the steps below to post your video to YouTube:
 
 3\. Select "Upload video" from the drop-down menu.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![upload 4k video to youtube](https://images.wondershare.com/filmora/article-images/2021/upload-4k-video-to-youtube-1.jpg)
 
 4\. Drag and drop your video file into the upload box, or select your file from the "Select File" menu and click "Open."
@@ -544,6 +583,9 @@ Follow the steps below to post your video to YouTube:
 
 10\. You can also automatically set it to publish at a later date.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tips On How To Make Sure The Video You're Uploading Is Of High Quality
 
 The following are five tips for amateur and top newbie YouTubers who want to improve their videos.
@@ -574,6 +616,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 **●** This is pretty much everything we've gathered to assist you in uploading 4K videos to YouTube. Do not become worried. Your 4K video will be in low resolution when you first publish it. This is due to YouTube's high-resolution processing requiring time. It could take a few hours for your video to be available in 4K mode.
@@ -592,6 +637,9 @@ For macOS 10.12 or later
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Can YouTube Sub4Sub Really Enhance Viewing Experience?
 
 # YouTube Sub4Sub: Does It Really Work?
@@ -608,6 +656,9 @@ For macOS 10.12 or later
 
  This article will explain the pros and cons of Sub4Sub.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -628,6 +679,9 @@ For macOS 10.12 or later
 
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -684,6 +738,9 @@ Follow @Richard Bennett
 
  This article will explain the pros and cons of Sub4Sub.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -704,6 +761,9 @@ Follow @Richard Bennett
 
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -765,3 +825,45 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-taming-the-obs-timeline-glitches/"><u>[New] In 2024, Taming the OBS Timeline Glitches</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-reviving-the-past-top-5-desktop-friendly-gb-emulation-software/"><u>[New] Reviving the Past  Top 5 Desktop-Friendly GB Emulation Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-download-free-tools-for-converting-fb-video-to-premium-mp4-quality-for-2024/"><u>[Updated] Download-Free Tools for Converting FB Video to Premium MP4 Quality for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-quickfix-for-podcast-broadcasts/"><u>[Updated] Master Quickfix for Podcast Broadcasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-rgb-to-srgb-transition-what-it-means-for-visual-media/"><u>[Updated] Rgb to Srgb Transition  What It Means for Visual Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-video-posting-pathway-for-twitter-and-tumblr-users/"><u>[Updated] Video Posting Pathway for Twitter & Tumblr Users</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-c51-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-poco-x6-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Poco X6 Pro Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/haul-vlogging-101-a-step-by-step-guide/"><u>Haul Vlogging 101  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hiding-youtube-playback-tips-for-ios-and-android/"><u>Hiding YouTube Playback  Tips for iOS and Android</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/high-end-audio-for-youtubes-best-gamers/"><u>High-End Audio for YouTube's Best Gamers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/high-end-hardware-unveiled-by-gaming-influencers/"><u>High-End Hardware Unveiled by Gaming Influencers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/high-quality-audio-collections-a-youtube-creators-guidebook/"><u>High-Quality Audio Collections  A YouTube Creator's Guidebook</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/high-quality-youtube-images-download-without-any-cost/"><u>High-Quality YouTube Images  Download Without Any Cost</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/high-ranking-videos-youtubes-everlasting-classics/"><u>High-Ranking Videos  YouTube’s Everlasting Classics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/highest-quality-screen-time-movie-hits-list/"><u>Highest-Quality Screen Time  Movie Hits List</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/highlighting-the-top-video-creation-apps-iphone-android/"><u>Highlighting the Top Video Creation Apps (iPhone, Android)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hilarity-at-a-click-discovering-15-comical-youtubers-work/"><u>Hilarity at a Click  Discovering 15 Comical YouTubers' Work</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hilarity-unleashed-top-7-amusing-youtube-channel-skits/"><u>Hilarity Unleashed  Top 7 Amusing YouTube Channel Skits</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/historical-insights-the-most-relevant-youtube-channels-for-learners/"><u>Historical Insights - The Most Relevant YouTube Channels for Learners</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/historical-insights-at-your-fingertips-top-10-for-students/"><u>Historical Insights at Your Fingertips – Top 10 for Students</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/historical-knowledge-at-your-fingertips-best-yt-history-channels/"><u>Historical Knowledge at Your Fingertips  Best YT History Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/history-buffs-favorite-youtube-history-channels/"><u>History Buffs' Favorite YouTube History Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/history-enthusiasts-guide-to-inspiring-youtube-channels/"><u>History Enthusiasts' Guide to Inspiring YouTube Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hit-the-bottom-finding-your-best-free-youtube-downloader-app-on-android/"><u>Hit the Bottom - Finding Your Best Free YouTube Downloader App on Android</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hitch-youtube-sounds-into-imovie-tracks-swiftly/"><u>Hitch YouTube Sounds Into iMovie Tracks Swiftly</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hitting-the-high-notes-of-youtube-editing-audio-addition-secrets-revealed/"><u>Hitting the High Notes of YouTube Editing  Audio Addition Secrets Revealed</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/hitting-the-high-scores-with-youtube-gaming-livestreams/"><u>Hitting the High Scores with YouTube Gaming Livestreams</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-asus-rog-phone-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-lava-yuva-3-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-nokia-g22-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-a24-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-elevate-your-tiktok-presence-50plus-captivating-username-suggestions/"><u>In 2024, Elevate Your TikTok Presence - 50+ Captivating Username Suggestions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-foremost-recommendations-audio-customization-pros/"><u>In 2024, Foremost Recommendations  Audio Customization Pros</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-a15-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy A15 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>In 2024, Swirling Shadows  Adding Realistic Motion to Photoshop Images</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/laughter-ledger-twittersphere-tales-for-2024/"><u>Laughter Ledger  Twittersphere Tales for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-unlocking-canon-video-potential-best-editing-software-and-tutorials/"><u>New Unlocking Canon Video Potential Best Editing Software and Tutorials</u></a></li>
+</ul></div>

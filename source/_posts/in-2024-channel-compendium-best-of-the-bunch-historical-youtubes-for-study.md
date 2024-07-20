@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Channel Compendium  Best of the Bunch - Historical YouTubes For Study\""
-date: 2024-06-26T00:20:49.177Z
-updated: 2024-06-27T00:20:49.177Z
+date: 2024-07-19T06:07:14.874Z
+updated: 2024-07-20T06:07:14.874Z
 tags:
   - ai video
   - ai youtube
@@ -46,14 +46,32 @@ This has to be the most obvious one on the list because whenever you click to wa
 
 This channel follows the name that they gave to themselves, they dedicated their channel to posting topics on weird history like the chronicles of history, crystal Pepsi, gout, life in a medieval castle, and the Victorian pastimes. All the videos are weird, most times they seem funny and spooky but they are just videos that make you think deeply because they seem too weird. Video is here makes you feel like a police officer chasing a man with the power to turn into a leopard. That is how confused you get from watching this channel. They usually make their posts every day. The channel provides videos for their subscribers 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3. Tasting History With Max Miller
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4. History Civils
 
 A YouTube channel created by someone who loves Rome like he were from there. A Rome freak who created a channel based on the Roman Empire. There are several histories to talk about when it comes to Rome, for instance, talking about NATO and Cleopatra. The videos on the channel are very short but they hit the nail directly on the head so you get to gain knowledge about old Rome and what it was before. Most of the videos are on the wars that were fought but they were also other Roman histories involved. This channel posts videos every week, at least once
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5. Kings And Generals
 
 This is another good history channel on Youtube, they provide the information through animated historical documentaries. From the channel from the title, you would know that the channel talks mainly in battles and politics, hence the name kings and generals. Aside from the war niche, the videos talk about some of the important happenings in history. The user makes a post on this channel for you to learn about the different kings and generals in history who lost and won their battles and crowns. Videos are posted twice a week
@@ -66,14 +84,23 @@ This is a channel that has dedicated its time to learning about the great war kn
 
 Normally, no one likes the idea of listening or learning from someone who makes things too complicated. Also, when learning, it is more interesting if you could understand it in the best way that you can. Not everything can be learned that way and not everyone can make something that easy to grasp. Channels like oversimplified make things easier for everyone to understand. They oversimplify their contents. They give you histories like the French revolution and the battle of Hastings and make it funnier and twist the storytelling to a way that people would find it interesting and funny sometimes. Videos are posted three times a week
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8. The History Guy
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 9. Timeline
 
 This is a timeline popularly on YouTube as the home of world history. What they do here is drop a video once a week that talk about documentaries and other things. They explore around all of ancient Egypt, shedding their whole light on the former dark ages.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10. Epic History TV
 
 Epic history TV tells you a lot about history and its most important occurrences talking about things like world war one and the epic history of nations like Russia and the story of legends like black beard the pirate. The TV only posts one video every month where you stand a chance to learn about different events that happened in the past.
@@ -136,6 +163,9 @@ The history guy is known well for the short time he takes in his video. Other hi
 
 This is a timeline popularly on YouTube as the home of world history. What they do here is drop a video once a week that talk about documentaries and other things. They explore around all of ancient Egypt, shedding their whole light on the former dark ages.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 10. Epic History TV
 
 Epic history TV tells you a lot about history and its most important occurrences talking about things like world war one and the epic history of nations like Russia and the story of legends like black beard the pirate. The TV only posts one video every month where you stand a chance to learn about different events that happened in the past.
@@ -162,14 +192,32 @@ Do you enjoy watching the YouTube history channel? Well, for the fact that you a
 
 Down to business, we have ten of the best history channels on YouTube provided for you on this list.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. History
 
 This has to be the most obvious one on the list because whenever you click to watch a video on the History YouTube channel, you always get what you came for. The History Youtube Channel as it was formerly known as is known for posting about topics like. World Wars, ancient recipes, and listicles of female species. There is a lot to learn about history from this channel. The user who is based in New York makes a post at least four times a day and has been working like this since 2009.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2. Weird History
 
 This channel follows the name that they gave to themselves, they dedicated their channel to posting topics on weird history like the chronicles of history, crystal Pepsi, gout, life in a medieval castle, and the Victorian pastimes. All the videos are weird, most times they seem funny and spooky but they are just videos that make you think deeply because they seem too weird. Video is here makes you feel like a police officer chasing a man with the power to turn into a leopard. That is how confused you get from watching this channel. They usually make their posts every day. The channel provides videos for their subscribers 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3. Tasting History With Max Miller
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
@@ -182,14 +230,23 @@ A YouTube channel created by someone who loves Rome like he were from there. A R
 
 This is another good history channel on Youtube, they provide the information through animated historical documentaries. From the channel from the title, you would know that the channel talks mainly in battles and politics, hence the name kings and generals. Aside from the war niche, the videos talk about some of the important happenings in history. The user makes a post on this channel for you to learn about the different kings and generals in history who lost and won their battles and crowns. Videos are posted twice a week
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6. The Great War
 
 This is a channel that has dedicated its time to learning about the great war known as World War 1\. The channel shares videos telling the public about the era of World War 1\. This is a major part of history and so it is something we ought to learn about. This isn’t just about the soldiers on the battlefield or how the bombs went off to destroy the enemies but it covers everything that happened within that period, from the kind of food they are to the way they dress and the technologies used. Even the different tribes, arts, and cultures. They post videos twice a week
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 7. Oversimplified
 
 Normally, no one likes the idea of listening or learning from someone who makes things too complicated. Also, when learning, it is more interesting if you could understand it in the best way that you can. Not everything can be learned that way and not everyone can make something that easy to grasp. Channels like oversimplified make things easier for everyone to understand. They oversimplify their contents. They give you histories like the French revolution and the battle of Hastings and make it funnier and twist the storytelling to a way that people would find it interesting and funny sometimes. Videos are posted three times a week
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8. The History Guy
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
@@ -206,6 +263,9 @@ Epic history TV tells you a lot about history and its most important occurrences
 
 For sure everyone knows the concept of fake news, this is like a rumor that people spread around to implicate those around them. Everyone is well aware that not every news is as authentic as it seems. Relating to the history part, you shouldn’t just go ahead and believe what everyone says on YouTube. Make sure you don’t fall for a fake history story. Sometimes, while trying to avoid fake history, you have to get a mindset that is critical, ensure that the source you get it from is checked, check the story out, take a look at the evidence given, and try to make sure it sounds believable.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Words
 
 Sometimes it might help your mental health if you can take out time to watch some videos on YouTube, it has so many niches so you can choose the ones you like. History should be a good one for everyone.
@@ -224,6 +284,9 @@ Do you enjoy watching the YouTube history channel? Well, for the fact that you a
 
 Down to business, we have ten of the best history channels on YouTube provided for you on this list.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. History
 
 This has to be the most obvious one on the list because whenever you click to watch a video on the History YouTube channel, you always get what you came for. The History Youtube Channel as it was formerly known as is known for posting about topics like. World Wars, ancient recipes, and listicles of female species. There is a lot to learn about history from this channel. The user who is based in New York makes a post at least four times a day and has been working like this since 2009.
@@ -244,6 +307,9 @@ A YouTube channel created by someone who loves Rome like he were from there. A R
 
 This is another good history channel on Youtube, they provide the information through animated historical documentaries. From the channel from the title, you would know that the channel talks mainly in battles and politics, hence the name kings and generals. Aside from the war niche, the videos talk about some of the important happenings in history. The user makes a post on this channel for you to learn about the different kings and generals in history who lost and won their battles and crowns. Videos are posted twice a week
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 6. The Great War
 
 This is a channel that has dedicated its time to learning about the great war known as World War 1\. The channel shares videos telling the public about the era of World War 1\. This is a major part of history and so it is something we ought to learn about. This isn’t just about the soldiers on the battlefield or how the bombs went off to destroy the enemies but it covers everything that happened within that period, from the kind of food they are to the way they dress and the technologies used. Even the different tribes, arts, and cultures. They post videos twice a week
@@ -256,6 +322,9 @@ Normally, no one likes the idea of listening or learning from someone who makes 
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 9. Timeline
 
 This is a timeline popularly on YouTube as the home of world history. What they do here is drop a video once a week that talk about documentaries and other things. They explore around all of ancient Egypt, shedding their whole light on the former dark ages.
@@ -284,6 +353,9 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Essential Techniques for YouTube End Screen Designs
 
 # How to Add YouTube End Screen and Cards Effectively ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -300,6 +372,97 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 1: Why You Need to Add End Screens and Cards to Videos
+
+There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: How To Use Youtube End Screen
+
+Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
+
+* Go to Creator Studio and check the left side to find the Video Manager, click on it.
+* Wherever you wish to add the end screen on the video, click on it.
+* Click End Screen & Annotations at the top.
+* From end screen and annotations, you can add or configure elements.
+* Check how the end screen will appear to the visitors.
+* Click on blue color add element’s button to find four options available there:
+
+**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
+
+**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
+
+**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
+
+**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 3: How To Use Youtube Cards
+
+YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
+
+* Click on the "Video Manager" tab.
+* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
+* Choose the cards type you want to make on "Add Card" drop down menu.
+* Click “create” button. Select the timeline. In the end, apply.
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### The types of YouTube cards
+
+* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
+* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
+* **Poll**: Encourage viewers to participate in a poll (vote)
+* **Link**: links to a website which compliments whatever content is in the video.
+
+### 4 Tips for Using YouTube Cards
+
+**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
+
+**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
+
+**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
+
+ **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
+
+## Conclusion
+
+Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
+
+* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
+* [**Part2: How To Use Youtube End Screen**](#part2)
+* [**Part3: How To Use Youtube Cards**](#part3)
+
+[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
@@ -323,6 +486,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -349,6 +515,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
@@ -396,6 +565,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -405,6 +577,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -422,6 +597,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
@@ -450,6 +628,9 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How To Use Youtube End Screen
 
 Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
@@ -469,6 +650,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -478,6 +662,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -499,79 +686,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-The traditional annotation’s features are replaced by its successor YouTube Cards and End Screen. The annotations performed poorly on mobile and thus, the new changes are for good. The annotations had become outdated and were completely unbefitting. On the contrary, the YouTube cards and end screen offers great access to both desktop and mobiles with easier and faster implementation. Are you still looking for Annotations? Stop your search and try considering YouTube end screen. In this article, learn how to use Youtube end screen and cards.
-
-* [**Part1: Why You Need to Add End Screens To Videos**](#part1)
-* [**Part2: How To Use Youtube End Screen**](#part2)
-* [**Part3: How To Use Youtube Cards**](#part3)
-
-[Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
-
-## Part 1: Why You Need to Add End Screens and Cards to Videos
-
-There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
-
-## Part 2: How To Use Youtube End Screen
-
-Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
-
-* Go to Creator Studio and check the left side to find the Video Manager, click on it.
-* Wherever you wish to add the end screen on the video, click on it.
-* Click End Screen & Annotations at the top.
-* From end screen and annotations, you can add or configure elements.
-* Check how the end screen will appear to the visitors.
-* Click on blue color add element’s button to find four options available there:
-
-**Playlist or Videos**\- This element allows to play the suggested video on the same tab when the user clicks on it.
-
-**Subscribe**\- This allows the users to quickly subscribe to the channel. You may change the appearance of the icon and how your brand name looks.
-
-**Channel**\- Click on this element to promote other YouTube Channel. You may also customize it with a message.
-
-**Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
-
-## Part 3: How To Use Youtube Cards
-
-YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
-
-* Click on the "Video Manager" tab.
-* If you want to add cards, Click "Edit" tab under it. Then click “cards”.
-* Choose the cards type you want to make on "Add Card" drop down menu.
-* Click “create” button. Select the timeline. In the end, apply.
-
-### The types of YouTube cards
-
-* **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
-* **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
-* **Poll**: Encourage viewers to participate in a poll (vote)
-* **Link**: links to a website which compliments whatever content is in the video.
-
-### 4 Tips for Using YouTube Cards
-
-**1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
-
-**2.** Use three or less cards per video. Viewers are more likely to click your cards if there are fewer of them, and more likely to start ignoring them if it seems like they’re always popping up. Also, do not have all three of these cards appear at once and make people choose between them. Stagger them throughout your video.
-
-**3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
-
- **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
-
-## Conclusion
-
-Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -595,3 +712,37 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-rapid-rise-on-insta-like-mastery-plus-video-impact-for-2024/"><u>[Updated] Rapid Rise on Insta - Like Mastery + Video Impact for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-tailoring-web-clarity-with-advanced-zoom-tools/"><u>2024 Approved  Tailoring Web Clarity with Advanced Zoom Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-metaverse-simplified-avatar-designs/"><u>2024 Approved  Unlocking the Metaverse  Simplified Avatar Designs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-affordable-recorders-roundup-best-games-software/"><u>In 2024, Affordable Recorders' Roundup  Best Games Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-s23-fe-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy S23 FE to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-apple-iphone-13-pro-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 13 Pro Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-unveiling-effective-strategies-for-fb-in-stream-ad-setup/"><u>In 2024, Unveiling Effective Strategies for FB In-Stream Ad Setup</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-edit-like-a-pro-quicktime-video-editing-on-mac-made-easy-for-2024/"><u>New Edit Like a Pro QuickTime Video Editing on Mac Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-perfect-inversion-youtube-reverse-guidebook/"><u>The Perfect Inversion  YouTube Reverse Guidebook</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-perfect-loop-technique-for-all-your-youtube-favorites/"><u>The Perfect Loop Technique for All Your YouTube Favorites</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-perfect-proposal-to-perfection-8-best-weddings-online/"><u>The Perfect Proposal to Perfection  8 Best Weddings Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-pinnacle-playbook-perfecting-the-art-of-live-thumbnail-design/"><u>The Pinnacle Playbook  Perfecting the Art of Live Thumbnail Design</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-authenticity-in-engaging-vlogging-content/"><u>The Power of Authenticity in Engaging Vlogging Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-branding-in-video-ranks-and-traffic/"><u>The Power of Branding in Video Ranks and Traffic</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-collaborations-youtube-shorts-edition/"><u>The Power of Collaborations  YouTube Shorts Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-consistency-rising-up-the-charts-on-youtube/"><u>The Power of Consistency  Rising Up the Charts on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-pausing-incorporating-effective-chapters-in-your-youtube-series/"><u>The Power of Pausing  Incorporating Effective Chapters in Your YouTube Series</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-personal-storytelling-in-video-content/"><u>The Power of Personal Storytelling in Video Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-personalization-upgrade-your-youtube-url/"><u>The Power of Personalization  Upgrade Your YouTube URL</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-tags-boost-traffic-with-top-genres-and-keywords/"><u>The Power of Tags  Boost Traffic with Top Genres & Keywords</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-of-words-enhancing-viewer-count-with-impressive-description-templates/"><u>The Power of Words  Enhancing Viewer Count with Impressive Description Templates</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-power-play-joining-a-music-company-network-in-the-age-of-streaming/"><u>The Power Play  Joining a Music Company Network in the Age of Streaming</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-premier-10-online-yoga-streams-to-enhance-fitness/"><u>The Premier 10 Online Yoga Streams to Enhance Fitness</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-premier-of-popularity-worldwide-top-subscribed-creators/"><u>The Premier of Popularity  Worldwide Top Subscribed Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-premier-selection-of-top-10-free-youtube-art-mentors/"><u>The Premier Selection of Top 10 Free YouTube Art Mentors</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-premier-selector-master-your-video-grabs/"><u>The Premier Selector  Master Your Video Grabs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-premier-video-symposium-life-past-vidcon/"><u>The Premier Video Symposium  Life Past VidCon</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-samsung-by-fonelab-android-recover-data/"><u>The way to get back lost data from Samsung</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Oppo Find X6 | Dr.fone</u></a></li>
+</ul></div>
