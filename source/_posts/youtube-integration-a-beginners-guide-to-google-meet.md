@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Integration  A Beginner's Guide to Google Meet\""
-date: 2024-08-10T04:18:43.174Z
-updated: 2024-08-11T04:18:43.174Z
+date: 2024-09-04T16:26:41.769Z
+updated: 2024-09-05T16:26:41.769Z
 tags:
   - ai video
   - ai youtube
@@ -27,9 +27,6 @@ This article will address how to conduct **Google Meet live stream** through the
 * [How to Live Stream from Google Meet to YouTube](#part2)
 * [Bonus Tip: Easily Record your Google Meet Live Stream](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Part 1: Three Things to Check Before Starting Your Live
 
 Before increasing your audience from **Google Meet live stream on YouTube**, make sure to check the below prerequisites.
@@ -53,8 +50,16 @@ For **Google Meet YouTube live**, there are some requirements. The reason is tha
 **Note:** To know the exact pricing plans of Google Workspace, you have to contact Google Support.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. Approval of YouTube Channel for Live
 
@@ -64,16 +69,16 @@ Step1 Open your YouTube account and click on the "Profile" icon given at the top
 
 ![choose the youtube studio option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step2 A new window will be displayed on your screen. From the left panel, select "Content" among other options. Under the section called "Live," locate the "Get Started" option. Afterward, tap on the "Request" option and perform the verification steps for enabling live streaming. After 24 hours, you would get approval for live streaming on YouTube. Hence, you would be able to live stream Google Meet meetings through your YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on get ting started option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Connect your YouTube Channel to Google Meet
 
 Once you get approval for live streaming, you can connect the YouTube channel to your Google Meet account. If the Host Management option is disabled, anyone within the Google Meet session can start live streaming. Conversely, only hosts or co-hosts can begin live streaming if this option is activated. Moreover, the individual who is starting the live stream from Google Meet will get connected to his YouTube channel.
@@ -94,9 +99,6 @@ Step4 Now enter your Google Meet session and click on the “Activities” optio
 
 Step5 A small pop-up will appear that will tell you to remind your participants about live streaming. After reminding, click on the "Start" button. You can see the red "Live" button that will indicate to you the ongoing live-streaming session. Once you have concluded the live streaming by clicking on the "Stop Streaming" button, you can check the video analytics by visiting your YouTube channel.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## Bonus Tip: Easily Record your Google Meet Live Stream
 
 Do you want to save your **Google Meet live-stream session**? The best tool through which you can save your essential live-streaming sessions is [Wondershare Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/). By using this efficient screen recorder, you can access your saved live streaming session and revise the important points discussed in it.
@@ -111,18 +113,12 @@ Are you ready to capture your live-streaming session on Google Meet? Here are th
 
 Download Wondershare Filmora and open its interface. Click the “Screen Recorder” option given on the main homepage. By doing so, a screen recorder window will open. Here, you can select screen recording modes such as full-screen, target window, or custom. Also, make sure to choose your system’s audio and microphone to proceed.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![select the screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-3.jpg)
 
 ##### Step2 Adjust Settings and Start Recording
 
 From Settings, you can also select the quality, frame rate, and color of mouse clicks. Once you have adjusted all the settings properly, hit the “REC” button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![adjust the screen recording settings](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-4.jpg)
 
 ##### Step3 End the Recording
@@ -132,7 +128,16 @@ After the countdown, the screen recording will begin. To stop the recording, you
 ![screen recording completed](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -148,6 +153,12 @@ Part 1: Three Things to Check Before Starting Your Live
 
 Before increasing your audience from **Google Meet live stream on YouTube**, make sure to check the below prerequisites.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Available Google Workspace Edition
 
 For **Google Meet YouTube live**, there are some requirements. The reason is that not every ordinary user of Google Meet can go for YouTube live streaming. To do so, you should buy any of the following pricing plans:
@@ -166,6 +177,12 @@ For **Google Meet YouTube live**, there are some requirements. The reason is tha
 
 **Note:** To know the exact pricing plans of Google Workspace, you have to contact Google Support.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Approval of YouTube Channel for Live
 
 To conduct live streaming, you must receive approval from the YouTube channel. For this, you must access your channel's YouTube Studio to perform the account verification. Now to activate and enable live streaming on your YouTube account, check the following steps:
@@ -178,6 +195,12 @@ Step2 A new window will be displayed on your screen. From the left panel, select
 
 ![tap on get ting started option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Connect your YouTube Channel to Google Meet
 
 Once you get approval for live streaming, you can connect the YouTube channel to your Google Meet account. If the Host Management option is disabled, anyone within the Google Meet session can start live streaming. Conversely, only hosts or co-hosts can begin live streaming if this option is activated. Moreover, the individual who is starting the live stream from Google Meet will get connected to his YouTube channel.
@@ -185,7 +208,10 @@ Once you get approval for live streaming, you can connect the YouTube channel to
 Furthermore, you should use the same email address to enter the Google Meet that is connected to your YouTube account. By using the same email address, you can ensure smooth live streaming of Google Meet sessions to your YouTube channel. Also, you can only use laptops or desktops for initiating live streaming. The reason is that the **Google Meet live stream** on YouTube is not currently available on mobile devices.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: How to Live Stream from Google Meet to YouTube
 
@@ -201,6 +227,18 @@ Step4 Now enter your Google Meet session and click on the “Activities” optio
 
 Step5 A small pop-up will appear that will tell you to remind your participants about live streaming. After reminding, click on the "Start" button. You can see the red "Live" button that will indicate to you the ongoing live-streaming session. Once you have concluded the live streaming by clicking on the "Stop Streaming" button, you can check the video analytics by visiting your YouTube channel.
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tip: Easily Record your Google Meet Live Stream
 
 Do you want to save your **Google Meet live-stream session**? The best tool through which you can save your essential live-streaming sessions is [Wondershare Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/). By using this efficient screen recorder, you can access your saved live streaming session and revise the important points discussed in it.
@@ -215,12 +253,14 @@ Are you ready to capture your live-streaming session on Google Meet? Here are th
 
 Download Wondershare Filmora and open its interface. Click the “Screen Recorder” option given on the main homepage. By doing so, a screen recorder window will open. Here, you can select screen recording modes such as full-screen, target window, or custom. Also, make sure to choose your system’s audio and microphone to proceed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![select the screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Step2 Adjust Settings and Start Recording
 
 From Settings, you can also select the quality, frame rate, and color of mouse clicks. Once you have adjusted all the settings properly, hit the “REC” button.
@@ -233,6 +273,18 @@ After the countdown, the screen recording will begin. To stop the recording, you
 
 ![screen recording completed](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Google Meet is a reliable environment to connect and collaborate with people. To increase your reach and target audience, you can conduct **Google Meet live streaming on YouTube**. This article has discussed a detailed way through which you can live stream your Google Meet session on your YouTube channel.
@@ -256,7 +308,16 @@ To save and access your live streaming sessions later, you can try the screen re
      data-ad-slot="1223367746"></ins>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Joint Filmmaking & Gaining Followers Quickly
 
@@ -264,6 +325,12 @@ To save and access your live streaming sessions later, you can try the screen re
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -280,20 +347,20 @@ The following post will teach you how to find and contact partners for YouTube c
   * [**Long-distance collabs**](#distance)
 * [**Getting the Most Out of Your Collaborations**](#getmore)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Choosing A Potential Partner
 
 Before you think about how you’re going to approach someone you need to decide who you want to approach.
 
 A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
 
 _Will Kitty get to collab with the big dog?_
@@ -352,9 +419,6 @@ Usually, you have two reasons for wanting to do a collab; having fun with anothe
 
 Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
@@ -362,7 +426,10 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
  What have your experiences with YouTube collaborations been like?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
@@ -371,7 +438,166 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
+
+* [**Choosing A Potential Partner**](#choose)
+* [**How to Contact A Partner**](#contact)
+* [**Types of collab videos**](#types)  
+  * [**Shout outs**](#shout)  
+  * [**Guest spots**](#guest)  
+  * [**Long-distance collabs**](#distance)
+* [**Getting the Most Out of Your Collaborations**](#getmore)
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 1\. Choosing A Potential Partner
+
+Before you think about how you’re going to approach someone you need to decide who you want to approach.
+
+A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
+
+![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+_Will Kitty get to collab with the big dog?_
+
+Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
+
+Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
+
+There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
+
+_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
+
+Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
+
+A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 2\. How to contact a partner
+
+Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
+
+Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
+
+## 3\. Popular Types of Collab Videos
+
+_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
+
+In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
+
+#### #1\. Shout outs
+
+In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
+
+I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
+
+#### 2\. Guest spots
+
+This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
+
+For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
+
+_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
+
+Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
+
+Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
+
+#### 3\. Long distance collabs
+
+_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
+
+Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
+
+## 4\. Getting the Most Out of Your Collaborations
+
+Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
+
+Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
+
+![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
+
+_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
+
+ What have your experiences with YouTube collaborations been like?
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Use Split-Screen Presets to Create Collab Videos in Filmora
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -400,7 +626,10 @@ The following post will teach you how to find and contact partners for YouTube c
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 1\. Choosing A Potential Partner
 
@@ -410,6 +639,12 @@ A lot of people automatically want to approach their YouTube hero, and that can 
 
 ![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Will Kitty get to collab with the big dog?_
 
 Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
@@ -431,7 +666,10 @@ Sometimes people leave contact info in their video descriptions, but it might be
 Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Popular Types of Collab Videos
 
@@ -469,17 +707,29 @@ Usually, you have two reasons for wanting to do a collab; having fun with anothe
 
 Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
 
  What have your experiences with YouTube collaborations been like?
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
@@ -487,6 +737,12 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -513,129 +769,12 @@ The following post will teach you how to find and contact partners for YouTube c
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Choosing A Potential Partner
 
 Before you think about how you’re going to approach someone you need to decide who you want to approach.
 
 A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
-
-_Will Kitty get to collab with the big dog?_
-
-Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
-
-Collaborating with someone your own size means you both stand to gain equally in channel growth. Instead of approaching someone you love that’s huge, try finding someone you like just as much whose sub count is similar to yours.
-
-There are exceptions to this, of course. The team at **[Mr.Kate](https://www.youtube.com/channel/UCDVPcEbVLQgLZX0Rt6jo34A)** managed to work with YouTubers who had millions of subs while they were still under 1 million. They got these high profile collabs because they had something additional to offer that made up for the subscriber gap – they were redesigning the apartments, offices, or studios of the YouTubers they did the collabs with. If you want to work with someone bigger than you, think about what you might be able to offer them in place of new subscribers.
-
-_Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%5F9Af5YhWdrZgw?sub%5Fconfirmation=1)**’s bedroom._
-
-Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
-
-A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
-
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 2\. How to contact a partner
-
-Sometimes people leave contact info in their video descriptions, but it might be easier to go to the **About** tab on their channel page and check for an email address. Look for a field that says **for business inquiries**, click on **view email address**, and use the CAPTCHA that appears to prove you aren’t a robot.
-
-Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is good too, but you should use those platforms more to build a relationship that could lead to a collab. If someone had never commented on a video of yours before and then commented once just to ask you to collab it’d be hard to believe they were really interested in your channel.
-
-## 3\. Popular Types of Collab Videos
-
-_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
-
-In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
-
-#### #1\. Shout outs
-
-In this type of collab all you do is mention each other and, usually, use YouTube cards to link to each other’s channels. You make a video that is completely yours, and at some point in it you talk about your partner’s channel and why you like it. To make things fair, you should discuss how long the mentions will be and where in the videos they will happen. It wouldn’t feel good to gush about how great someone is for a full minute near the beginning of your video and have them spend two seconds mentioning you near the end of theirs.
-
-I personally don’t check people out just because someone I like mentions them, so this might not be the best way to go if you’re hoping to bring in new subscribers. It is the easiest kind of collab to do, though.
-
-#### 2\. Guest spots
-
-This is my favorite kind of collab to watch, because each YouTuber has sole creative control over the video that goes on their channel. Instead of trying to blend your styles together, you each make videos that reflect your own personal styles.
-
-For your video, you have the other vlogger on as a guest. In the video you do the same kinds of things your fans like watching you do, and you include the other person. If they’re alright with it, it can be fun to draw them a bit outside their comfort zone. If you like to dance on your channel, and they never dance on theirs, ask them to dance with you!
-
-_**[Matthias](https://www.youtube.com/channel/UC9VX0KXNH20x9MCH3xGjisg)** gets **[NateWantsToBattle](https://www.youtube.com/user/NateWantsToBattle)** – who does song parodies on his channel – to make balloon animals._
-
-Turnabout is fair play, of course, so be prepared to step a bit outside of your own comfort zone when you appear as a guest in one of their videos.
-
-Alternatively, you could just introduce your guest and then let them take over and then do the same thing in reverse on their channel.
-
-#### 3\. Long distance collabs
-
-_**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in Toronto and **[Aja](https://www.youtube.com/channel/UCmiE7g4J3QXBwPUybbRdioQ)** is in LA, but that doesn’t mean they can’t cook together! Also: Lauren’s channel is about food and Aja’s is about healthy living – they aren’t exactly the same, but they’re related enough that the collab makes sense._
-
-Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
-
-## 4\. Getting the Most Out of Your Collaborations
-
-Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
-
-Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
-
-![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
-
-_Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
-
- What have your experiences with YouTube collaborations been like?
-
-## Use Split-Screen Presets to Create Collab Videos in Filmora
-
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
-
-* [**Choosing A Potential Partner**](#choose)
-* [**How to Contact A Partner**](#contact)
-* [**Types of collab videos**](#types)  
-  * [**Shout outs**](#shout)  
-  * [**Guest spots**](#guest)  
-  * [**Long-distance collabs**](#distance)
-* [**Getting the Most Out of Your Collaborations**](#getmore)
-
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## 1\. Choosing A Potential Partner
-
-Before you think about how you’re going to approach someone you need to decide who you want to approach.
-
-A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
-
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
 
 _Will Kitty get to collab with the big dog?_
@@ -688,9 +827,6 @@ _**[Lauren](https://www.youtube.com/channel/UCx-S6eBuL9SlwNZTHI6P9Bg)** is in To
 
 Sometimes you really want to work together, but geography just won’t bend to your wills. That doesn’t mean you can’t collab. You can always send each other some footage to cut to and make videos together that way. Or, you can do a Google Hangout or Skype chat and record it.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Getting the Most Out of Your Collaborations
 
 Usually, you have two reasons for wanting to do a collab; having fun with another YouTuber, and growing your channel. The collab exposes you to their subscribers, who will hopefully decide they like you and subscribe to you too. There are ways of increasing the odds of this happening.
@@ -704,7 +840,10 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
  What have your experiences with YouTube collaborations been like?
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
@@ -713,7 +852,10 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 

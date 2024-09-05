@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Artistry  Designing Channels' Visual Assets (Banners/Icons)\""
-date: 2024-08-10T04:19:02.426Z
-updated: 2024-08-11T04:19:02.426Z
+date: 2024-09-04T16:26:42.792Z
+updated: 2024-09-05T16:26:42.792Z
 tags:
   - ai video
   - ai youtube
@@ -96,99 +96,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube channel art refers to your banner, icon, and watermark along with the thumbnails of your videos. Creating custom channel art is a great way to express yourself and communicate the tone of your videos.
-
-YouTube supports JPG, GIF, BMP, and PNG files for channel art, although they do not allow animated GIFs.
-
-#### **Part 1: Top Sites for YouTube Channel Art**
-
-You can make your channel art in Photoshop, or another photo editing program, but there are also some excellent tools online which you can access for free. Here are two of the best:
-
-**Canva.com**
-
-Canva has templates for YouTube banners as well as a variety of stock images. You can also upload and edit your own images on Canva. It is a free service, but they do have some premium features which cost $1 each. Canva has a desktop version and an iPad app.
-
-**PicMonkey.com**
-
-PicMonkey lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. It’s free to use, but you can only access their more advanced editing tools if you buy a paid subscription for either $4.99 a month, or $2.75 a month for a year.
-
-#### **Part 2: Banners**
-
-Your banner is the header for your channel page. Its dimensions are 2560 x 1440 px.
-
-Not all of your banner will be visible on all devices. The full 2560 x 1440 px image will only be seen by viewers watching on tv screens.
-
-Only 1546 x 423 px of your banner will be visible on computers, and this ‘safe area’ can vary for different tablets and smartphones depending on the width of their screens. Make sure any important text or logos are placed in a central location so everybody can see them.
-
-Also, keep in mind that your icon will hover over the top left corner of your banner and that your social media icons will be located in the bottom right corner.
-
-The file size of your banner cannot be over 4MB.
-
-#### **Part 3: Icons**
-
-Your icon is the avatar you use when leaving and replying to comments on YouTube. It also hovers over your banner on your channel page.
-
-By default, your icon will be the picture associated with your Google account.
-
-If you upload a new icon, it will render down to 98 x 98 px. So, any square image larger than 98 x 98 px will work. However, YouTube recommends you use one as large as 800 x 800 px. This will give you a sharper, higher quality, image.
-
-#### **Part 4: Thumbnails**
-
-Thumbnails are the images that represent your videos on your channel page and in search results.
-
-You can browse through your video and choose a still frame you want to use as your video’s thumbnail. Or, you can upload a custom image.
-
-Custom thumbnails should have an aspect ratio of 16:9, the same as YouTube’s video player. The files should be under 2MB and have a resolution of 1280 x 720.
-
-To upload a custom thumbnail, select the **custom thumbnail** option under **Video Thumbnails** at the end of the video uploading process. You can also change the thumbnails of your existing videos to custom ones through **Video Manager**.
-
-Remember that your thumbnail will be rendered down to a much smaller size. If you use text, like the title of your video, then you should make it really big so that it is easy to read when it gets shrunk down.
-
-#### **Part 5: Watermarks**
-
-A watermark is a small, usually 50 x 50 px image displayed in the bottom right corner of your video.
-
-Watermarks protect your videos by making them harder for others to steal and take credit for.
-
-Ideally, your watermark will be a transparent version of your logo. Try not to use more than three colors – you do not want your watermark to distract your viewers.
-
-If you add a **branding watermark** through YouTube then that watermark will also double as a subscribe link.
-
-Here is how you can add a branding watermark through YouTube:
-
-1. On YouTube, go to your **Creator Studio** and select **Branding** under the **Channel** menu.
-2. Click the blue **add a watermark** button on the **Branding** page.
-3. An **upload of a watermark** window will pop up. Select your image file and click **Save**.
-4. Choose between having a start time for your watermark, making it appear only at the end of your videos, or having it there for the entire length of your videos. The popular choice is to have it visible through the entire video.
-5. Click **Update**. Your watermark will be applied to all of your videos.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **[Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/)** and will definitely enhance your productivity and helps you to make money by making videos much easier.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -273,9 +180,90 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube channel art refers to your banner, icon, and watermark along with the thumbnails of your videos. Creating custom channel art is a great way to express yourself and communicate the tone of your videos.
+
+YouTube supports JPG, GIF, BMP, and PNG files for channel art, although they do not allow animated GIFs.
+
+#### **Part 1: Top Sites for YouTube Channel Art**
+
+You can make your channel art in Photoshop, or another photo editing program, but there are also some excellent tools online which you can access for free. Here are two of the best:
+
+**Canva.com**
+
+Canva has templates for YouTube banners as well as a variety of stock images. You can also upload and edit your own images on Canva. It is a free service, but they do have some premium features which cost $1 each. Canva has a desktop version and an iPad app.
+
+**PicMonkey.com**
+
+PicMonkey lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. It’s free to use, but you can only access their more advanced editing tools if you buy a paid subscription for either $4.99 a month, or $2.75 a month for a year.
+
+#### **Part 2: Banners**
+
+Your banner is the header for your channel page. Its dimensions are 2560 x 1440 px.
+
+Not all of your banner will be visible on all devices. The full 2560 x 1440 px image will only be seen by viewers watching on tv screens.
+
+Only 1546 x 423 px of your banner will be visible on computers, and this ‘safe area’ can vary for different tablets and smartphones depending on the width of their screens. Make sure any important text or logos are placed in a central location so everybody can see them.
+
+Also, keep in mind that your icon will hover over the top left corner of your banner and that your social media icons will be located in the bottom right corner.
+
+The file size of your banner cannot be over 4MB.
+
+#### **Part 3: Icons**
+
+Your icon is the avatar you use when leaving and replying to comments on YouTube. It also hovers over your banner on your channel page.
+
+By default, your icon will be the picture associated with your Google account.
+
+If you upload a new icon, it will render down to 98 x 98 px. So, any square image larger than 98 x 98 px will work. However, YouTube recommends you use one as large as 800 x 800 px. This will give you a sharper, higher quality, image.
+
+#### **Part 4: Thumbnails**
+
+Thumbnails are the images that represent your videos on your channel page and in search results.
+
+You can browse through your video and choose a still frame you want to use as your video’s thumbnail. Or, you can upload a custom image.
+
+Custom thumbnails should have an aspect ratio of 16:9, the same as YouTube’s video player. The files should be under 2MB and have a resolution of 1280 x 720.
+
+To upload a custom thumbnail, select the **custom thumbnail** option under **Video Thumbnails** at the end of the video uploading process. You can also change the thumbnails of your existing videos to custom ones through **Video Manager**.
+
+Remember that your thumbnail will be rendered down to a much smaller size. If you use text, like the title of your video, then you should make it really big so that it is easy to read when it gets shrunk down.
+
+#### **Part 5: Watermarks**
+
+A watermark is a small, usually 50 x 50 px image displayed in the bottom right corner of your video.
+
+Watermarks protect your videos by making them harder for others to steal and take credit for.
+
+Ideally, your watermark will be a transparent version of your logo. Try not to use more than three colors – you do not want your watermark to distract your viewers.
+
+If you add a **branding watermark** through YouTube then that watermark will also double as a subscribe link.
+
+Here is how you can add a branding watermark through YouTube:
+
+1. On YouTube, go to your **Creator Studio** and select **Branding** under the **Channel** menu.
+2. Click the blue **add a watermark** button on the **Branding** page.
+3. An **upload of a watermark** window will pop up. Select your image file and click **Save**.
+4. Choose between having a start time for your watermark, making it appear only at the end of your videos, or having it there for the entire length of your videos. The popular choice is to have it visible through the entire video.
+5. Click **Update**. Your watermark will be applied to all of your videos.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **[Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/)** and will definitely enhance your productivity and helps you to make money by making videos much easier.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -380,9 +368,6 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Efficiently Add YouTube Playlists to Your Website Interface
 
 YouTube is an excellent resource for entertainment, education, and general information, but did you know you can also display a YouTube playlist on your website?
@@ -399,6 +384,18 @@ If you want to embed and display a YouTube playlist on your website, we'll give 
 
 Here's **how to embed a YouTube playlist on a Website:**
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Embedding a YouTube Playlist on Website Using WordPress Plugin
 
 The plugin is the simplest way to add a YouTube Playlist to your WordPress website. This will help you get this done in no time without having to write any code for the process.
@@ -419,6 +416,12 @@ You will now be asked what type of feed you want to create. Select **"Playlist"*
 
 ![embedding playlist on website](https://images.wondershare.com/filmora/article-images/2023/03/embedding-playlist-on-website.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step4 You need to [create your YouTube API Key](https://developers.google.com/youtube/v3/getting-started), copy it, and paste it into the pop-up. Click **"Add"** to connect your YouTube account to the plugin.
 
 Step5 Select the Playlist you want to display on your WordPress website and take its **ID**. Paste that in the next pop-up window and click **"Next"** to continue the process.
@@ -427,24 +430,27 @@ Step5 Select the Playlist you want to display on your WordPress website and take
 
 Your YouTube playlist will be connected to your WordPress website. To further customize it, select the template you want and click **"Next."** You can also configure the **Feed Layout** and **Color Scheme.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![customizing youtube playlist embedded in website](https://images.wondershare.com/filmora/article-images/2023/03/customizing-youtube-playlist-embedded-in-website.png)
 
 Step6 Once you are done with customization, click the **"Embed"** option on the top-right side of the screen, and a pop-up window will appear. Next, click **"Add to a Page,"** and a list of pages on your website will be displayed.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![adding playlist to website page](https://images.wondershare.com/filmora/article-images/2023/03/adding-playlist-to-website-page.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Choose your page and click **"Add"** at the bottom of the pop-up window. You'll be directed to a new page where you can embed the feed. Click the **"Plus"** icon at the top-left of the screen, search for **YouTube Feed** and choose the **Feeds for YouTube** block to embed and add your playlist.
 
 That's about it! You've successfully embedded a YouTube playlist on your WordPress website.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Embedding a YouTube Playlist on a Website Using oEmbed Code
 
@@ -462,9 +468,6 @@ Step3 Paste the URL directly in the editor and click **"Update"** to save the ch
 
 WordPress will grab your playlist from YouTube and automatically show it in your post using oEmbed. The outcome is a single video with a menu that your viewers can click to see other videos in the playlist.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### Embedding a YouTube Playlist on WebsiteUsing <iframe >
 
 Another way to embed a playlist of your YouTube channel on your WordPress site is by using the iFrame code with the following step-by-step instructions:
@@ -475,20 +478,14 @@ Step2 Now, head to the YouTube playlist you want to embed, click the **"Share"**
 
 Step3 Choose the **"Embed"** option, and a new lightbox pop-up will appear, having your playlist's embed code. Click **"Copy"** to save the code on your clipboard.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![embedding youtube playlist in website using iframe code](https://images.wondershare.com/filmora/article-images/2023/03/embedding-youtube-playlist-in-website-using-iframe-code.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Step4 Log in to your WordPress dashboard and open the page/post editor where you want to embed the playlist. Click the **"Plus"** icon, search for **"custom HTML,"** and select **"Custom HTML block"** to add to the page/post.
 
 Now, paste the iFrame embed code you've copied from YouTube and click "Update" at the top-right of the screen to save the changes and embed your playlist.
@@ -513,6 +510,12 @@ Some key features of Wondershare Filmora are as follows:
 * Record from webcam, screen, and voiceover.
 * Simple drag-and-drop interface.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 This article discusses step-by-step methods **to embed a YouTube playlist on a website** using the WordPress plugin, oEmbed code, and iFrame embed code.
