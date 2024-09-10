@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Fanbase with YouTube Streams"
-date: 2024-07-19T06:26:12.652Z
-updated: 2024-07-20T06:26:12.652Z
+date: 2024-09-09T04:18:53.541Z
+updated: 2024-09-10T04:18:53.541Z
 tags:
   - ai video
   - ai youtube
@@ -42,77 +42,6 @@ Looking for a good video editor for your gaming video? Wondershare Filmora is re
 
 #### 1\. Equipment
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![gamer elgato](https://images.wondershare.com/filmora/article-images/gamer-elgato.JPG)
-
-For some types of vlogs, beauty vlogs for example, the camera is the most important piece of equipment. For a YouTube gamer the most important piece of equipment is a game recorder, such as the Elgato Game Capture featured above. The Elgato Game Capture costs about $150 online, which is a typical price for a quality game recorder. Most of the footage you record is going to be from inside your games, so a game recorder is a must. Nobody wants to watch footage recorded from a camera pointing at your tv screen.
-
-You will need a camera if you want to record reaction videos, which you probably will if you are going to be playing horror games where your reactions enhance the viewing experience. You do not need to record a reaction video for every game you play, though. So, it is not necessary for you to pay upwards of $1000 on a DSLR for your gaming channel. A good webcam will do, or you could even use your phone’s camera.
-
-Aside from your game play the most important thing you will be recording is audio. It is worth investing in an external microphone. Since you do not need to worry about the range of your microphone for a gaming vlog something like the Blue Snowball USB mic is a great choice. These cost about $50 online. LAV mics are also popular among vloggers because they can be clipped onto your shirt while you record. An entire Lavalier system can cost over $100, sometimes around $600, but it is less expensive to buy a single LAV mic that plugs into the audio jack of your phone or computer.
-
-If you cannot afford to invest in [an external microphone](https://tools.techidaily.com/wondershare/filmora/download/) then you should download a free audio editing program called Audacity from [Audacityteam.org](https://www.audacityteam.org/). You can use Audacity to improve the quality of the sound you record using your computer or camera.
-
-#### 2\. Developing Your Voice
-
-The reason a lot of people will want to watch your gaming videos while they could be watching someone else’s is not because you are a great gamer. It is because you are a great entertainer. Your vlogging voice should be a lot like a DJ’s radio voice; clear, confident, and louder than you would ever be at the dinner table. People do not tend to actually talk in the same voice they vlog in and YouTube gamers are no exception.
-
-Forcing yourself into a fake voice is awkward, though, and while your vlogging voice is something you will need to develop it should not be fake. Remember to speak up and focus on your games. Some of your best commentary will happen while you are completely absorbed in what you are doing. Talking while you game and sounding natural will not happen right away, but it will with practice. When you start getting comments on your videos keep that feedback in mind and try to work the kinds of things your viewers like into your gaming voiceovers more often.
-
-#### 3\. Time Management
-
-Recording a gaming video you are happy with takes time. Editing that video can also take up a lot of time, depending on the style of video you want to post. These are the time commitments that most people expect to have when starting a gaming channel, but they are not the only ones.
-
-Initially, you will need to spend a lot of time thinking about what kind of gaming channel you want to run. Are you more focused on game reviews, or on comedy? You will also need to consider whether your target audience consists of serious gamers who are looking for something informative or casual gamers – perhaps even non-gamers – who just want to watch entertaining YouTube videos. The answers to these questions will lead you to building your brand, which can also be time consuming. You will need channel art – like an icon and a banner – as well as intro and outro sequences. Plan to think about and create these things early or you will end up getting busy and rushing through them.
-
-The other things related to your gaming channel which will be taking up your time are: researching gaming trends, networking with other YouTube gamers, and promoting your channel. You need to plan out times for these activities, as well as time limits. These are the things that can eat up all of your personal time if you let them.
-
-#### 4\. Channel Promotion
-
-In order to start getting more views and subscribers you will need to promote your channel. Part of this is having searchable video titles and descriptions, but you also need to get involved with the communities surrounding the games you are playing. These communities are more likely to want to watch your videos if you are a part of them.
-
-Besides creating your own gaming videos you will need to watch other people’s and reach out to these gamers through comments. If you find another YouTube gamer with close to your same number of subscribers then you may even want to approach them about collaboration. This is one way you can promote your channel; by introducing yourself to the other gamer’s subscribers and allowing them to be introduced to yours. You will also need to put time into being active in gaming forums and communities in order to show people you know what you are doing and tell them about your channel.
-
-You should not use the comments sections of other people’s videos, or gaming forums, just to promote your own channel. You can and should promote your channel through these mediums, it just cannot seem like self-interest is the only reason you are bothering. When you comment on another gamer’s video actually say something that gamer might want to respond to, not just ‘I did a video like this too, check it out!’. It is the same when you start getting involved with gaming forums. You need to participate in conversations and take an interest in people if you want them to take an interest in you and your work.
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-From hardcore gamers to anybody who likes watching adults freak out about zombies, a lot of people really enjoy gaming vlogs. YouTube gamers are among some of the most popular vloggers on YouTube. To be a successful YouTube gamer you need have both gaming skills and a great vlogging presence.
-
-Posting a cool gaming videos once in a while for your friends is fun, and if that is all you want to do then the first tip on this list should help you out. If you are hoping to build a popular YouTube channel centered on gaming then you will want to read further. Gaming vlogs are more than just hobbies for successful YouTube gamers. They put a lot of work into them.
-
-The first thing you need to know about being a gaming vlogger is that gameplay footage is protected by copyright. Some game creators will allow for the use of this footage in gaming vlogs because it helps promote their games, but others see these videos as competition for their games. There will usually be information on the manufacturer’s website, often in the ‘Terms of Use’ section, which explains their policy. If you have questions about it, or want permission to use footage from a game you are not allowed to, you should ask. There are YouTube gamers posting videos of games the copyright does not allow them to who have gotten special permission, although this is more likely to be given if your channel is already popular.
-
----
-
-Looking for a good video editor for your gaming video? Wondershare Filmora is recommended. It is not just a video editor which allows you to cut, split, add text, apply background sound to your video clips, but also a screen recorder which helps you record videos from PC screem webcam, and voice over. What's more, you can find lots of special effects for gaming in this software.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-<2> Four tips for YouTube gamers:
-
-#### 1\. Equipment
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gamer elgato](https://images.wondershare.com/filmora/article-images/gamer-elgato.JPG)
 
 For some types of vlogs, beauty vlogs for example, the camera is the most important piece of equipment. For a YouTube gamer the most important piece of equipment is a game recorder, such as the Elgato Game Capture featured above. The Elgato Game Capture costs about $150 online, which is a typical price for a quality game recorder. Most of the footage you record is going to be from inside your games, so a game recorder is a must. Nobody wants to watch footage recorded from a camera pointing at your tv screen.
@@ -147,6 +76,12 @@ You should not use the comments sections of other people’s videos, or gaming f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -169,17 +104,32 @@ Looking for a good video editor for your gaming video? Wondershare Filmora is re
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ---
 
 <2> Four tips for YouTube gamers:
 
 #### 1\. Equipment
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gamer elgato](https://images.wondershare.com/filmora/article-images/gamer-elgato.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For some types of vlogs, beauty vlogs for example, the camera is the most important piece of equipment. For a YouTube gamer the most important piece of equipment is a game recorder, such as the Elgato Game Capture featured above. The Elgato Game Capture costs about $150 online, which is a typical price for a quality game recorder. Most of the footage you record is going to be from inside your games, so a game recorder is a must. Nobody wants to watch footage recorded from a camera pointing at your tv screen.
 
 You will need a camera if you want to record reaction videos, which you probably will if you are going to be playing horror games where your reactions enhance the viewing experience. You do not need to record a reaction video for every game you play, though. So, it is not necessary for you to pay upwards of $1000 on a DSLR for your gaming channel. A good webcam will do, or you could even use your phone’s camera.
@@ -234,17 +184,26 @@ Looking for a good video editor for your gaming video? Wondershare Filmora is re
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ---
 
 <2> Four tips for YouTube gamers:
 
 #### 1\. Equipment
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![gamer elgato](https://images.wondershare.com/filmora/article-images/gamer-elgato.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For some types of vlogs, beauty vlogs for example, the camera is the most important piece of equipment. For a YouTube gamer the most important piece of equipment is a game recorder, such as the Elgato Game Capture featured above. The Elgato Game Capture costs about $150 online, which is a typical price for a quality game recorder. Most of the footage you record is going to be from inside your games, so a game recorder is a must. Nobody wants to watch footage recorded from a camera pointing at your tv screen.
 
 You will need a camera if you want to record reaction videos, which you probably will if you are going to be playing horror games where your reactions enhance the viewing experience. You do not need to record a reaction video for every game you play, though. So, it is not necessary for you to pay upwards of $1000 on a DSLR for your gaming channel. A good webcam will do, or you could even use your phone’s camera.
@@ -275,11 +234,94 @@ Besides creating your own gaming videos you will need to watch other people’s 
 
 You should not use the comments sections of other people’s videos, or gaming forums, just to promote your own channel. You can and should promote your channel through these mediums, it just cannot seem like self-interest is the only reason you are bothering. When you comment on another gamer’s video actually say something that gamer might want to respond to, not just ‘I did a video like this too, check it out!’. It is the same when you start getting involved with gaming forums. You need to participate in conversations and take an interest in people if you want them to take an interest in you and your work.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+From hardcore gamers to anybody who likes watching adults freak out about zombies, a lot of people really enjoy gaming vlogs. YouTube gamers are among some of the most popular vloggers on YouTube. To be a successful YouTube gamer you need have both gaming skills and a great vlogging presence.
+
+Posting a cool gaming videos once in a while for your friends is fun, and if that is all you want to do then the first tip on this list should help you out. If you are hoping to build a popular YouTube channel centered on gaming then you will want to read further. Gaming vlogs are more than just hobbies for successful YouTube gamers. They put a lot of work into them.
+
+The first thing you need to know about being a gaming vlogger is that gameplay footage is protected by copyright. Some game creators will allow for the use of this footage in gaming vlogs because it helps promote their games, but others see these videos as competition for their games. There will usually be information on the manufacturer’s website, often in the ‘Terms of Use’ section, which explains their policy. If you have questions about it, or want permission to use footage from a game you are not allowed to, you should ask. There are YouTube gamers posting videos of games the copyright does not allow them to who have gotten special permission, although this is more likely to be given if your channel is already popular.
+
+---
+
+Looking for a good video editor for your gaming video? Wondershare Filmora is recommended. It is not just a video editor which allows you to cut, split, add text, apply background sound to your video clips, but also a screen recorder which helps you record videos from PC screem webcam, and voice over. What's more, you can find lots of special effects for gaming in this software.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+<2> Four tips for YouTube gamers:
+
+#### 1\. Equipment
+
+![gamer elgato](https://images.wondershare.com/filmora/article-images/gamer-elgato.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+For some types of vlogs, beauty vlogs for example, the camera is the most important piece of equipment. For a YouTube gamer the most important piece of equipment is a game recorder, such as the Elgato Game Capture featured above. The Elgato Game Capture costs about $150 online, which is a typical price for a quality game recorder. Most of the footage you record is going to be from inside your games, so a game recorder is a must. Nobody wants to watch footage recorded from a camera pointing at your tv screen.
+
+You will need a camera if you want to record reaction videos, which you probably will if you are going to be playing horror games where your reactions enhance the viewing experience. You do not need to record a reaction video for every game you play, though. So, it is not necessary for you to pay upwards of $1000 on a DSLR for your gaming channel. A good webcam will do, or you could even use your phone’s camera.
+
+Aside from your game play the most important thing you will be recording is audio. It is worth investing in an external microphone. Since you do not need to worry about the range of your microphone for a gaming vlog something like the Blue Snowball USB mic is a great choice. These cost about $50 online. LAV mics are also popular among vloggers because they can be clipped onto your shirt while you record. An entire Lavalier system can cost over $100, sometimes around $600, but it is less expensive to buy a single LAV mic that plugs into the audio jack of your phone or computer.
+
+If you cannot afford to invest in [an external microphone](https://tools.techidaily.com/wondershare/filmora/download/) then you should download a free audio editing program called Audacity from [Audacityteam.org](https://www.audacityteam.org/). You can use Audacity to improve the quality of the sound you record using your computer or camera.
+
+#### 2\. Developing Your Voice
+
+The reason a lot of people will want to watch your gaming videos while they could be watching someone else’s is not because you are a great gamer. It is because you are a great entertainer. Your vlogging voice should be a lot like a DJ’s radio voice; clear, confident, and louder than you would ever be at the dinner table. People do not tend to actually talk in the same voice they vlog in and YouTube gamers are no exception.
+
+Forcing yourself into a fake voice is awkward, though, and while your vlogging voice is something you will need to develop it should not be fake. Remember to speak up and focus on your games. Some of your best commentary will happen while you are completely absorbed in what you are doing. Talking while you game and sounding natural will not happen right away, but it will with practice. When you start getting comments on your videos keep that feedback in mind and try to work the kinds of things your viewers like into your gaming voiceovers more often.
+
+#### 3\. Time Management
+
+Recording a gaming video you are happy with takes time. Editing that video can also take up a lot of time, depending on the style of video you want to post. These are the time commitments that most people expect to have when starting a gaming channel, but they are not the only ones.
+
+Initially, you will need to spend a lot of time thinking about what kind of gaming channel you want to run. Are you more focused on game reviews, or on comedy? You will also need to consider whether your target audience consists of serious gamers who are looking for something informative or casual gamers – perhaps even non-gamers – who just want to watch entertaining YouTube videos. The answers to these questions will lead you to building your brand, which can also be time consuming. You will need channel art – like an icon and a banner – as well as intro and outro sequences. Plan to think about and create these things early or you will end up getting busy and rushing through them.
+
+The other things related to your gaming channel which will be taking up your time are: researching gaming trends, networking with other YouTube gamers, and promoting your channel. You need to plan out times for these activities, as well as time limits. These are the things that can eat up all of your personal time if you let them.
+
+#### 4\. Channel Promotion
+
+In order to start getting more views and subscribers you will need to promote your channel. Part of this is having searchable video titles and descriptions, but you also need to get involved with the communities surrounding the games you are playing. These communities are more likely to want to watch your videos if you are a part of them.
+
+Besides creating your own gaming videos you will need to watch other people’s and reach out to these gamers through comments. If you find another YouTube gamer with close to your same number of subscribers then you may even want to approach them about collaboration. This is one way you can promote your channel; by introducing yourself to the other gamer’s subscribers and allowing them to be introduced to yours. You will also need to put time into being active in gaming forums and communities in order to show people you know what you are doing and tell them about your channel.
+
+You should not use the comments sections of other people’s videos, or gaming forums, just to promote your own channel. You can and should promote your channel through these mediums, it just cannot seem like self-interest is the only reason you are bothering. When you comment on another gamer’s video actually say something that gamer might want to respond to, not just ‘I did a video like this too, check it out!’. It is the same when you start getting involved with gaming forums. You need to participate in conversations and take an interest in people if you want them to take an interest in you and your work.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -325,212 +367,10 @@ Follow @Richard Bennett
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part1: Intros
-
-#### Elements of an Intro
-
-Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
-
-When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
-
-Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
-
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
-
-There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
-
-**FlixPress.com**
-
-This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
-
-**IntroMaker.net**
-
-This is another site with really professional looking intros for $5\. They only have two free options, though.
-
-#### Creating an Intro in Filmora
-
-You can create a simple intro card in **Filmora**.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
-2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
-3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
-4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
-5. Click on the editing icon with your logo selected and choose an animation.
-6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
-7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
-8. Export your video and save it for use in all of your other videos.
-
-## Part 2: End Cards
-
-When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
-
-To keep viewers on your channel, you can create your End Card which recommends other content you have created.
-
-#### Elements of an End Card
-
-An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
-
-It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
-
-You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
-
-Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
-
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
-2. Drag your background into your timeline at the end of your video.
-3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
-4. Trim the clips in your picture in picture track down to the same length as your end card.
-5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
-6. Position your clips so they are spaced evenly by dragging them in the preview screen.
-7. Mute your clips.
-8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
-9. Export your video from Filmora and upload it to YouTube.
-10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
-11. Go to your end card in the previewer, as that is where you want to add your annotations.
-12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
-13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
-14. Click **Apply Changes**.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-[Part 1: Intros](#part1)
-
-[Elements of an Intro](#elements)
-
-[Top Intro Sites](#top)
-
-[Creating an Intro in Filmora](#creating)
-
-[Part 2: End Cards](#part2)
-
-[Elements of an End Card](#element)
-
-[How To Make an End Card](#how-to)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part1: Intros
-
-#### Elements of an Intro
-
-Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
-
-When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
-
-Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
-
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
-
-There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
-
-**FlixPress.com**
-
-This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
-
-**IntroMaker.net**
-
-This is another site with really professional looking intros for $5\. They only have two free options, though.
-
-#### Creating an Intro in Filmora
-
-You can create a simple intro card in **Filmora**.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
-2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
-3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
-4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
-5. Click on the editing icon with your logo selected and choose an animation.
-6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
-7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
-8. Export your video and save it for use in all of your other videos.
-
-## Part 2: End Cards
-
-When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
-
-To keep viewers on your channel, you can create your End Card which recommends other content you have created.
-
-#### Elements of an End Card
-
-An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
-
-It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
-
-You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
-
-Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
-
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
-2. Drag your background into your timeline at the end of your video.
-3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
-4. Trim the clips in your picture in picture track down to the same length as your end card.
-5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
-6. Position your clips so they are spaced evenly by dragging them in the preview screen.
-7. Mute your clips.
-8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
-9. Export your video from Filmora and upload it to YouTube.
-10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
-11. Go to your end card in the previewer, as that is where you want to add your annotations.
-12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
-13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
-14. Click **Apply Changes**.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-[Part 1: Intros](#part1)
-
-[Elements of an Intro](#elements)
-
-[Top Intro Sites](#top)
-
-[Creating an Intro in Filmora](#creating)
-
-[Part 2: End Cards](#part2)
-
-[Elements of an End Card](#element)
-
-[How To Make an End Card](#how-to)
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part1: Intros
 
@@ -570,7 +410,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Part 2: End Cards
 
@@ -659,11 +502,20 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -706,9 +558,226 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+[Part 1: Intros](#part1)
+
+[Elements of an Intro](#elements)
+
+[Top Intro Sites](#top)
+
+[Creating an Intro in Filmora](#creating)
+
+[Part 2: End Cards](#part2)
+
+[Elements of an End Card](#element)
+
+[How To Make an End Card](#how-to)
+
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+## Part1: Intros
+
+#### Elements of an Intro
+
+Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
+
+When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
+
+Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
+
+#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+
+There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
+
+**FlixPress.com**
+
+This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
+
+**IntroMaker.net**
+
+This is another site with really professional looking intros for $5\. They only have two free options, though.
+
+#### Creating an Intro in Filmora
+
+You can create a simple intro card in **Filmora**.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
+2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
+3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
+4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
+5. Click on the editing icon with your logo selected and choose an animation.
+6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
+7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
+8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Part 2: End Cards
+
+When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
+
+To keep viewers on your channel, you can create your End Card which recommends other content you have created.
+
+#### Elements of an End Card
+
+An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
+
+It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
+
+You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
+
+Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
+
+#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
+2. Drag your background into your timeline at the end of your video.
+3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
+4. Trim the clips in your picture in picture track down to the same length as your end card.
+5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
+6. Position your clips so they are spaced evenly by dragging them in the preview screen.
+7. Mute your clips.
+8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
+9. Export your video from Filmora and upload it to YouTube.
+10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
+11. Go to your end card in the previewer, as that is where you want to add your annotations.
+12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
+13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
+14. Click **Apply Changes**.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+[Part 1: Intros](#part1)
+
+[Elements of an Intro](#elements)
+
+[Top Intro Sites](#top)
+
+[Creating an Intro in Filmora](#creating)
+
+[Part 2: End Cards](#part2)
+
+[Elements of an End Card](#element)
+
+[How To Make an End Card](#how-to)
+
+## Part1: Intros
+
+#### Elements of an Intro
+
+Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
+
+When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
+
+Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
+
+#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+
+There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
+
+**FlixPress.com**
+
+This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
+
+**IntroMaker.net**
+
+This is another site with really professional looking intros for $5\. They only have two free options, though.
+
+#### Creating an Intro in Filmora
+
+You can create a simple intro card in **Filmora**.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
+2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
+3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
+4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
+5. Click on the editing icon with your logo selected and choose an animation.
+6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
+7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
+8. Export your video and save it for use in all of your other videos.
+
+## Part 2: End Cards
+
+When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
+
+To keep viewers on your channel, you can create your End Card which recommends other content you have created.
+
+#### Elements of an End Card
+
+An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
+
+It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
+
+You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
+
+Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
+
+#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
+2. Drag your background into your timeline at the end of your video.
+3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
+4. Trim the clips in your picture in picture track down to the same length as your end card.
+5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
+6. Position your clips so they are spaced evenly by dragging them in the preview screen.
+7. Mute your clips.
+8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
+9. Export your video from Filmora and upload it to YouTube.
+10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
+11. Go to your end card in the previewer, as that is where you want to add your annotations.
+12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
+13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
+14. Click **Apply Changes**.
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -734,3 +803,56 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-a-compreenas-guide-to-choosing-ideal-lenses-for-filmmaking/"><u>[New] A Compreenas Guide to Choosing Ideal Lenses for Filmmaking</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-a-guide-to-the-best-bridal-films-8-from-youtube-plus-vimeo/"><u>[New] A Guide to the Best Bridal Films (8 From YouTube + Vimeo)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boost-your-blogs-imagery-adding-company-logowatermark-to-videos/"><u>[New] Boost Your Blog's Imagery Adding Company Logo/Watermark to Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-discover-the-top-free-platforms-for-youtube-ops/"><u>[New] Discover the Top Free Platforms for YouTube Ops</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-enhanced-clarity-clear-background-in-cam-recordings-for-2024/"><u>[New] Enhanced Clarity Clear Background in Cam Recordings for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-create-and-edit-videos-on-windows-10/"><u>[New] How to Create and Edit Videos on Windows 10</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-pazeras-2024-audio-liberation-a-review-of-freedom-in-music/"><u>[New] Pazera's 2024 Audio Liberation A Review of Freedom in Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-5-apps-for-turning-spotify-listens-into-youtube-videos/"><u>[New] Top 5 Apps for Turning Spotify Listens Into YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevating-views-amplifying-impact-a-youtube-case-study/"><u>[Updated] Elevating Views, Amplifying Impact A Youtube Case Study</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-going-viral-guide-keyword-strategies-for-cut-to-the-chase-videos-for-2024/"><u>[Updated] Going Viral Guide Keyword Strategies for Cut-to-the-Chase Videos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-how-to-edit-the-length-of-a-video-on-youtube/"><u>[Updated] How to Edit the Length of a Video on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-incorporate-subtitles-for-improved-viewing-wmp-guide/"><u>[Updated] In 2024, Incorporate Subtitles for Improved Viewing WMP Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-iphones-podcast-potential/"><u>[Updated] Unlocking iPhone's Podcast Potential</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-xbox-gaming-captured-a-beginners-screen-recording-journey-for-2024/"><u>[Updated] Xbox Gaming Captured A Beginner's Screen Recording Journey for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/10-fastest-growing-youtube-channels-to-light-up-your-mind-for-2024/"><u>10 Fastest Growing YouTube Channels to Light Up Your Mind for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/10-online-tools-to-retrieve-youtube-graphics/"><u>10 Online Tools to Retrieve YouTube Graphics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/10-tips-for-shooting-profesional-youtube-videos-for-2024/"><u>10 Tips For Shooting Profesional YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-elevate-your-digital-diaries-with-complimentary-upgrades/"><u>2024 Approved Elevate Your Digital Diaries with Complimentary Upgrades</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-youtube-presence-with-audio/"><u>2024 Approved Elevate Your Youtube Presence with Audio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/achieving-youtube-financial-goals-via-viewer-statistics-for-2024/"><u>Achieving Youtube Financial Goals via Viewer Statistics for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/balancing-viral-potential-with-long-term-traction-in-videos/"><u>Balancing Viral Potential with Long-Term Traction in Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/best-beams-microphones-for-education/"><u>Best Beams Microphones for Education</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/budding-buyers-guide-monetization-platforms-for-novice-channels-for-2024/"><u>Budding Buyers Guide Monetization Platforms for Novice Channels for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/crafting-youtube-channel-trailers-the-ultimate-guide-to-profitability-for-2024/"><u>Crafting YouTube Channel Trailers The Ultimate Guide to Profitability for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>Engaging Audience From Anywhere Phone-Based Filming Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/excelling-at-content-creation-a-guide-to-gamers-success/"><u>Excelling at Content Creation A Guide to Gamers' Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-ordinary-to-outstanding-crafting-unique-shorts-thumbnails/"><u>From Ordinary to Outstanding Crafting Unique Shorts Thumbnails</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-samsung-galaxy-s23-fe-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-7-insider-tips-to-make-money-quickly-on-youtube-shorts/"><u>In 2024, 7 Insider Tips to Make Money Quickly on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-ace-your-marketing-game-top-5-youtube-techniques-unveiled/"><u>In 2024, Ace Your Marketing Game Top 5 YouTube Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-dominate-discussion-how-to-trend-on-social-media-platforms/"><u>In 2024, Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-effortless-youtube-file-extraction/"><u>In 2024, Effortless YouTube File Extraction</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-novice-to-niche-tripling-your-youtube-fans/"><u>In 2024, From Novice to Niche Tripling Your Youtube Fans</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-the-ring-of-creatives-evaluating-own-and-adversary-arts/"><u>In the Ring of Creatives Evaluating Own and Adversary Arts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximizing-traffic-with-effective-youtube-titles/"><u>Maximizing Traffic with Effective YouTube Titles</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimize-your-pc-a-guide-to-spotting-huge-files-and-folders/"><u>Optimize Your PC: A Guide to Spotting Huge Files & Folders</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/perfect-pair-merging-your-youtube-video-library/"><u>Perfect Pair Merging Your YouTube Video Library</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719166993933-pinnacle-game-boy-advance-simulation-apps-for-iphone/"><u>Pinnacle Game Boy Advance Simulation Apps for iPhone!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/revolutionize-video-creation-make-edit-and-share-on-the-go/"><u>Revolutionize Video Creation Make, Edit & Share on the Go</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/skyrocketing-traffic-the-ultimate-guide-to-youtube-outros-partnerships/"><u>Skyrocketing Traffic The Ultimate Guide to YouTube Outros Partnerships</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/swift-access-to-youtube-srt-files-three-key-points/"><u>Swift Access to YouTube SRT Files Three Key Points</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tagging-and-title-strategies-for-youtube-success-stories/"><u>Tagging and Title Strategies for YouTube Success Stories</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tailor-sharespread-content-adobe-memes/"><u>Tailor Sharespread Content Adobe Memes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tailoring-your-youtube-videography-with-powerful-wm-maker-skills/"><u>Tailoring Your YouTube Videography with Powerful WM Maker Skills</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-best-free-video-translation-youtubes-extractors-and-downloader-list/"><u>The Best-Free Video Translation YouTube's Extractors & Downloader List</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/understanding-the-algorithm-maximizing-earning-potential-on-youtube/"><u>Understanding the Algorithm Maximizing Earning Potential on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/understanding-your-place-in-youtube-earnings/"><u>Understanding Your Place in YouTube Earnings</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unleash-creativity-the-best-9-camera-accessories-for-vloggers-and-more/"><u>Unleash Creativity The Best 9 Camera Accessories for Vloggers and More</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/zero-cost-techniques-for-video-and-text-combination/"><u>Zero-Cost Techniques for Video and Text Combination</u></a></li>
+</ul></div>
