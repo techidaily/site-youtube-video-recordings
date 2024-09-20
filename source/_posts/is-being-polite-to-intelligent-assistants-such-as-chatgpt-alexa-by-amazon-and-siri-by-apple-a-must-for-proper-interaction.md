@@ -1,7 +1,7 @@
 ---
 title: Is Being Polite to Intelligent Assistants Such as ChatGPT, Alexa by Amazon, and Siri by Apple a Must for Proper Interaction?
-date: 2024-09-11T09:43:39.109Z
-updated: 2024-09-15T06:33:50.809Z
+date: 2024-09-16T07:33:06.963Z
+updated: 2024-09-20T11:18:22.595Z
 tags:
   - chatgpt
   - open-ai
@@ -49,16 +49,16 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![Various different AI-generated images made with DALL-E](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/dall-e-ai-generated-image-gallery.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  According to a research paper published on[PNAS](https://www.pnas.org/doi/10.1073/pnas.1422953112) , the visual Turing test can be used to identify if you're talking to a human or an AI using image questionaries. It works like the Turing test, but instead of answering questions using texts, participants are shown images and expected to answer simple questions while thinking like a human. However, the[visual Turing test is different from CAPTCHAs](https://www.makeuseof.com/tag/how-do-captchas-work/) since all the answers are correct—but to pass the test, the AI must process the images similarly to a human.
 
  Beyond that, if an AI and a human are shown multiple images side by side and asked to identify realistic images, the human would have the cognitive ability to pass the test. This is because AI models find it difficult to distinguish images that don't look like they were taken in the real world. In fact, that's the reason why you can[identify AI-generated images](https://www.makeuseof.com/how-to-identify-ai-generated-image/) using anomalies that don't make sense.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. The Lovelace 2.0 Test
 
@@ -72,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![person using chatgpt on their laptop](https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db6256e6386dbd78a8fb134b9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  How about the Turing test, but done in reverse? Instead of trying to find out if you're talking to a human, the objective of the[reverse Turing test](https://gist.github.com/rain-1/3bf56122b0ebeac929dff0f881ee8e4c) is to trick the AI into believing you're an AI. However, you also need another AI model to answer the same questions using text.
 
  For instance, if ChatGPT-4 is the interrogator, you could enroll Google Bard and another human as participants. If the AI model can correctly identify the human participant based on the answers, it has passed the test.
@@ -89,15 +82,22 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![A man playing chess with an AI robot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/ai-chess.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  According to the AI classification framework developed by[Chris Saad](https://docsend.com/view/et7755yasfpj3iy6) , the Turing test is just one evaluation method to know if you're talking to an AI. More succinctly, the AI classification framework is based on the theory of multiple intelligence, which requires human intelligence to satisfy at least eight different criteria, which include: musical-rhythm, logical-mathematical intelligence, visual identification, emotional intelligence, self-reflective intelligence, existential thinking ability, and body movement.
 
  Since the AI is evaluated on eight different parameters, it's unlikely to pass for a human even if it performs better than average in certain benchmarks. For instance,[ChatGPT can solve math problems](https://www.makeuseof.com/can-chatgpt-solve-math-problems/) , describe images, and converse in a natural language like a human, but it would fail other categories defined in the AI classification framework.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Turing Test Is Not Conclusive
@@ -121,18 +121,18 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-free-online-music-libraries-15-picks/"><u>[New] 2024 Approved Essential Free Online Music Libraries 15 Picks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-tech-for-new-channel-launches/"><u>[Updated] Essential Tech for New Channel Launches</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-embedding-spotify-content-into-a-youtube-music-list/"><u>2024 Approved Embedding Spotify Content Into a YouTube Music List</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-evaluating-video-space-on-a-64gb-card/"><u>2024 Approved Evaluating Video Space on a 64GB Card</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/becoming-a-vlogger-voice-confident-content-creation-strategies-for-2024/"><u>Becoming a Vlogger Voice Confident Content Creation Strategies for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-smooth-out-the-play-in-battlefield-5-a-complete-lag-free-solution-list/"><u>How to Smooth Out the Play in Battlefield 5 – A Complete Lag-Free Solution List</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-creating-impactful-outros-top-6-free-tools/"><u>In 2024, Creating Impactful Outros Top 6 FREE Tools</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-video-aspects-online-for-2024/"><u>Mastering Video Aspects Online for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/pc-gaming-solutions-ensuring-smooth-playthrough-of-slime-rancher-2-without-interruptions/"><u>PC Gaming Solutions: Ensuring Smooth Playthrough of Slime Rancher 2 without Interruptions</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/preventing-non-displayed-images-in-youtubes-shorts/"><u>Preventing Non-Displayed Images in YouTubes Shorts</u></a></li>
-<li><a href="https://driver-download.techidaily.com/scarlett-solo-by-focusrite-for-pcs-free-installation-guide-and-download-links/"><u>Scarlett Solo by Focusrite for PCs - Free Installation Guide and Download Links</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-quick-guide-android-video-recording-techniques/"><u>[New] 2024 Approved Quick Guide Android Video Recording Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-constructive-communication-leads-to-more-subscribers/"><u>[New] Constructive Communication Leads to More Subscribers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-your-youtube-content-for-specific-crowds/"><u>[New] Crafting Your YouTube Content for Specific Crowds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/emystifying-youtube-seo-terminology-and-tactics/"><u>[New] Demystifying YouTube SEO Terminology and Tactics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-optimize-your-gopro-shoot/"><u>[New] In 2024, Optimize Your GoPro Shoot</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-streamlined-strategies-for-powerpoint-recordings/"><u>[New] In 2024, Streamlined Strategies for PowerPoint Recordings</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-dive-into-video-production-mastering-green-screens-on-yt/"><u>[Updated] Dive Into Video Production Mastering Green Screens on YT</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-streamyrecorder-your-simple-screen-recorder-for-windows-11-for-2024/"><u>[Updated] StreamyRecorder Your Simple Screen Recorder for Windows 11 for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-selection-of-8-instagram-schedulers-for-phones/"><u>[Updated] The Ultimate Selection of 8 Instagram Schedulers for Phones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-solutions-for-repairing-microsofts-code-28-bugs/"><u>Effective Solutions for Repairing Microsoft's Code 28 Bugs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/secure-and-unshakable-direct-url-addition-on-your-tiktok-profile/"><u>Secure & Unshakable Direct URL Addition on Your TikTok Profile</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-xiaomi-13-ultra-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Xiaomi 13 Ultra Phone With/Without IMEI Number</u></a></li>
 </ul></div>
 

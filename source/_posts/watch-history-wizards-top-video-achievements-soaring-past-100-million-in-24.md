@@ -1,7 +1,7 @@
 ---
 title: "\"Watch History Wizards  Top Video Achievements Soaring Past 100 Million in '24\""
-date: 2024-09-13T17:04:10.276Z
-updated: 2024-09-15T08:02:52.985Z
+date: 2024-09-17T04:45:03.312Z
+updated: 2024-09-20T01:42:09.360Z
 tags:
   - ai video
   - ai youtube
@@ -350,6 +350,13 @@ Butter by BTS is the video that has garnered the fastest 1 million views on YouT
 
 ![fastest 1 million view on youtube - bts butter](https://images.wondershare.com/filmora/article-images/2021/fastest-100-million-views-on-youtube-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Fastest 200 Million views on YouTube
 
 Dynamite by BTS holds the record of the fastest 200 million views on YouTube. It reached this figure in 4 days and 12 hours after its release.
@@ -557,13 +564,6 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 
 ![editing youtube live metada](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click "UPLOAD CUSTOM THUMBNAIL."
 
 ![uploading custom thumbnnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-5.JPG)
@@ -572,6 +572,13 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 * Click "Create Stream."
 
 ![starting livestream with custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2\. Add Live Stream Thumbnail on YouTube Classic Mode
 
@@ -633,6 +640,13 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 ![going live on mobile with custom thumbneil](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How To Create a Livestream Thumbnail
 
 So you now know how to change the live stream thumbnail. There's one more thing we need to address. Where will you get the custom thumbnails? There are a number of good YouTube thumbnail makers out there. Let's discuss this.
@@ -654,13 +668,6 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 * Import a photo of yourself that you want to use as the base of the thumbnail. Drag it into the timeline.
 
 ![adding your photo to filmora timeline](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-1.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Click "Effect."
 
@@ -706,13 +713,6 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![editing chosen template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-5.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click "Publish" > "Current frame as image."
 
 ![exporting the custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-6.JPG)
@@ -739,10 +739,10 @@ Marketing experts say that adding a photo of yourself to the thumbnail makes it 
 If you're not new to YouTube, you have probably seen the "YouTube thumbnail face." YouTuber's faces on their thumbnails show an expression. It shows the viewers the creator's humanity, and it is effective at attracting viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Text
@@ -768,6 +768,13 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 * Click "Effect."
 
 ![effects tab on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
 
@@ -804,13 +811,6 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 * Select a template that fits your idea.
 
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
@@ -866,20 +866,13 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-beat-bringers-sourcing-premium-dj-visuals/"><u>[New] Beat Bringers Sourcing Premium DJ Visuals</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-keep-and-store-your-linkedin-videos-with-these-high-quality-downloader-apps/"><u>[Updated] Keep and Store Your LinkedIn Videos with These High-Quality Downloader Apps</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-premier-intro-list-for-panzoids/"><u>[Updated] The Premier Intro List for Panzoids</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/a-beginners-guide-to-interpreting-youtube-analytics-scores-for-2024/"><u>A Beginner’s Guide to Interpreting Youtube Analytics Scores for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/creating-memorable-beginnings-imovie-tips-for-youtube-videos-for-2024/"><u>Creating Memorable Beginnings IMovie Tips for YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/expert-tips-on-camera-lens-selection-for-professional-vloggers/"><u>Expert Tips on Camera Lens Selection For Professional Vloggers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Xiaomi Redmi A2+? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-obs-studio-guide-5-key-edits-for-flawless-results/"><u>In 2024, OBS Studio Guide 5 Key Edits for Flawless Results</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-total-sphere-camera-systems/"><u>In 2024, Total Sphere Camera Systems</u></a></li>
-<li><a href="https://win-blog.techidaily.com/osb-studio-on-windows-11-and-10-crash-fixes-expert-advice-and-updated-solutions/"><u>OSB Studio on Windows 11 & 10 Crash Fixes: Expert Advice and Updated Solutions</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/pushing-the-limits-revolutionary-image-distortions-with-ps-for-2024/"><u>Pushing the Limits Revolutionary Image Distortions with PS for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solution-how-to-fix-dhcp-server-not-responding-issues-on-your-network/"><u>Solution: How to Fix 'DHCP Server Not Responding' Issues on Your Network</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-your-path-to-personal-youtube-soundscape/"><u>Streamlining Your Path to Personal Youtube Soundscape</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-guide-to-youtube-live-thumbnail/"><u>The Ultimate Guide to YouTube Live Thumbnail</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-online-dailymotion-converter-convert-videos-to-any-format-for-free-for-2024/"><u>Updated Online Dailymotion Converter Convert Videos to Any Format for Free for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-amplify-engagement-a-compilation-of-powerful-30-freegame-tags/"><u>[New] Amplify Engagement A Compilation of Powerful 30 FreeGame Tags</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-10-online-retailers-specialized-in-personalized-boxed-gifts/"><u>2024 Approved 10 Online Retailers Specialized in Personalized Boxed Gifts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-engage-viewers-beyond-individual-watches/"><u>2024 Approved Engage Viewers Beyond Individual Watches</u></a></li>
+<li><a href="https://techtrends.techidaily.com/asus-unveils-the-first-ever-gaming-desktop-pc-the-rog-nuc-with-core-ultra-9-processors-and-rtx-letech-rtx-4070-graphics-available-from-1629/"><u>Asus Unveils the First-Ever Gaming Desktop PC - The ROG NUC with Core Ultra 9 Processors and RTX Letech RTX 4070 Graphics, Available From $1,629.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-template-to-trendsetter-gamer-channel-banners-guide/"><u>From Template to Trendsetter Gamer Channel Banners Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-y78-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo Y78 5GFRP Lock</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-lava-blaze-2-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Lava Blaze 2 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-to-look-for-in-a-gaming-pc/"><u>What to Look For in a Gaming PC</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "YouTube Shorts Demystified in 30 Minutes"
-date: 2024-09-11T19:32:53.220Z
-updated: 2024-09-14T19:23:45.717Z
+date: 2024-09-13T05:57:55.879Z
+updated: 2024-09-20T05:20:52.188Z
 tags:
   - ai video
   - ai youtube
@@ -128,19 +128,6 @@ You can add relevant hashtags to your video in the description as well to gain m
 
 ![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How do you Write a Description on YouTube Shorts?
 
 Let’s talk about ways to write a YouTube shorts description with easy to follow steps:
@@ -159,6 +146,13 @@ So you can follow above mentioned easy step guidance and write the most iconic Y
 
 There are some of the key points to keep in mind while writing a [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) description. All these tips would surely help your videos gain more views.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Be specific
 
 While writing a YouTube shorts description is very important that you are well aware of which keywords to use. Here your choice of keywords will play a key role in ranking your videos up.
@@ -174,13 +168,6 @@ You should make sure to put your primary keywords on the first three sentences o
 ### 4\. Track the keywords
 
 Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Find other interests of your audience
 
@@ -222,6 +209,13 @@ You can add relevant hashtags to your video in the description as well to gain m
 
 ![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How do you Write a Description on YouTube Shorts?
 
 Let’s talk about ways to write a YouTube shorts description with easy to follow steps:
@@ -248,16 +242,16 @@ While writing a YouTube shorts description is very important that you are well a
 
 If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Know where to place your keywords
 
 You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Track the keywords
 
@@ -266,6 +260,13 @@ Always keep an eye on knowing which keywords are working and which are not for y
 ### 5\. Find other interests of your audience
 
 Along with your video content have a look at what other things are attracting your audience. You can always check out that and based on that plan and deliver your upcoming YouTube shorts.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -365,13 +366,6 @@ Now it is time for you to pick the right YouTube shorts description for your vid
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -490,13 +484,6 @@ You should not use the comments sections of other people’s videos, or gaming f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -518,6 +505,19 @@ The first thing you need to know about being a gaming vlogger is that gameplay f
 Looking for a good video editor for your gaming video? Wondershare Filmora is recommended. It is not just a video editor which allows you to cut, split, add text, apply background sound to your video clips, but also a screen recorder which helps you record videos from PC screem webcam, and voice over. What's more, you can find lots of special effects for gaming in this software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
@@ -642,20 +642,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-views-mastering-hashtags-in-freefire-vids/"><u>[New] Boosting Views Mastering Hashtags in FreeFire Vids</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-comprehensive-review-of-non-google-augmented-reality-accessories/"><u>[New] Comprehensive Review of Non-Google Augmented Reality Accessories</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-snapshot-your-mobile-gamers-high-scores-on-samsungs/"><u>[New] Snapshot Your Mobile Gamers' High Scores on Samsungs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-tier-seo-strategies-to-elevate-your-podcast-rankings/"><u>[Updated] 2024 Approved Top-Tier SEO Strategies to Elevate Your Podcast Rankings</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-ranking-the-best-third-place-recording-tools-for-ipad/"><u>[Updated] Ranking the Best Third-Place Recording Tools for iPad</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-discovering-the-speedy-scaling-channels-among-youtube-titans/"><u>2024 Approved Discovering the Speedy Scaling Channels Among YouTube Titans</u></a></li>
-<li><a href="https://tools.techidaily.com/abbyy/products/"><u>ABBYY FineReader PDF</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/decoding-your-ps4s-controller-lights-insight-into-blinking-colors-of-blue-white-red-or-orange/"><u>Decoding Your PS4's Controller Lights: Insight Into Blinking Colors of Blue, White, Red, or Orange</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/dynamic-scripting-for-videos-for-2024/"><u>Dynamic Scripting for Videos for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-driving-view-counts-upward-on-youtube-6-proven-techniques/"><u>In 2024, Driving View Counts Upward on YouTube 6 Proven Techniques</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/instant-aspect-ratio-tuning-for-youtube-on-mac/"><u>Instant Aspect Ratio Tuning for Youtube on Mac</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-vr-and-ar-game-apps-for-phones-for-2024/"><u>The Ultimate Guide to VR and AR Game Apps for Phones for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-5-complimentary-antivirus-software-you-cant-ignore/"><u>Top 5 Complimentary Antivirus Software You Can't Ignore</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/transforming-mobile-content-into-profitable-youtube-experiences/"><u>Transforming Mobile Content Into Profitable YouTube Experiences</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/video-quality-comparison-mirrorless-or-dslr-cameras/"><u>Video Quality Comparison Mirrorless or DSLR Cameras?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-guide-to-the-best-bridal-films-8-from-youtube-plus-vimeo-for-2024/"><u>[Updated] A Guide to the Best Bridal Films (8 From YouTube + Vimeo) for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-creating-dynamic-content-with-youtube-playlist-embedding/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/are-authentic-engagement-strategies-more-valuable/"><u>Are Authentic Engagement Strategies More Valuable?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/breezing-through-fixing-javascript-hiccups-on-discord-platform/"><u>Breezing Through Fixing JavaScript Hiccups on Discord Platform</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-honor-play-8t-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Honor Play 8T</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-breaking-down-youtube-short-barriers/"><u>In 2024, Breaking Down YouTube Short Barriers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-easeus-screen-recorder-featuresreview/"><u>In 2024, EaseUS Screen Recorder Features|Review</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-vivo-y78t-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Vivo Y78t Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/twitmedia-mastery-elevate-your-tweet-game/"><u>TwitMedia Mastery Elevate Your Tweet Game</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-samsung-galaxy-f04-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Samsung Galaxy F04 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/winning-against-w11s-elan-input-issues-one-fix-at-a-time/"><u>Winning Against W11's Elan Input Issues, One Fix at a Time</u></a></li>
 </ul></div>
 

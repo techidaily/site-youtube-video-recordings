@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Boost Viewers Interaction via YouTube Cards"
-date: 2024-07-19T06:05:44.828Z
-updated: 2024-07-20T06:05:44.828Z
+date: 2024-09-17T16:15:52.383Z
+updated: 2024-09-20T12:26:19.119Z
 tags:
   - ai video
   - ai youtube
@@ -100,9 +100,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -189,112 +186,6 @@ Giving viewers more information and a thumbnail through a Card can help ensure t
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Annotations and Cards are both tools for linking viewers to your other videos or to off-YouTube webpages. Two of the major differences between them are:
-
-Annotations are not clickable on mobile devices.
-
-You cannot choose the size or positioning of Cards.
-
-This article will teach you about both Cards and Annotations and discuss the best uses for each of them.
-
-**Part 1: Annotations**
-
-Annotations are messages that float overtop of your videos in the YouTube player. Usually, annotations are clickable and take users to other content created by you.
-
-**Section 1: Types of Annotations**
-
-There are five types of YouTube annotations:
-
-**Notes** are colored boxes placed over the top of your videos.
-
-**Speech Bubbles** look like dialogue boxes in a comic strip. They have tails that you can adjust so it looks like one of the people in your video is saying what is written in the annotation.
-
-**Spotlights** have a subtle border and are completely clear inside. Your text only appears when a viewer’s cursor hovers over top of these annotations.
-
-**Labels** are like spotlights except that viewers do not have to hover over them for your text to be visible.
-
-Any of these annotations can be used to link viewers to other videos, or as subscribe links. You can also add a simple **Title** to your video through the Annotations menu.
-
-**Section 2: How to Use Annotations**
-
-\*Note: the above video mentions Pause annotations, which are no longer available.
-
-Here are two of the best uses for annotations:
-
-**Clickable End Cards / Outros**
-
-One of the best ways you can use spotlight annotations is to create clickable end cards for your videos.
-
-When your video finishes playing the YouTube player will display a selection of suggested videos that might direct viewers away from your channel. You can keep more of these viewers watching your content by creating your own ‘suggested videos’ card and putting it at the end of your videos.
-
-Put thumbnails of two or three of your other videos on your end card, or use ‘picture-in-picture’ to actually imbed footage from them. Then, after you upload your video, go in and place clickable spotlight annotations over top of your video thumbnails.
-
-This is one use for annotations that cannot be duplicated with cards.
-
-**Promoting Your Videos**
-
-You should not wait until the end of your video to start linking viewers to other content. Many viewers will click away before they see your end card because your video is not exactly what they were looking for. By placing note or speech bubble annotations occasionally throughout your videos you can catch some of these people before they click off of your channel.
-
-This works especially well if you link to videos on similar subjects to the one you are annotating.
-
-Instead of just linking to another video of yours, try to link to that video on a playlist. Once a viewer is on a playlist your videos will auto-play after each other, which is good for both your view count and watch time.
-
-You can also use the newer YouTube Cards for this, but Annotations might still be a better choice because viewers only need to click once vs. twice for Cards.
-
-Try both and see which performs best for your channel. It might be in your best interest to keep on using both as they target different audiences – Cards are clickable on mobile devices, for example, but Annotations are not.
-
-#### **Part 2: YouTube Cards**
-
-YouTube Cards are newer than annotations and a lot of people believe they will one day replace Annotations. While there are benefits to Cards – like embedding images to represent your links – you cannot choose the shape, size, or placement of them. This means they have limited uses.
-
-When viewers click on a Card they are shown additional information and a thumbnail representing the page they will be taken to if they choose to click again. This extra step could be either help viewers decide to click your links or give them a second chance to decide they would rather not.
-
-**Section 1: When to Use Cards**
-
-A linked Annotation is simply a call to action viewers can click on. A Card is a call to action as well, but instead of taking the viewer directly to where its link leads when it is clicked a Card opens up into a larger version of itself with a thumbnail image.
-
-Crowdfunding pages (Patreon is a great choice for video creators), charity fundraising pages, and merchandise stores are all examples of links that benefit from the format of YouTube Cards.
-
-When you link a viewer to a non-YouTube page you break up their session time, which negatively impacts your watch time and SEO ranking. You want to make sure that the viewers you are directing away from YouTube are the ones most likely to convert after they leave. By ‘convert’ we mean to contribute to your Patreon campaign, donate to the charity you are promoting, or buy some of your merchandise.
-
-Giving viewers more information and a thumbnail through a Card can help ensure the most interested viewers are the ones clicking your links.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -383,9 +274,94 @@ Giving viewers more information and a thumbnail through a Card can help ensure t
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Annotations and Cards are both tools for linking viewers to your other videos or to off-YouTube webpages. Two of the major differences between them are:
+
+Annotations are not clickable on mobile devices.
+
+You cannot choose the size or positioning of Cards.
+
+This article will teach you about both Cards and Annotations and discuss the best uses for each of them.
+
+**Part 1: Annotations**
+
+Annotations are messages that float overtop of your videos in the YouTube player. Usually, annotations are clickable and take users to other content created by you.
+
+**Section 1: Types of Annotations**
+
+There are five types of YouTube annotations:
+
+**Notes** are colored boxes placed over the top of your videos.
+
+**Speech Bubbles** look like dialogue boxes in a comic strip. They have tails that you can adjust so it looks like one of the people in your video is saying what is written in the annotation.
+
+**Spotlights** have a subtle border and are completely clear inside. Your text only appears when a viewer’s cursor hovers over top of these annotations.
+
+**Labels** are like spotlights except that viewers do not have to hover over them for your text to be visible.
+
+Any of these annotations can be used to link viewers to other videos, or as subscribe links. You can also add a simple **Title** to your video through the Annotations menu.
+
+**Section 2: How to Use Annotations**
+
+\*Note: the above video mentions Pause annotations, which are no longer available.
+
+Here are two of the best uses for annotations:
+
+**Clickable End Cards / Outros**
+
+One of the best ways you can use spotlight annotations is to create clickable end cards for your videos.
+
+When your video finishes playing the YouTube player will display a selection of suggested videos that might direct viewers away from your channel. You can keep more of these viewers watching your content by creating your own ‘suggested videos’ card and putting it at the end of your videos.
+
+Put thumbnails of two or three of your other videos on your end card, or use ‘picture-in-picture’ to actually imbed footage from them. Then, after you upload your video, go in and place clickable spotlight annotations over top of your video thumbnails.
+
+This is one use for annotations that cannot be duplicated with cards.
+
+**Promoting Your Videos**
+
+You should not wait until the end of your video to start linking viewers to other content. Many viewers will click away before they see your end card because your video is not exactly what they were looking for. By placing note or speech bubble annotations occasionally throughout your videos you can catch some of these people before they click off of your channel.
+
+This works especially well if you link to videos on similar subjects to the one you are annotating.
+
+Instead of just linking to another video of yours, try to link to that video on a playlist. Once a viewer is on a playlist your videos will auto-play after each other, which is good for both your view count and watch time.
+
+You can also use the newer YouTube Cards for this, but Annotations might still be a better choice because viewers only need to click once vs. twice for Cards.
+
+Try both and see which performs best for your channel. It might be in your best interest to keep on using both as they target different audiences – Cards are clickable on mobile devices, for example, but Annotations are not.
+
+#### **Part 2: YouTube Cards**
+
+YouTube Cards are newer than annotations and a lot of people believe they will one day replace Annotations. While there are benefits to Cards – like embedding images to represent your links – you cannot choose the shape, size, or placement of them. This means they have limited uses.
+
+When viewers click on a Card they are shown additional information and a thumbnail representing the page they will be taken to if they choose to click again. This extra step could be either help viewers decide to click your links or give them a second chance to decide they would rather not.
+
+**Section 1: When to Use Cards**
+
+A linked Annotation is simply a call to action viewers can click on. A Card is a call to action as well, but instead of taking the viewer directly to where its link leads when it is clicked a Card opens up into a larger version of itself with a thumbnail image.
+
+Crowdfunding pages (Patreon is a great choice for video creators), charity fundraising pages, and merchandise stores are all examples of links that benefit from the format of YouTube Cards.
+
+When you link a viewer to a non-YouTube page you break up their session time, which negatively impacts your watch time and SEO ranking. You want to make sure that the viewers you are directing away from YouTube are the ones most likely to convert after they leave. By ‘convert’ we mean to contribute to your Patreon campaign, donate to the charity you are promoting, or buy some of your merchandise.
+
+Giving viewers more information and a thumbnail through a Card can help ensure the most interested viewers are the ones clicking your links.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
+
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -408,9 +384,6 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## DIY YouTube Intros & Ends Without Breaking the Bank
 
 # How to Create YouTube Intros & End Cards - Free and Easy
@@ -535,6 +508,125 @@ Follow @Shanoon Cox
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part1: Intros
+
+#### Elements of an Intro
+
+Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
+
+When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
+
+Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
+
+#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+
+There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
+
+**FlixPress.com**
+
+This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
+
+**IntroMaker.net**
+
+This is another site with really professional looking intros for $5\. They only have two free options, though.
+
+#### Creating an Intro in Filmora
+
+You can create a simple intro card in **Filmora**.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
+2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
+3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
+4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
+5. Click on the editing icon with your logo selected and choose an animation.
+6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
+7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
+8. Export your video and save it for use in all of your other videos.
+
+## Part 2: End Cards
+
+When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
+
+To keep viewers on your channel, you can create your End Card which recommends other content you have created.
+
+#### Elements of an End Card
+
+An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
+
+It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
+
+You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
+
+Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
+
+#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
+2. Drag your background into your timeline at the end of your video.
+3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
+4. Trim the clips in your picture in picture track down to the same length as your end card.
+5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
+6. Position your clips so they are spaced evenly by dragging them in the preview screen.
+7. Mute your clips.
+8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
+9. Export your video from Filmora and upload it to YouTube.
+10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
+11. Go to your end card in the previewer, as that is where you want to add your annotations.
+12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
+13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
+14. Click **Apply Changes**.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+[Part 1: Intros](#part1)
+
+[Elements of an Intro](#elements)
+
+[Top Intro Sites](#top)
+
+[Creating an Intro in Filmora](#creating)
+
+[Part 2: End Cards](#part2)
+
+[Elements of an End Card](#element)
+
+[How To Make an End Card](#how-to)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -633,9 +725,6 @@ Follow @Shanoon Cox
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -663,6 +752,13 @@ This is another site with really professional looking intros for $5\. They only 
 You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -706,116 +802,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-[Part 1: Intros](#part1)
-
-[Elements of an Intro](#elements)
-
-[Top Intro Sites](#top)
-
-[Creating an Intro in Filmora](#creating)
-
-[Part 2: End Cards](#part2)
-
-[Elements of an End Card](#element)
-
-[How To Make an End Card](#how-to)
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
-## Part1: Intros
-
-#### Elements of an Intro
-
-Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
-
-When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
-
-Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
-
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
-
-There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
-
-**FlixPress.com**
-
-This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
-
-**IntroMaker.net**
-
-This is another site with really professional looking intros for $5\. They only have two free options, though.
-
-#### Creating an Intro in Filmora
-
-You can create a simple intro card in **Filmora**.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
-2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
-3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
-4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
-5. Click on the editing icon with your logo selected and choose an animation.
-6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
-7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
-8. Export your video and save it for use in all of your other videos.
-
-## Part 2: End Cards
-
-When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
-
-To keep viewers on your channel, you can create your End Card which recommends other content you have created.
-
-#### Elements of an End Card
-
-An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
-
-It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
-
-You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
-
-Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
-
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
-2. Drag your background into your timeline at the end of your video.
-3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
-4. Trim the clips in your picture in picture track down to the same length as your end card.
-5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
-6. Position your clips so they are spaced evenly by dragging them in the preview screen.
-7. Mute your clips.
-8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
-9. Export your video from Filmora and upload it to YouTube.
-10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
-11. Go to your end card in the previewer, as that is where you want to add your annotations.
-12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
-13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
-14. Click **Apply Changes**.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -837,7 +823,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-ultimate-starters-guide-to-understanding-and-using-green-screens/"><u>[New] 2024 Approved The Ultimate Starter’s Guide to Understanding and Using Green Screens</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-breakthrough-tools-an-analysis-of-the-top-10-cost-effective-video-design-schools-on-youtube/"><u>[New] Breakthrough Tools An Analysis of the Top 10 Cost-Effective Video Design Schools on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iscover-the-10-yt-channels-with-swift-ascendancy-and-intellect-for-2024/"><u>[New] Discover the 10 YT Channels with Swift Ascendancy and Intellect for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-enhancing-beauty-on-streams-via-color-grading/"><u>[New] Enhancing Beauty on Streams via Color Grading</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-pivotal-software-in-shaping-the-future-of-vtuber-audio-identity/"><u>[Updated] In 2024, Pivotal Software in Shaping the Future of VTuber Audio Identity</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>Captivating Your Audience YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-chatter-stream-instagram-silently/"><u>Cut the Chatter: Stream Instagram Silently</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings-for-2024/"><u>Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-best-chatgpt-plugins-to-boost-your-conversational-ai-now/"><u>Discover the Best ChatGPT Plugins to Boost Your Conversational AI Now</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-the-purpose-of-ntuserdat-files-on-your-windows-system/"><u>Understanding the Purpose of NTUSER.DAT Files on Your Windows System</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-drivers-with-windows-device-manager-on-windows-1110-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning drivers with Windows Device Manager on Windows 11/10</u></a></li>
+</ul></div>
 

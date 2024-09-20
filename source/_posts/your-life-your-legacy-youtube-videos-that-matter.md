@@ -1,7 +1,7 @@
 ---
 title: "\"Your Life, Your Legacy  YouTube Videos That Matter\""
-date: 2024-09-10T22:36:09.838Z
-updated: 2024-09-14T19:35:07.110Z
+date: 2024-09-18T16:28:03.702Z
+updated: 2024-09-19T18:30:55.360Z
 tags:
   - ai video
   - ai youtube
@@ -62,10 +62,10 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
@@ -165,13 +165,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -228,13 +221,6 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -308,13 +294,6 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -351,6 +330,13 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mastering YouTube Channel Descriptions
 
@@ -373,77 +359,77 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+---
+
+## Why YouTube channel description is important
+
+ If you have a YouTube channel and if you are not getting the number of views that you wish to have, there are possibly several problems. Maybe, your content is not enticing enough. Or maybe, it is because you do not have the right YouTube channel description. Generally speaking, the description of your channel will provide visitors of a snapshot of what the channel is all about. It appears in the about tab of your page. This is an elevator pitch, which will be an opportunity for you to show other people why they should watch your videos.
+
+**You may also like:**
+[How to edit title, description and tags for YouTube videos](https://tools.techidaily.com/wondershare/filmora/download/)
+[How to Create a Killer YouTube Channel Trailer >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ Without a YouTube channel description, visitors won’t be aware of what you can offer. Take note of the fact that their attention span is minimal. They do not have the luxury of time to see each and every video in your channel. They will only click on it if they know that it is going to be valuable if there is any good that they can gain from such. This is where the importance of a well-crafted description enters the picture. Here are some tips on how you can optimize your channel description.
+
+#### 1. Use the right keywords
+
+ Adding right keywords to your channel description will help to make sure that your YouTube channel will appear on the top of search engine results. Use [keyword research tools](https://tools.techidaily.com/wondershare/filmora/download/) that are available in order to determine which ones will add value to your description. And in your video description, you should add at least one core keywords to your channel description.
+
+#### 2. Advertise your programming schedule
+
+ By providing this information, visitors will know when exactly they can go back and check for latest updates from your channel.
+
+#### 3. Create a strong first impression
+
+ If you YouTube channel description are boring, chances are, visitors will no longer bother to view the contents. Create a powerful and enticing description that will trigger viewers to make a favorable action.
+
+## How to edit your YouTube Channel Description \[Step by Step Tutorial\]
+
+ This is actually a process that is pretty much straightforward, provided that you know how it can be done. Here are the simple steps that you should follow:
+
+* Open your YouTube account.
+* Click on My Channel
+
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+
+* Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
+
+![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
+
+* Click on "About."
+
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+
+* Then you can edit the channel description here
+
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+
+**Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
+
+* Write the description that you want to show up when people visit your YouTube channel. It is not enough that you write just any sentence. Make sure that it is sweet and simple. Be as concise and informative as possible. Use simple words, yet make sure that they are powerful and can stir the visitor to make a favorable action. Also, see to it that it makes use of the right keywords that are related to your channel.
+* Click on "View as" which will allow the YouTube channel description to show up for New visitor or returning subscriber.
+
+![Edit YouTube Channel Description - Preview](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-5.jpg)
+
+ In sum, adding a YouTube channel description does not need to be a complicated process. Just follow the tips mentioned above and make sure to pay attention to crafting the right message. It must be keyword-optimized and must captivate attention of your visitors.
+
+ **Check this video to know how to optimize YouTube SEO:**
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### Bonus: Tips for YouTube Video Description
+
+ Here we have also found out some useful tips for YouTube video description:
+
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
----
-
-## Why YouTube channel description is important
-
- If you have a YouTube channel and if you are not getting the number of views that you wish to have, there are possibly several problems. Maybe, your content is not enticing enough. Or maybe, it is because you do not have the right YouTube channel description. Generally speaking, the description of your channel will provide visitors of a snapshot of what the channel is all about. It appears in the about tab of your page. This is an elevator pitch, which will be an opportunity for you to show other people why they should watch your videos.
-
-**You may also like:**
-[How to edit title, description and tags for YouTube videos](https://tools.techidaily.com/wondershare/filmora/download/)
-[How to Create a Killer YouTube Channel Trailer >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
- Without a YouTube channel description, visitors won’t be aware of what you can offer. Take note of the fact that their attention span is minimal. They do not have the luxury of time to see each and every video in your channel. They will only click on it if they know that it is going to be valuable if there is any good that they can gain from such. This is where the importance of a well-crafted description enters the picture. Here are some tips on how you can optimize your channel description.
-
-#### 1. Use the right keywords
-
- Adding right keywords to your channel description will help to make sure that your YouTube channel will appear on the top of search engine results. Use [keyword research tools](https://tools.techidaily.com/wondershare/filmora/download/) that are available in order to determine which ones will add value to your description. And in your video description, you should add at least one core keywords to your channel description.
-
-#### 2. Advertise your programming schedule
-
- By providing this information, visitors will know when exactly they can go back and check for latest updates from your channel.
-
-#### 3. Create a strong first impression
-
- If you YouTube channel description are boring, chances are, visitors will no longer bother to view the contents. Create a powerful and enticing description that will trigger viewers to make a favorable action.
-
-## How to edit your YouTube Channel Description \[Step by Step Tutorial\]
-
- This is actually a process that is pretty much straightforward, provided that you know how it can be done. Here are the simple steps that you should follow:
-
-* Open your YouTube account.
-* Click on My Channel
-
-![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
-
-* Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
-
-![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
-
-* Click on "About."
-
-![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
-
-* Then you can edit the channel description here
-
-![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
-
-**Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
-
-* Write the description that you want to show up when people visit your YouTube channel. It is not enough that you write just any sentence. Make sure that it is sweet and simple. Be as concise and informative as possible. Use simple words, yet make sure that they are powerful and can stir the visitor to make a favorable action. Also, see to it that it makes use of the right keywords that are related to your channel.
-* Click on "View as" which will allow the YouTube channel description to show up for New visitor or returning subscriber.
-
-![Edit YouTube Channel Description - Preview](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-5.jpg)
-
- In sum, adding a YouTube channel description does not need to be a complicated process. Just follow the tips mentioned above and make sure to pay attention to crafting the right message. It must be keyword-optimized and must captivate attention of your visitors.
-
- **Check this video to know how to optimize YouTube SEO:**
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### Bonus: Tips for YouTube Video Description
-
- Here we have also found out some useful tips for YouTube video description:
-
-![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
-
 #### 1. Take full advantage of the First Line
 
  As the most important text in the YouTube video description, the text in the first line will appear both in the YouTube search result and the social media. It is recommended to write a short video description but for SEO purpose, keep in mind to contain the main keywords and write a clickbaity text.
@@ -455,6 +441,13 @@ Follow @Richard Bennett
  It is highly recommended to add additional relevant content to the video description to help audience to get to know you better. You can add a brief summary of the video content or the transcript of the video here. Normally, you can add anything that is worth mentioning such as the equipment or software that you are using to make the video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -703,6 +696,13 @@ Follow @Richard Bennett
 * Click on My Channel
 
 ![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -768,16 +768,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-instagram-for-entrepreneurs-how-to-register-as-a-biz-page-for-2024/"><u>[New] Instagram for Entrepreneurs How to Register as a Biz Page for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-weekly-webinar-strategies-timing-and-coordination-tips/"><u>[Updated] 2024 Approved Weekly Webinar Strategies Timing and Coordination Tips</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10plus-best-free-video-editing-programs-of-2023/"><u>2024 Approved 10+ Best Free Video Editing Programs of 2023</u></a></li>
-<li><a href="https://video-capture.techidaily.com/easy-steps-transforming-videos-into-compatible-formats-for-your-sony-bravia-tv/"><u>Easy Steps: Transforming Videos Into Compatible Formats for Your Sony Bravia TV</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/how-to-elevate-your-iphone-photography-dive-into-hdr/"><u>How to Elevate Your iPhone Photography Dive Into HDR</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-achieving-profitability-at-half-a-million-viewers/"><u>In 2024, Achieving Profitability at Half a Million Viewers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-building-direct-urls-for-youtube-channel-subscribers/"><u>In 2024, Building Direct URLs for YouTube Channel Subscribers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-the-perfect-gaming-channel-header/"><u>In 2024, Crafting the Perfect Gaming Channel Header</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-guide-to-mastering-asmr-experience/"><u>In 2024, Essential Guide to Mastering ASMR Experience</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-htc-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your HTC Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/telechargement-gratuit-de-macx-dvd-ripper-pro-pour-windows-version-complete/"><u>Téléchargement Gratuit De MacX DVD Ripper Pro Pour Windows - Version Complète</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-clearing-tactics-for-youtubes-stored-video-queue/"><u>[New] Clearing Tactics for YouTube's Stored Video Queue</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-screen-shot-ease-premium-free-software-for-desktop-recording-on-pcmac/"><u>[New] In 2024, Screen Shot Ease Premium FREE Software for Desktop Recording on PC/Mac</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-proven-methods-for-effective-screen-capture-using-adobe-captive-toolkit/"><u>[New] Proven Methods for Effective Screen Capture Using Adobe Captive Toolkit</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-your-pathway-to-youtubes-maker-land-for-2024/"><u>[Updated] Deciphering Your Pathway to YouTube's Maker Land for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-diverging-paths-youtube-licensing-and-creative-commons/"><u>[Updated] Diverging Paths YouTube Licensing & Creative Commons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premium-picks-for-the-ultimate-gopro-experience/"><u>[Updated] In 2024, Premium Picks for the Ultimate Gopro Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-insights-on-asmr-videos-unveiled-for-2024/"><u>Essential Insights on ASMR Videos Unveiled for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/innovative-methods-for-effective-image-pairing-for-2024/"><u>Innovative Methods for Effective Image Pairing for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Discover the Best Substitutes to ChatGPT's Conversational Technology
-date: 2024-09-11T17:05:56.109Z
-updated: 2024-09-15T10:33:22.465Z
+date: 2024-09-16T21:16:27.025Z
+updated: 2024-09-20T13:02:00.547Z
 tags:
   - chatgpt
   - open-ai
@@ -65,9 +65,23 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 ![Using ChatGPT as an AI assistant using memory and web browsing features](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-as-assistant-using-expanded-knowledge-base-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  ChatGPT provided sound advice by browsing the web for the weather and reviewing its memory of my schedule. It even gave me a list of activities I could do instead based on my past interactions with ChatGPT.
 
  The browsing capability feature is now available for both Plus and Free tier users, while ChatGPT Memory is only available to Plus users.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Multi-Modal Voice and Video Interactions
 
@@ -80,10 +94,16 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
  GPT-4o's voice interaction is available to all users using the ChatGPT Android/iOS app. However, the video interaction feature is unavailable at the time of writing but is expected to roll out in the near future.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Upgraded Code Analysis
@@ -94,19 +114,6 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 ![Using-ChatGPT-Advanced-Data-Analysis](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-advanced-data-analysis.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  I already knew the numbers before running it using ADA on ChatGPT-4o, so I know the provided graph is accurate. However, running it on ChatGPT-4 continually gave me errors, was slow, and never really provided me with the graph. So, although ADA is not functionally different from the old code interpreter, running ADA right on ChatGPT-4o was certainly easier, faster, and smarter.
 
  OpenAI's demonstrations also showed live code debugging using voice commands, which is another enormous upgrade for ChatGPT. Instead of having to type commands and work bit by bit, live interactions with your code could speed up the process.
@@ -114,13 +121,6 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 ## Temporary Chat
 
 ![ChatGPT's new temporary chat feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/chatgpt-s-temporary-chat-feature.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The new Temporary Chat feature in ChatGPT-4o is ideal for privacy-conscious users and those seeking quick interactions with ChatGPT. This feature enables users to engage in a temporary chat with ChatGPT without the conversation being saved in history or used by OpenAI to train their models.
 
@@ -143,17 +143,15 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-art-of-circle-and-sphere-construction-in-mc/"><u>[New] 2024 Approved The Art of Circle and Sphere Construction in MC</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-turning-tides-exploring-unique-methods-to-reverse-youtube-videos/"><u>[New] Turning Tides Exploring Unique Methods to Reverse YouTube Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-comprehensive-tutorial-on-youtube-annotation/"><u>[Updated] Comprehensive Tutorial on Youtube Annotation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fog-no-more-secrets-for-crisp-clean-filming/"><u>[Updated] Fog No More Secrets for Crisp, Clean Filming</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-5-dreamy-winter-scenes-as-youtube-backdrops/"><u>In 2024, 5 Dreamy Winter Scenes as YouTube Backdrops</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-chuckle-centric-ringtone-websites-guide/"><u>In 2024, Chuckle-Centric Ringtone Websites Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-editing-workshop-portal/"><u>In 2024, Editing Workshop Portal</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-pioneering-creations-cutting-edge-tips-for-gifs/"><u>In 2024, Pioneering Creations Cutting-Edge Tips for GIFs</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resource-limits-affecting-usage/"><u>Resource Limits Affecting Usage</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-letdown-of-ps2-on-ps5-master-the-art-of-gaming-with-pcsx2-instead/"><u>The Letdown of PS2 on PS5: Master the Art of Gaming with PCSX2 Instead!</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-motorola-razr-40-ultra-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Motorola Razr 40 Ultra without backup.</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-fcp-essentials-flipping-clips-made-easy-with-this-4-step-process/"><u>Updated FCP Essentials Flipping Clips Made Easy with This 4-Step Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-hdr-on-your-desk-a-windows-guide-to-color-mastery/"><u>[New] 2024 Approved HDR on Your Desk A Windows Guide to Color Mastery</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-becoming-an-expert-at-yt-studio-navigation/"><u>[New] Becoming an Expert at YT Studio Navigation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-optimal-techniques-to-record-your-snapchat-stories/"><u>[New] Optimal Techniques to Record Your Snapchat Stories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-integrating-youtube-media-into-instagram-experience/"><u>[Updated] Integrating YouTube Media Into Instagram Experience</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlocking-the-secrets-of-expert-periscope-use-for-2024/"><u>[Updated] Unlocking the Secrets of Expert Periscope Use for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-viewing-experience-enable-av1-on-youtube-for-2024/"><u>Elevate Viewing Experience – Enable AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-engagement-essential-video-formats-for-youtube-viewers-for-2024/"><u>Enhancing Engagement Essential Video Formats for YouTube Viewers for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-beyond-youtube-3-pioneering-online-video-platforms/"><u>In 2024, Beyond YouTube 3 Pioneering Online Video Platforms</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-galaxy-z-fold-5-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Samsung Galaxy Z Fold 5 Device</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-best-free-dailymotion-video-converters-online/"><u>New In 2024, Best Free DailyMotion Video Converters Online</u></a></li>
 </ul></div>
 

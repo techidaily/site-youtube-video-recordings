@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube’s Earnings Explained  Making Money From Ads\""
-date: 2024-09-09T07:02:14.568Z
-updated: 2024-09-14T19:45:04.484Z
+date: 2024-09-16T14:01:57.833Z
+updated: 2024-09-20T15:10:18.600Z
 tags:
   - ai video
   - ai youtube
@@ -115,6 +115,13 @@ Don’t let this discourage you from working towards earning income from your Yo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -135,13 +142,6 @@ YouTube is more than a video sharing social network; here's how to get paid on Y
 4. [Receiving Payments](#receiving)
 
 Many vloggers receive direct bank deposits of their ad-based revenues every month. In this article, we’ll show you how to monetize your YouTube Channel and how to receive payments to your bank account.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Making Your YouTube Videos Better with Filmora
 
@@ -345,6 +345,13 @@ YouTube is more than a video sharing social network; here's how to get paid on Y
 
 Many vloggers receive direct bank deposits of their ad-based revenues every month. In this article, we’ll show you how to monetize your YouTube Channel and how to receive payments to your bank account.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Making Your YouTube Videos Better with Filmora
 
 If you want to earn more money with YouTube videos, your video should be stand out. To achieve that, you should use a powerful video editing software as well. Here, I recommend [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/). As one of the most widely used video editing software among YouTubers, Filmora provides lots of templates and effects which allows you to edit faster and better.
@@ -386,6 +393,13 @@ YouTube will not review your monetization application until you’ve met their e
 
 Not all videos can be monetized. While there are legal ways to create videos consisting of imagery and footage belonging to others, be aware that such videos are not always eligible for monetization. YouTube will only monetize videos that you own. So, posting videos which do not belong to you or which include copyrighted content can cause your monetization application to be declined.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Linking Your Bank Account To Your AdSense Account
 
 AdSense offers a variety of payment options including mailed checks and Western Union transfers. However, these options may not be available to you depending on where you’re based. AdSense does make payments through electronic wire transfer (EFT – Electronic funds transfer) to virtually every country in the world, and this is the preferred payment option for most people.
@@ -406,13 +420,6 @@ Here’s a step-by-step guide for linking your bank account to your AdSense acco
    4. _Bank SWIFT code_  
    5. _Depending on where you are based, additional information may be required._
 1. Ensure that the name on your AdSense account matches the name on the bank account you provide. To edit your AdSense name, click the ‘Manage settings’ button also on the Payments page.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Receiving Payments
 
@@ -510,93 +517,11 @@ As long as your account meets these eligibility standards, then you can go over 
 Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
-
-After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
-
-Who read this article also read:
-
-[Good YouTube Names Generators + How to Brainstorm>>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[How to Make a YouTube Subscribe Link - Easy!>>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
-
-## Types of YouTube Channel URL
-
-**ID-based URL**
-
-YouTube channel URL of this type is based on your channel ID, which consists of numbers and letters. This is the URL of the universal form. For example, "youtube.com/channel/specific YouTube channel ID".
-
-You can **find the YouTube channel URL** of this kind by the following steps.
-
-1. Sign in to Youtube.com and click on your profile icon.
-2. Select Your Channel.
-3. Find the URL on the address bar of your browser. This is exactly the ID-based URL or the standard URL of your channel.
-
-**Legacy username URL**
-
-Legacy username URL was used by YouTube in the past. If you created your channel in the early days of YouTube, the URL for your channel might contain the username at the end. Although YouTube doesn't apply username to forming channel URL anymore, you can still use this URL to direct to Your channel. But you should note that the exiting username can't be changed even if you have changed your channel name. For example, "youtube.com/channel/specific YouTube channel ID".
-
-You can share the short form of the username URL with the "**/user**" being left out, such as "youtube.com/specific YouTube channel ID". But this may not be available if someone claimed to a custom URL whose short form is the same with the short form of your username URL.
-
-**Custom URL**
-
-This is a shorter and more easy-to-remember URL that is generated on the basis of your current display name, legacy username, or your linked and verified domain. You can claim for the custom URL if your channel meets certain qualifications.
-
-The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## **How to Get a Custom URL for your YouTube Channel**
-
-To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
-
-* Be at least 30 days old
-* Have at least 100 subscribers
-* Use a photo for the channel icon
-* Have uploaded channel art
-
-As long as your account meets these eligibility standards, then you can go over the following steps to claim a custom URL for your YouTube channel.
-
-   1. Start by signing into YouTube.
-   2. Click on your profile image on the top right of the screen.
-   3. Find the "settings" and click on it.
-   4. Select "Advanced settings".
-   5. Click on the link anchored with the word "here".
-   6. The "Get a custom URL" box will then pop out. You can select one from the approved options. You may need to add a suffix to make the URL of your channel to be unique.
-   7. Read the "Terms of use" carefully and then click on the **change URL**.
-
-Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
 
 ## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
 
@@ -673,6 +598,13 @@ As long as your account meets these eligibility standards, then you can go over 
 
 Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
 
 After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
@@ -689,12 +621,80 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+In order to properly market your page on YouTube for sharing across social media, it is essential that you find your YouTube channel URL. How else can you share your channel? In this article, we are trying to give you a thorough understanding of the YouTube Channel URL and tell you how to get the custom channel URL.
+
+## Types of YouTube Channel URL
+
+**ID-based URL**
+
+YouTube channel URL of this type is based on your channel ID, which consists of numbers and letters. This is the URL of the universal form. For example, "youtube.com/channel/specific YouTube channel ID".
+
+You can **find the YouTube channel URL** of this kind by the following steps.
+
+1. Sign in to Youtube.com and click on your profile icon.
+2. Select Your Channel.
+3. Find the URL on the address bar of your browser. This is exactly the ID-based URL or the standard URL of your channel.
+
+**Legacy username URL**
+
+Legacy username URL was used by YouTube in the past. If you created your channel in the early days of YouTube, the URL for your channel might contain the username at the end. Although YouTube doesn't apply username to forming channel URL anymore, you can still use this URL to direct to Your channel. But you should note that the exiting username can't be changed even if you have changed your channel name. For example, "youtube.com/channel/specific YouTube channel ID".
+
+You can share the short form of the username URL with the "**/user**" being left out, such as "youtube.com/specific YouTube channel ID". But this may not be available if someone claimed to a custom URL whose short form is the same with the short form of your username URL.
+
+**Custom URL**
+
+This is a shorter and more easy-to-remember URL that is generated on the basis of your current display name, legacy username, or your linked and verified domain. You can claim for the custom URL if your channel meets certain qualifications.
+
+The custom URL looks like this, "youtube.com/c/display name, legacy username, or your linked and verified domain". You can also share this URL in its shorter form by leaving out the "**/c**", for example, "youtube.com/customed part".
+
+## **How to Get a Custom URL for your YouTube Channel**
+
+To qualify for a custom URL – one which includes your channel name instead of a random sequence of letters, your channel needs to meet the following standards.
+
+* Be at least 30 days old
+* Have at least 100 subscribers
+* Use a photo for the channel icon
+* Have uploaded channel art
+
+As long as your account meets these eligibility standards, then you can go over the following steps to claim a custom URL for your YouTube channel.
+
+   1. Start by signing into YouTube.
+   2. Click on your profile image on the top right of the screen.
+   3. Find the "settings" and click on it.
+   4. Select "Advanced settings".
+   5. Click on the link anchored with the word "here".
+   6. The "Get a custom URL" box will then pop out. You can select one from the approved options. You may need to add a suffix to make the URL of your channel to be unique.
+   7. Read the "Terms of use" carefully and then click on the **change URL**.
+
+Custom YouTube channel URLs are easier for your fans to remember, but once you have one, you can never change it. Your existing subscribers will automatically redirect to your new URL if they try to get to your channel through the old URL.
+
+## Where to Find Your **Custom URL Once You Successfully Claimed for It?**
+
+After you successfully get the custom URL, you may want to know where you can find the custom URL and therefore you can share it anywhere you like. The way to find your custom URL is exactly the same as how you created it. You can get back to the "Advanced settings" by following the above-mentioned steps. You'll find the custom URL lies right there under your user ID and channel ID.
+
+Who read this article also read:
+
+[Good YouTube Names Generators + How to Brainstorm>>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[How to Make a YouTube Subscribe Link - Easy!>>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -792,17 +792,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-complete-blueprint-integrating-real-time-video-on-sites/"><u>[New] 2024 Approved The Complete Blueprint Integrating Real-Time Video on Sites</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-a-novices-choice-ideal-game-recording-and-editing-tools-for-2024/"><u>[Updated] A Novice’s Choice Ideal Game Recording & Editing Tools for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-professional-fb-ad-videos-made-simple-free-kit-included/"><u>[Updated] Professional FB Ad Videos Made Simple – Free Kit Included</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-live-stream-your-google-meet-on-youtube-for-2024/"><u>[Updated] Step-By-Step Guide to Live Stream Your Google Meet on YouTube for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-top-picks-the-most-advanced-online-mic-recorders-of-23/"><u>[Updated] Top Picks The Most Advanced Online Mic Recorders of '23</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-dj-delight-choosing-ultimate-event-videos/"><u>2024 Approved DJ Delight Choosing Ultimate Event Videos</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-no-expense-required-remove-coffee-stains-from-iphone-photos/"><u>2024 Approved No Expense Required Remove Coffee Stains From iPhone Photos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-start-promoting-smart-a-beginners-guide-to-using-telegram/"><u>2024 Approved Start Promoting Smart A Beginner's Guide to Using Telegram</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easily-update-your-pc-free-realtek-wireless-network-adapter-driver-for-win10/"><u>Easily Update Your PC: Free Realtek Wireless Network Adapter Driver for Win10</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/select-8-dynamic-backgrounds-for-your-mbp-for-2024/"><u>Select 8 Dynamic Backgrounds for Your MBP for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/strategic-use-of-hashtags-in-gaming-vlog-production/"><u>Strategic Use of Hashtags in Gaming Vlog Production</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-youtube-editing-a-compreenasive-guidebook/"><u>The Art of YouTube Editing A Compreenasive Guidebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-the-art-of-powerpoint-presentation-video-documentation-for-2024/"><u>[New] Mastering the Art of PowerPoint Presentation Video Documentation for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-screen-captures-in-firefox-land/"><u>[New] Top Screen Captures in Firefox Land</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tips-to-triple-your-instagram-video-viewers/"><u>[Updated] 2024 Approved Tips to Triple Your Instagram Video Viewers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-popularity-boost-mastering-the-25-essential-hashtags-for-2024/"><u>[Updated] Insta-Popularity Boost Mastering the 25 Essential Hashtags for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/10-best-youtube-makeup-artists-you-must-have-heard/"><u>10 Best YouTube Makeup Artists You Must Have Heard</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/connect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires/"><u>Connect With Creators Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-dimensions-the-key-to-perfect-aspect-ratios-in-video/"><u>Decoding Dimensions The Key to Perfect Aspect Ratios in Video</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-downloading-videos-directly-to-iphoneipad-youtubes-quick-guide/"><u>In 2024, Downloading Videos Directly to iPhone/iPad - YouTube's Quick Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-luxury-sedan-sj4000s-best-kept-secrets-gear-up/"><u>In 2024, Luxury Sedan SJ4000's Best-Kept Secrets Gear Up</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/pro-tips-for-utilizing-green-screen-effects-professionally/"><u>Pro Tips for Utilizing Green Screen Effects Professionally</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-the-secrets-of-sonys-exclusive-ps5-game-catalogue/"><u>Unlocking the Secrets of Sony's Exclusive PS5 Game Catalogue</u></a></li>
 </ul></div>
 

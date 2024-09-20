@@ -1,7 +1,7 @@
 ---
 title: "\"Youtube Broadcasts Made Simple  An Easy-to-Follow OBS Guide\""
-date: 2024-09-14T02:07:42.926Z
-updated: 2024-09-15T10:31:50.725Z
+date: 2024-09-16T11:00:10.131Z
+updated: 2024-09-20T02:10:30.893Z
 tags:
   - ai video
   - ai youtube
@@ -248,13 +248,6 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![add you scenes ](https://images.wondershare.com/filmora/article-images/add-you-scenes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 5:** Once all these settings are done then you can simply hit the option for start streaming and it will bring your content to YouTube directly.
 
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
@@ -412,6 +405,13 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
 ![ advance setting](https://images.wondershare.com/filmora/article-images/advance-setting.jpg)
@@ -475,6 +475,13 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Now hot the steam now option on your screen.
 
 ![stream now ](https://images.wondershare.com/filmora/article-images/stream-now.jpg)
@@ -529,13 +536,6 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![ Go to setting](https://images.wondershare.com/filmora/article-images/go-to-setting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
@@ -547,6 +547,13 @@ As soon as you have completed the above set up then next task is to adjust setti
 **Step 5:** Once all these settings are done then you can simply hit the option for start streaming and it will bring your content to YouTube directly.
 
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Youtube Events set up
 
@@ -643,6 +650,13 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -758,13 +772,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -820,19 +827,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
@@ -853,16 +847,16 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -990,18 +984,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-best-practices-selecting-among-top-9-free-logo-designers/"><u>[Updated] Best Practices Selecting Among Top 9 Free Logo Designers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-obs-or-streamlabs-experts-take-on-best-live-broadcast-software-for-2024/"><u>[Updated] OBS or Streamlabs? Expert's Take on Best Live Broadcast Software for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-snap-edit-and-share-spectacularly-on-tiktok-with-themes-for-2024/"><u>[Updated] Snap, Edit & Share Spectacularly on TikTok with Themes for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-best-podcast-apps-for-android/"><u>2024 Approved Best Podcast Apps for Android</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-demystifying-creator-studio-a-practical-handbook/"><u>2024 Approved Demystifying Creator Studio A Practical Handbook</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/capture-the-magic-of-moonlight-iphonely-for-2024/"><u>Capture the Magic of Moonlight iPhonely for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/demystifying-the-process-of-writing-youtube-video-content/"><u>Demystifying the Process of Writing YouTube Video Content</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-resolve-apple-watchs-inability-to-record-your-daily-steps/"><u>How to Resolve Apple Watch's Inability to Record Your Daily Steps?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-beginners-guide-to-video-making-mastering-10-straightforward-youtube-concepts/"><u>In 2024, Beginner's Guide to Video Making Mastering 10 Straightforward YouTube Concepts</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-apple-iphone-13-pro-max-activation-lock-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone 13 Pro Max Activation Lock</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-nokia-g42-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Nokia G42 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-showdown-apple-tv-4k-versus-roku-ultra-features-and-performance/"><u>Ultimate Showdown: Apple TV 4K versus Roku Ultra – Features & Performance</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-captivating-crafting-writing-intriguing-youtube-descriptions-with-templates/"><u>[New] Captivating Crafting Writing Intriguing Youtube Descriptions with Templates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-seamless-multi-environment-broadcasting-mastery-of-color-key-techniques/"><u>[New] In 2024, Seamless Multi-Environment Broadcasting Mastery of Color Key Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-rewind-revolution-novel-strategies-for-youtube-viewers/"><u>[New] The Rewind Revolution Novel Strategies for YouTube Viewers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boosting-traffic-with-smart-youtube-title-and-tag-use/"><u>[Updated] Boosting Traffic with Smart YouTube Title & Tag Use</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-essential-stop-motion-movies-you-cant-miss/"><u>[Updated] In 2024, Essential Stop-Motion Movies You Can't Miss</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-game-14-must-see-vids-for-youtube-gaming-success/"><u>Elevate Your Game 14 Must-See Vids for YouTube Gaming Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-8-tools-linux-based-edits-software/"><u>In 2024, Essential 8 Tools Linux-Based Edits Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-seamless-screen-capture-software-w10-edition/"><u>In 2024, Seamless Screen Capture Software, W10 Edition</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/influencing-audiences-with-short-form-videos/"><u>Influencing Audiences with Short-Form Videos</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-no-sound-problems-in-your-twitch-livestreams-effectively/"><u>Resolving No-Sound Problems in Your Twitch Livestreams Effectively</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/shrink-your-videos-10-free-online-compressors-with-no-installation/"><u>Shrink Your Videos 10 Free Online Compressors with No Installation</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/strategies-for-securing-an-original-tiktok-hashtag-for-2024/"><u>Strategies for Securing an Original TikTok Hashtag for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/strategies-in-tagging-and-titling-videos-for-success/"><u>Strategies in Tagging and Titling Videos for Success</u></a></li>
 </ul></div>
 

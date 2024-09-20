@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Apple iPhone SE (2020): An Affordable Alternative"
-date: 2024-09-09T18:11:18.715Z
-updated: 2024-09-15T04:07:55.737Z
+date: 2024-09-18T16:07:07.492Z
+updated: 2024-09-20T07:07:08.948Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Apple iPhone SE (2020): An Affordable Alternative"
@@ -98,13 +98,6 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Great for a mid-range handset**
 
  The Nokia 7.1 isn’t a powerhouse, but it offers great performance compared to a lot of other mid-range handsets. It features the Snapdragon 636 processor, Adreno 509 GPU, and 4GB of RAM, which is pretty good for a mid-range device like this.
@@ -129,13 +122,6 @@ Lifewire / Jordan Provost
 
  Despite these connectivity problems, we were still able to stream YouTube videos and music from Google Play over the data connection.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Display Quality: HDR quality with a chunky notch**
 
  The Nokia 7.1 has a 5.84-inch screen with a resolution of 2160 x 1090, laid out as a tall, narrow display with an aspect ratio of 19:9\. It has a chunky notch at the top for the front-facing camera and pleasantly rounded edges. The viewing angles are excellent, and the screen is bright enough to see in direct sunlight.
@@ -148,6 +134,13 @@ Lifewire / Jordan Provost
 
  The only problem with the Nokia 7.1’s display is that the color temperature is extremely cool. If you hold it next to any similar phone, you’ll notice a somewhat bluish tinge. The phone does include a “night mode” feature that tints the display in increasingly strong shades of amber after the sun goes down, which can help with eye strain at night. But if you’re sensitive to blue light, you may have trouble with this display.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Sound Quality: Loud, no distortion, but a lack of bass response**
 
  At the bottom of the Nokia 7.1’s aluminum body, you’ll find the microphone, a USB-C port, and two small rectangular cutouts. That’s where the sound comes from, and despite there being two cutouts, it’s all provided by a single driver.
@@ -155,13 +148,6 @@ Lifewire / Jordan Provost
  The Nokia 7.1 isn’t a powerhouse, but it offers great performance compared to a lot of other mid-range handsets.
 
  The speaker is serviceable, and we didn’t notice too much distortion when streaming music at high volumes. There is very little bass response though, even compared to other mid-range handsets. The speaker is there if you need it, but you’ll want to plug in headphones or use an external speaker whenever possible. The Nokia 7.1 does includes a headphone jack, located on the top edge of the device, and comes with a pair of earbuds in the box.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Camera/Video Quality: Surprisingly competent camera**
 
@@ -173,9 +159,23 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire
 
@@ -197,6 +197,13 @@ Lifewire
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/cD8xK_vs2o2eQxdv-D11RS_1jhE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_5-e19cf3cd1c1f41f69279dbbcf965caf3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
  If you’re a heavier user, you may need to find a charger at some point during the day, but even lighter users would be well advised to plug in at night. You’re unlikely to get multiple days out of a single charge unless you barely use the device at all.
@@ -215,13 +222,6 @@ Lifewire
 
  The Nokia 7.1 is a mid-range handset in terms of price, but it packs a lot of features that you’d expect from a much more expensive phone. It retails for $349 which, in the world of ever-expanding handset price tags, almost borders on the budget category. For what you get in terms of style, specifications, and features, that’s a pretty good deal.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: Stacks up well against the competition**
 
  The Nokia 7.1 has specs and performance that are more or less in line with flagship phones from the recent past and stacks up very favorably against contemporary mid-range phones. For example, the Motorola One retails at $399 and has a lower resolution display, a less competent camera, and an older, slower processor.
@@ -239,16 +239,10 @@ Lifewire
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -292,21 +286,20 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-editors-edge-advanced-techniques-for-youtube-creations/"><u>[New] 2024 Approved The Editor's Edge Advanced Techniques for YouTube Creations</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-enhancing-youtube-presence-creating-professional-thumbnails-from-smartphones/"><u>[New] Enhancing YouTube Presence Creating Professional Thumbnails From Smartphones</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-videotwitter-audible-direct-download/"><u>[New] In 2024, VideoTwitter Audible Direct Download</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-snapseed-101-basic-editing-techniques-unveiled/"><u>[New] Snapseed 101 Basic Editing Techniques Unveiled</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-common-issues-with-youtube-shorts-thumbnails/"><u>[Updated] Common Issues with YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-video-recording-extraordinaire-top-3-smartphones-of-the-year-for-2024/"><u>[Updated] Video Recording Extraordinaire Top 3 Smartphones of the Year for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/dvd-to-video-conversion-made-easy-free-winx-ripper-tool-for-ios-and-android-devices-in-mp4-avi-formats/"><u>DVD to Video Conversion Made Easy: Free WinX Ripper Tool for iOS and Android Devices in MP4 AVI Formats</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-on-your-iphone-15-plus-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID On your iPhone 15 Plus without Security Questions?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-animated-text-that-jumps-master-class-with-easy-steps/"><u>In 2024, Animated Text That Jumps Master Class with Easy Steps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-boosting-your-yt-subs-a-complete-strategy-guide/"><u>In 2024, Boosting Your YT Subs A Complete Strategy Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-insights-for-integrating-hashtags-into-game-focused-yt-content/"><u>In 2024, Essential Insights for Integrating Hashtags Into Game-Focused YT Content</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/lenovo-tab-p11-pro-assessment-impressive-features-overshadowed-by-flaws/"><u>Lenovo Tab P11 Pro Assessment - Impressive Features Overshadowed by Flaws</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/recording-youtube-videos-effortlessly-the-free-way-to-screencasts/"><u>Recording YouTube Videos Effortlessly - The Free Way to Screencasts</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-powerhouses-of-social-media-a-deep-dive-into-facebook-twitter-instagram-and-youtube/"><u>The Powerhouses of Social Media: A Deep Dive Into Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-right-way-to-pick-spiritual-phone-tunes-for-2024/"><u>The Right Way to Pick Spiritual Phone Tunes for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-premier-productions-first-impression/"><u>[New] 2024 Approved Premier Productions First Impression</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/rafting-the-ideal-youtube-playlist-an-easy-step-by-step-method-for-2024/"><u>[New] Crafting the Ideal YouTube Playlist An Easy, Step-by-Step Method for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-soundtweetify-quick-audible-maker/"><u>[Updated] 2024 Approved SoundTweetify Quick Audible Maker</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-aligning-spotify-selections-for-a-unified-youtube-music-experience/"><u>[Updated] Aligning Spotify Selections for a Unified YouTube Music Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-bridal-bliss-filmed-alike-high-quality-8-marriage-videos-online/"><u>[Updated] Bridal Bliss Filmed Alike High-Quality 8 Marriage Videos Online</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-hashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[Updated] Hashtag Heroes The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-discovery-the-key-to-effective-video-titling/"><u>[Updated] Streamlining Discovery The Key to Effective Video Titling</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-borrow-without-cost-images-from-leading-youtubers-archives/"><u>2024 Approved Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-how-to-edit-the-length-of-a-video-on-youtube/"><u>2024 Approved How to Edit the Length of a Video on YouTube</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/gamers-guide-to-selecting-the-ideal-iphone-model/"><u>Gamers' Guide to Selecting the Ideal iPhone Model</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-through-memory-diagnostic-failures/"><u>Navigating Through Memory Diagnostic Failures</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/professional-shooters-guide-to-stability/"><u>Professional Shooters' Guide to Stability</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016262454-quick-fixes-for-playstation-vita-audio-glitches-tips-and-tricks/"><u>Quick Fixes for PlayStation Vita Audio Glitches - Tips & Tricks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-honor-magic-v2-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Honor Magic V2 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/thriving-in-the-freefire-arena-with-pro-gamers-guide/"><u>Thriving in the FreeFire Arena with Pro Gamers' Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Utilizing Continuous Lights for Comfortable Filming"
-date: 2024-09-10T23:28:08.917Z
-updated: 2024-09-15T05:40:44.618Z
+date: 2024-09-15T06:36:07.161Z
+updated: 2024-09-20T13:52:07.237Z
 tags:
   - ai video
   - ai youtube
@@ -254,7 +254,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -282,13 +296,6 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -300,6 +307,19 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -345,13 +365,6 @@ Part 2: [ViewSync](#step2)
 
 Part 3: [WonderShare Filmora](#step3)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: YouTube Multistream
 
 YouTube Multistream is a free service that quite effectively simplifies things for you and allows you to watch live streams or play up to 4 videos at the same time. Below are the steps you need to follow in order to play videos simultaneously.
@@ -381,6 +394,13 @@ After copying and pasting the links of the YouTube videos, click on ‘Confirm�
 ![Play What You Like](https://images.wondershare.com/filmora/article-images/2021/watch-multiple-youtube-videos-3.gif)
 
 It is up to you if you want to stream 2, 3, or 4 videos at the same time and you can play or pause them at any time. It is also helpful if you want to overlap audio of different instruments just for fun or you can stream your favorite games along with any e-sport competition and add in some music to make the environment lively.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: ViewSync
 
@@ -415,13 +435,6 @@ After adjusting the audio cues, click Test Audio and it will play the audio for 
 ## Step 5: Generate Link
 
 Click on the ViewSync! button and it will generate a final ViewSync link for you where you can watch the finalized and synced videos. Copy and paste the link in your browser.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Step 6: Buffer the videos
 
@@ -471,6 +484,13 @@ Part 2: [ViewSync](#step2)
 
 Part 3: [WonderShare Filmora](#step3)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: YouTube Multistream
 
 YouTube Multistream is a free service that quite effectively simplifies things for you and allows you to watch live streams or play up to 4 videos at the same time. Below are the steps you need to follow in order to play videos simultaneously.
@@ -515,13 +535,6 @@ Open ViewSync using the link:
 
 ![Open ViewSync](https://images.wondershare.com/filmora/article-images/2021/watch-multiple-youtube-videos-4.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Step 2: Input Links
 
 Click the + icon and paste the link to the YouTube video you want to watch. Repeat the process and add as many links to YouTube videos as you desire to watch.
@@ -537,19 +550,6 @@ After adding the links, if the videos share the same audio voice, you can adjust
 ## Step 4: Test Audio
 
 After adjusting the audio cues, click Test Audio and it will play the audio for you so you can make sure it is perfectly in sync.
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Step 5: Generate Link
 
@@ -826,14 +826,19 @@ You can now sync audio and create a realistic moment as if you are sitting among
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-step-by-step-process-for-iptv-stream-imaging/"><u>[New] In 2024, Step-by-Step Process for IPTV Stream Imaging</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-accelerated-record-functionality-and-narrator-support-for-2024/"><u>[Updated] Accelerated Record Functionality & Narrator Support for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-clear-visuals-ahead-mastering-your-logitech-webcams-capabilities/"><u>2024 Approved Clear Visuals Ahead Mastering Your Logitech Webcam's Capabilities</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-iphone-15-pro-max-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve iPhone 15 Pro Max Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/dynamic-lighting-feature-available-on-logitech-accessories-with-windows-11/"><u>Dynamic Lighting Feature Available on Logitech Accessories with Windows 11</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-10-best-web-based-tools-for-clearing-up-fuzzy-images/"><u>In 2024, 10 Best Web-Based Tools for Clearing Up Fuzzy Images</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-can-you-lawfully-archive-youtube-content/"><u>In 2024, Can You Lawfully Archive YouTube Content?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>In 2024, Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-your-freefire-presence-with-top-tips-and-tricks/"><u>In 2024, Elevate Your FreeFire Presence with Top Tips and Tricks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-beyond-reality-the-top-10-sci-fi-movies-with-metaverse-travels-for-2024/"><u>[New] Beyond Reality The Top 10 Sci-Fi Movies with Metaverse Travels for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-earning-potential-in-gaming-videos/"><u>[Updated] Earning Potential in Gaming Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-of-selecting-podcasts-for-iphone-devices-for-2024/"><u>[Updated] The Art of Selecting Podcasts for iPhone Devices for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevating-your-youtube-stream-the-wirecast-way/"><u>2024 Approved Elevating Your YouTube Stream The WireCast Way</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-essential-insights-into-youtube-live-image-crafting/"><u>2024 Approved Essential Insights Into YouTube Live Image Crafting</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028277156-google/"><u>Google検索に最適化された、ユーザー設定のパラメータをプロファイリングして記録可能な方法</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-what-every-user-should-know-about-facebooks-latest-shift/"><u>In 2024, What Every User Should Know About Facebook's Latest Shift</u></a></li>
+<li><a href="https://win11.techidaily.com/intro-to-windows-accessibility-must-know-tips/"><u>Intro to Windows Accessibility: Must-Know Tips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/make-every-sound-count-comprehensive-guide-to-free-youtube-video-transcriptions/"><u>Make Every Sound Count Comprehensive Guide to Free YouTube Video Transcriptions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transform-your-channels-with-any-of-the-top-11-budget-friendly-naming-solutions/"><u>Transform Your Channels With Any of the Top 11 Budget-Friendly Naming Solutions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/turning-beauty-blogging-into-cash/"><u>Turning Beauty Blogging Into Cash</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-how-to-remove-audio-from-mp4/"><u>Updated In 2024, How to Remove Audio From MP4</u></a></li>
 </ul></div>
 

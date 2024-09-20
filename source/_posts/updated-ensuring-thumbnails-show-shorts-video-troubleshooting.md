@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Ensuring Thumbnails Show  Shorts Video Troubleshooting\""
-date: 2024-09-09T04:30:09.441Z
-updated: 2024-09-15T10:53:41.724Z
+date: 2024-09-16T06:23:37.777Z
+updated: 2024-09-20T06:43:42.884Z
 tags:
   - ai video
   - ai youtube
@@ -85,13 +85,6 @@ The best thing is that you don't need to transfer the video from your phone to y
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -111,10 +104,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Pause the video.
@@ -130,10 +123,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### On a Mobile Phone
@@ -147,10 +140,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Tap "Library"
@@ -209,6 +202,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -218,13 +218,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -279,6 +272,13 @@ Do you wonder how to turn on **AV1 settings on YouTube**? For your information, 
 ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Why choose AV1 over VP9 and other formats?
 
@@ -351,18 +351,20 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-quickly-speed-up-or-decelerate-videos-for-peak-engagement/"><u>[Updated] 2024 Approved Quickly Speed Up or Decelerate Videos for Peak Engagement</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-boost-traffic-with-these-essential-hashtags-for-youtube-gamers-for-2024/"><u>[Updated] Boost Traffic with These Essential Hashtags for YouTube Gamers for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-power-of-tags-boost-traffic-with-top-genres-and-keywords/"><u>[Updated] The Power of Tags Boost Traffic with Top Genres & Keywords</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-twittomp4maker-social-streaming-solution-for-2024/"><u>[Updated] TwitToMP4Maker Social Streaming Solution for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-beginners-guide-to-making-money-on-youtubers/"><u>[Updated] Your Beginner's Guide to Making Money on YouTubers</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/comprehensive-guide-creating-burning-playing-and-converting-dvds/"><u>Comprehensive Guide: Creating, Burning, Playing & Converting DVDs</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/filmmakers-choice-for-steady-videos/"><u>Filmmaker's Choice for Steady Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/iphone-android-which-has-the-better-youtube-experience/"><u>IPhone, Android Which Has the Better YouTube Experience?</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/optimal-android-launcher-experience-on-large-smartphones-why-niagara-excels/"><u>Optimal Android Launcher Experience on Large Smartphones: Why Niagara Excels</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/tesla-robotaxi-news-and-expected-price-release-date-specs-and-more-rumors/"><u>Tesla Robotaxi: News and Expected Price, Release Date, Specs; and More Rumors</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1722106616067-transform-your-ai-interactions-with-these-7-ingenious-prompt-techniques-that-work/"><u>Transform Your AI Interactions with These 7 Ingenious Prompt Techniques That Work</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unleash-the-full-potential-of-youtube-with-variable-playback-rates/"><u>Unleash the Full Potential of YouTube With Variable Playback Rates</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/your-first-steps-in-online-broadcasting-via-obs/"><u>Your First Steps in Online Broadcasting via OBS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instagram-stories-harmonizing-photos-for-maximum-impact/"><u>[New] 2024 Approved Instagram Stories Harmonizing Photos for Maximum Impact</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-beginners-guide-top-10-easy-to-fly-drones/"><u>[New] Beginner's Guide Top 10 Easy-to-Fly Drones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[New] Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-channel-ownership-and-revenue-with-2024-ytp-plan/"><u>[New] Channel Ownership & Revenue with 2024 YTP Plan</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-avoiding-youtubes-controversial-scrutiny/"><u>[Updated] Avoiding YouTube's Controversial Scrutiny</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-how-to-stream-on-discord/"><u>[Updated] In 2024, How to Stream on Discord</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/balancing-frequency-and-quality-in-youtube-video-uploads/"><u>Balancing Frequency & Quality in YouTube Video Uploads</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comprehensive-approach-to-unhandled-exception-in-windows-apps/"><u>Comprehensive Approach to Unhandled Exception in Windows Apps</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hassle-free-driver-updates-for-windows-a-simple-guide/"><u>Hassle-Free Driver Updates for Windows: A Simple Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-xiaomi-redmi-a2plus-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Xiaomi Redmi A2+ Phones? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-realme-narzo-60x-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Realme Narzo 60x 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-beginners-essential-guide-to-youtube-video-editing-magic/"><u>In 2024, Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-personality-complimentary-youtube-graphics/"><u>In 2024, Channel Personality Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/integrate-twitch-and-youtube-a-streaming-blueprint/"><u>Integrate Twitch and YouTube - A Streaming Blueprint</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-from-raw-footage-to-hit-vids-a-step-by-step-guide-for-editors/"><u>New In 2024, From Raw Footage to Hit Vids A Step-by-Step Guide for Editors</u></a></li>
 </ul></div>
 

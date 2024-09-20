@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enlightening Your YouTube Footage with Proper Lighting"
-date: 2024-09-09T09:46:24.629Z
-updated: 2024-09-15T05:23:34.985Z
+date: 2024-09-14T10:30:55.818Z
+updated: 2024-09-20T00:29:37.348Z
 tags:
   - ai video
   - ai youtube
@@ -221,13 +221,6 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
@@ -316,6 +309,13 @@ Notice how the color of Daniel's skin looks much more orange here (above) than t
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
@@ -415,13 +415,6 @@ Filmstock is a platform offering free and paid editable templates for content cr
 
 ![filmstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/filmstock-news-outros-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Filmora is a popular video editor with a built-in filmstock library offering hundreds of non-copyright editable templates for every occasion. With the software, you can find and add your [news style outros](https://filmstock.wondershare.com/p/news-report-pack.html) to your videos with just a few clicks. The only disadvantage is that it isn't completely free. The paid version offers two options: A standard plan that costs **$9.99** per month and a Premium plan that will cost you **$49.99** per month.
 
 You can also find detailed video tutorials to facilitate your video creation through [Filmora](https://www.youtube.com/c/FilmoraWondershare) and [Filmstock's](https://www.youtube.com/c/WondershareFilmstock) official YouTube Channels, as well as video sources set presentation on the two channels. Here is an example of News Set video on Filmora's YouTube Channel. Go to watch it and check are there any ideal news outro!
@@ -478,13 +471,6 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
 
 ##### Videezy
@@ -530,10 +516,10 @@ Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** optio
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
@@ -553,6 +539,13 @@ Hopefully, you find this guide informative and can now create strong news style 
 [Canva](https://www.canva.com/search/templates?q=News%20Style%20Outros) is a user-friendly graphic design free and paid tool that is quickly becoming a popular choice for businesses of all sizes. Canva offers a range of templates for creating professional-looking designs.
 
 ![canva news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/canva-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With a wide range of templates to choose from, you can easily find one that fits your needs and style. Best of all, you can create your outro template in minutes without hiring a designer or spending hours learning complex design software.
 
@@ -588,6 +581,13 @@ Searching for high-quality templates for your next project?[Storyblock](https://
 
 ![storyblock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/storyblock-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can use these templates to create high-quality news intros and outros for your podcast or videos. The platform offers two pricing plans for individual content creators, starting at **$15** per month. While businesses can customize their plans as per their requirements.
 
 Limitations of the Storyblock are that the footage quality is very poor in the free version, and the paid versions might be tricky to avail sometimes.
@@ -597,19 +597,6 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 [Videvo](https://www.videvo.net/search/news%20outros/) is a great resource for anyone looking for royalty-free video templates. They have over 300,000 free and premium videos, which you can download in clips or full with 4K resolution. However, their stock library is not much vast. The platform comes with a two-tier subscription plan starting from **$14.99/month** or **$144/year.**
 
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
 
@@ -655,6 +642,13 @@ Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** optio
 
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
@@ -682,21 +676,15 @@ Hopefully, you find this guide informative and can now create strong news style 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-screen-recording-software-list-for-vloggers/"><u>[New] Essential Screen Recording Software List for Vloggers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-download-fb-content-windows-and-mac-guide/"><u>[Updated] 2024 Approved Download FB Content Windows & Mac Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-captivate-audiences-techniques-for-livestreaming-video-in-spherical-views-on-youtube/"><u>[Updated] Captivate Audiences Techniques for Livestreaming Video in Spherical Views on YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-from-broadcast-to-box-viewing-facebook-streams-on-roku/"><u>[Updated] From Broadcast to Box Viewing Facebook Streams on Roku</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-engaging-youtube-videos-using-finalcut-pro-expertise/"><u>2024 Approved Crafting Engaging YouTube Videos Using FinalCut Pro Expertise</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-effortless-resolution-of-macs-green-screen-problem-for-youtubers/"><u>2024 Approved Effortless Resolution of Mac's Green Screen Problem for YouTubers</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-logitech-mk710-mouse-software-latest-driver-installation-guide/"><u>Free Logitech MK710 Mouse Software: Latest Driver Installation Guide</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-iphone-xr-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On iPhone XR If Youve Tried Everything</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-step-by-step-guide-to-seeing-whos-watching/"><u>In 2024, A Step-by-Step Guide to Seeing Who's Watching</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-professional-screenshot-taker-apowersoft-screen-recorder/"><u>In 2024, Professional Screenshot Taker Apowersoft Screen Recorder</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/navigating-youtube-shorts-thumbnail-losses/"><u>Navigating YouTube Shorts Thumbnail Losses</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/overcoming-technical-glitches-paramountplus-working-flawlessly-on-a-fire-tv-stick/"><u>Overcoming Technical Glitches: Paramount+ Working Flawlessly on a Fire TV Stick</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-updating-your-canon-pixma-printer-drivers-with-speed-and-simplicity/"><u>Step-by-Step Guide: Updating Your Canon PIXMA Printer Drivers with Speed and Simplicity</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/subscribing-to-youtube-tv-here-are-five-significant-perks/"><u>Subscribing to YouTube TV? Here Are Five Significant Perks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/top-fifa-matches-visualized-data-highlights/"><u>Top FIFA Matches Visualized Data Highlights</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-detailed-methods-for-seamless-wirecast-livestreams-on-youtube/"><u>[New] Detailed Methods for Seamless WireCast Livestreams on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unlocking-creative-edits-your-guide-to-snapchat-photos/"><u>[Updated] 2024 Approved Unlocking Creative Edits Your Guide to Snapchat Photos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1716069879706-updated-in-2024-capturing-screens-with-internal-recorder-on-mate-1020-and-p-series-p20-p10-smartphones/"><u>[Updated] In 2024, Capturing Screens with Internal Recorder on Mate 10/20 & P Series (P20, P10) Smartphones.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-bend-the-light-homegrown-animated-innovations/"><u>2024 Approved Bend the Light Homegrown Animated Innovations</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-picturemeld-pro/"><u>2024 Approved PictureMeld Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-tecno-pova-5-pro-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Tecno Pova 5 Pro FRP</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-motorola-razr-40-ultra-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Motorola Razr 40 Ultra Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-avs-video-editor-review-features-pricing-and-performance/"><u>New AVS Video Editor Review Features, Pricing, and Performance</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-guide-to-swift-youtube-discussion-management/"><u>The Ultimate Guide to Swift Youtube Discussion Management</u></a></li>
 </ul></div>
 
