@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Apple iPhone SE (2020): An Affordable Alternative"
-date: 2024-09-24T16:12:12.205Z
-updated: 2024-09-26T16:21:45.475Z
+date: 2024-09-28T16:32:50.544Z
+updated: 2024-10-01T16:27:14.120Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Apple iPhone SE (2020): An Affordable Alternative"
@@ -38,16 +38,16 @@ Lifewire / Jordan Provost
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nokia 7.1
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/FPdNqEjtI6f1tbMbciesCKN2pRQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_hero-14043634662d46998584bb21b3d7becd.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Jordan Provost
 
@@ -87,19 +87,6 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/1cMJEwjyd7B1WxBO7uBZOm0C2So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_3-483bfb6a868848adaaf021846b9fb559.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
  The buttons are all located on the right side of the device, and they feature the same chamfered shape as the main body of the phone. The positioning of the buttons makes them easy to hit with your index finger when you hold the device in your left hand, or with your thumb if you hold it in your right.
@@ -110,18 +97,18 @@ Lifewire / Jordan Provost
 
  Lifewire / Jordan Provost
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Requires updates out of the box**
 
  Setting up the Nokia 7.1 is a breeze if you have a Google account ready to go. Since it uses stock Android and is part of the Android One program, there aren’t any extra hoops to jump through. The only hiccup we experienced was the flood of required updates right out of the box—make sure you allow some extra time to download and install everything.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/LkCNBmkQjVwHH-SoT7i4QFOrSsk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_1-83b2f49a5f2c4443b2b7f30b502fd094.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -142,10 +129,10 @@ Lifewire / Jordan Provost
  It’s important to note that when the Nokia 7.1 launched, it was plagued with complaints about slow operation, lag, and an unresponsive touchscreen. These appear to have been software-related issues that have since been fixed, as we experienced no such problems in our hands-on testing.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: Data connection is slow**
@@ -164,6 +151,13 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/Z-CxaDLaus-Tzpvo30-F2j8i94o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_6-9eeeb5e2962c47e29b8a5335d69cc004.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
  The only problem with the Nokia 7.1’s display is that the color temperature is extremely cool. If you hold it next to any similar phone, you’ll notice a somewhat bluish tinge. The phone does include a “night mode” feature that tints the display in increasingly strong shades of amber after the sun goes down, which can help with eye strain at night. But if you’re sensitive to blue light, you may have trouble with this display.
@@ -176,19 +170,6 @@ Lifewire / Jordan Provost
 
  The speaker is serviceable, and we didn’t notice too much distortion when streaming music at high volumes. There is very little bass response though, even compared to other mid-range handsets. The speaker is there if you need it, but you’ll want to plug in headphones or use an external speaker whenever possible. The Nokia 7.1 does includes a headphone jack, located on the top edge of the device, and comes with a pair of earbuds in the box.
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Camera/Video Quality: Surprisingly competent camera**
 
  The Nokia 7.1 has two rear-facing cameras, 12 MP and 5 MP respectively. The 5 MP one is used for depth sensing to help keep your subjects in focus. The lenses are housed in a bump protrusion, outlined by the same shining metal seen on the edges of the phone.
@@ -199,34 +180,13 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire
 
 ![Nokia 7.1 cat photo](https://www.lifewire.com/thmb/hepqa5K_YkbwuC1_7lRbkLgxJVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cat-photo7-e1f061ad95324519a4cd85a39faeb1a7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire
 
@@ -258,9 +218,23 @@ Lifewire
 
  With Google ending their own mid-range line of phones with the Nexus 5X and 6P, Android One devices like the Nokia 7.1 are now the best way to keep up with the newest Android features without paying a premium.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Solidly mid-range**
 
  The Nokia 7.1 is a mid-range handset in terms of price, but it packs a lot of features that you’d expect from a much more expensive phone. It retails for $349 which, in the world of ever-expanding handset price tags, almost borders on the budget category. For what you get in terms of style, specifications, and features, that’s a pretty good deal.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Stacks up well against the competition**
 
@@ -278,11 +252,25 @@ Lifewire
 
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [OnePlus 6T](https://www.lifewire.com/oneplus-6t-phone-review-4589385)
 * [Nokia 6.1](https://www.lifewire.com/nokia-6-1-review-4689956)
 * [Motorola Moto G6](https://www.lifewire.com/motorola-moto-g6-review-4689366)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -319,19 +307,18 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>[New] A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-briefclip-artist-for-2024/"><u>[New] BriefClip Artist for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-entering-a-friends-tiktok-live-a-step-by-step-guide-for-2024/"><u>[New] Entering a Friend's TikTok Live A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-breakthrough-strategies-for-youtube-short-problem-solving/"><u>[Updated] Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/craft-your-study-of-the-past-with-these-top-10-channels/"><u>Craft Your Study of the Past with These Top 10 Channels</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-engagement-with-solutions-to-common-shorts-challenges-for-2024/"><u>Enhancing Engagement with Solutions to Common Shorts Challenges for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/imitation-ingenuity-generating-parodies-of-films/"><u>Imitation Ingenuity Generating Parodies of Films</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Sony Xperia 1 V | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/incorporate-soundtrack-elements-into-premiere-pro/"><u>Incorporate Soundtrack Elements Into Premiere Pro</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-unveiling-the-top-10-audio-editing-platforms-a-guide-to-free-and-paid-services-for-musicians/"><u>New Unveiling the Top 10 Audio Editing Platforms A Guide to Free & Paid Services for Musicians</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-echo-chambranle-how-networking-unites-people/"><u>Online Echo Chambranle: How Networking Unites People</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-typing-trouble-restoring-functionality-to-a-broken-dell-keyboard/"><u>Overcoming Typing Trouble: Restoring Functionality to a Broken Dell Keyboard</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-creative-summit-top-talent-junction/"><u>The Creative Summit Top Talent Junction</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/visual-vibes-your-guide-to-kinemaster-memes/"><u>Visual Vibes Your Guide to KineMaster Memes</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-no-cash-only-computers-recording-youtube-video-playback-for-screenshots/"><u>[New] 2024 Approved No Cash, Only Computers Recording YouTube Video Playback for Screenshots</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-earning-by-critiquing-goodies-a-youtube-guide/"><u>[New] Earning by Critiquing Goodies A YouTube Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-gamings-apex-predators-best-7-shooter-titles/"><u>[New] Gaming's Apex Predators Best 7 Shooter Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-use-youtube-analytics-to-grow-your-channel/"><u>[Updated] 2024 Approved How to Use YouTube Analytics to Grow Your Channel?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-best-practices-navigating-through-top-9-free-logo-creators/"><u>[Updated] Decoding Best Practices Navigating Through Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-directly-posting-your-videos-from-idevice-to-youtube/"><u>[Updated] Directly Posting Your Videos From iDevice to YouTube</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-and-install-c6515-drivers/"><u>Download & Install C6515 Drivers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-video-reach-strategic-insights-into-youtubes-tag-system/"><u>Enhance Video Reach Strategic Insights Into YouTube's Tag System</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722975366182-get-the-newest-hp-scanjet-driver-version-now-windows-supported-11-8-n-based-software-and-more/"><u>Get the Newest HP Scanjet Driver Version Now - Windows Supported (11, 8, N-Based Software, and More.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-spot-and-secure-top-monetization-potential/"><u>How to Spot and Secure Top Monetization Potential</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-your-videography-with-top-seo-gadgets/"><u>In 2024, Elevate Your Videography with Top SEO Gadgets</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/next-level-ai-solutions-10-unique-gpt-variants-surpassing-chatgpts-functionality/"><u>Next-Level AI Solutions: 10 Unique GPT Variants Surpassing ChatGPT's Functionality</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/unveiling-the-process-of-reviving-your-intellgraphics-in-win7/"><u>Unveiling the Process of Reviving Your IntellGraphics in Win7</u></a></li>
 </ul></div>
 

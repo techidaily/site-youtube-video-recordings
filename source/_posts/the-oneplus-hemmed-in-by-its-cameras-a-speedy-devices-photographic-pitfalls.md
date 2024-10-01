@@ -1,7 +1,7 @@
 ---
 title: The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
-date: 2024-09-22T16:19:26.873Z
-updated: 2024-09-26T16:24:38.651Z
+date: 2024-09-24T18:26:10.147Z
+updated: 2024-10-01T18:54:16.684Z
 categories:
   - BestProducts
 description: This Article Describes The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
@@ -37,6 +37,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 [View On Ubi.com](https://store.ubi.com/us/assassins-creed-valhalla/5e849c6c5cdf9a21c0b4e731.html)
 
 4.8
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
 
@@ -74,13 +81,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Vallhalla 2](https://www.lifewire.com/thmb/pWujlWPf0ylYYpeoTEbp7X8U0yM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-4-07677871281c40a384f2df55f83e86a4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
  Perhaps more interesting than the main plot are the side quests sprinkled liberally about the world. These are typically informal, chance encounters and, though they do grant experience towards skill points, their primary point is to tell an intriguing story, which they accomplish with aplomb. The characters are almost invariably well-acted, and while short, these quests are remarkably well written and worth seeking out.
@@ -90,6 +90,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  In total, the game’s various open world areas cover a staggering 140 square kilometers, nearly ten times the size of the prologue area. By this rough estimate, there should be at least 120 hours worth of content in this game, including a roughly 60-hour main campaign. Missions, mysteries, and treasure in abundance ensure that the wilderness never grows stale.
 
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -108,13 +115,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Ubisoft has truly mastered the mechanics of boats, and sailing is just pure joy with your loyal crew singing their way down the fjords as the wind whistles in the rigging, your ship riding the realistic swells. Alternatively, your bard may accompany your seafaring with diverting tales. If there’s one downside is that unlike Odyssey, there’s no ship-to-ship naval combat, but perhaps that makes sense because the Vikings were more land raiders despite their extensive use of longboats to travel.
 
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -136,13 +136,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Minigames: Enjoyable diversions**
 
  There’s more to do than fighting and exploring; in Valhalla there are a number of intriguing minigames to divert you from quests. I particularly enjoyed Flyting, which is a battle of words These are timed, competitive poetry contests where you must quickly select the most appropriate verse from a list of options. It’s both amusing and character building.
@@ -151,13 +144,20 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Customization: Lots of stuff to tweak**
@@ -174,20 +174,14 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Setup Process and Performance: A rough start**
 
@@ -200,10 +194,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -212,18 +206,18 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Typical AAA**
 
  The base game will set you back the typical $60, while the gold edition bundles in the season pass and costs a full $100\. That will include the planned expansions which will add Ireland and France to the map. Expensive though $100 is, it does promise a potentially huge amount of content. The game also has microtransactions, which is a bit of a bummer, though these weren’t integrated into the game at the time of writing.
 
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -260,22 +254,21 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-efficient-viewing-the-comprehensive-guide-for-creating-youtube-watch-later-lists/"><u>[New] Efficient Viewing The Comprehensive Guide for Creating YouTube Watch Later Lists</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-enhance-your-videos-top-10-free-tiktok-edits-available-on-mac/"><u>[New] Enhance Your Videos - Top 10 Free TikTok Edits Available on Mac</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebooks-most-impressive-new-additions-decoded/"><u>[Updated] 2024 Approved Facebook's Most Impressive New Additions Decoded</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[Updated] In 2024, Channel Milestone Hurdle – Cross the 10K View Threshold Fast!</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-deciphering-bandicams-latest-2023-capabilities/"><u>[Updated] In 2024, Deciphering Bandicam's Latest 2023 Capabilities</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-success-in-youtubes-creator-hub/"><u>2024 Approved Crafting Success in YouTube's Creator Hub</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-top-8-free-video-calling-applications-recommended-for-businesses/"><u>2024 Approved Top 8 Free Video Calling Applications Recommended for Businesses</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-a05s-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Samsung Galaxy A05s | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/affordable-strategies-for-engaging-youtube-opening-and-end-titles-for-2024/"><u>Affordable Strategies for Engaging YouTube Opening & End Titles for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/best-youtube-mp3-downloader-compilation-top-10-for-2024/"><u>Best YouTube Mp3 Downloader Compilation (Top 10) for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/dissecting-video-ranking-algorithms-on-youtube-for-2024/"><u>Dissecting Video Ranking Algorithms on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/from-zero-to-hero-youtube-tech-required/"><u>From Zero to Hero YouTube Tech Required</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/generate-official-travel-ready-portraits-download-10-free-photos-today/"><u>Generate Official Travel-Ready Portraits – Download 10 FREE Photos Today</u></a></li>
-<li><a href="https://extra-information.techidaily.com/humor-galore-iphone-edition/"><u>Humor Galore IPhone Edition</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-discovering-youtubes-green-magic-for-effective-filming/"><u>In 2024, Discovering Youtube's Green Magic for Effective Filming</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/online-gaming-earnings-in-the-future/"><u>Online Gaming Earnings in the Future</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brand-visualization-inserting-watermarks-and-logos-into-youtube-media-for-2024/"><u>[Updated] Brand Visualization Inserting Watermarks and Logos Into YouTube Media for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-deceptions-toll-consequences-of-fake-supporters-in-video-markets/"><u>[Updated] Deception's Toll Consequences of Fake Supporters in Video Markets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-the-musical-maze-copyright-rules-for-insta-users/"><u>[Updated] In 2024, Navigating the Musical Maze Copyright Rules for Insta Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-masterclass-in-virtual-reality-critical-oculus-player-insights/"><u>[Updated] Masterclass in Virtual Reality Critical Oculus Player Insights</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-cinematography-secrets-unveiled-by-youtube-pros/"><u>2024 Approved Cinematography Secrets Unveiled by YouTube Pros</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-discovering-the-least-expensive-cloud-storage-plans/"><u>2024 Approved Discovering the Least Expensive Cloud Storage Plans</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-screen-grabs-revealed-gaming-edition-reviewed/"><u>2024 Approved Screen Grabs Revealed Gaming Edition Reviewed</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-lava-blaze-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/are-there-restrictions-in-saving-youtube-videos-for-2024/"><u>Are There Restrictions in Saving YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/birth-of-an-internet-persona-the-vtuber-blueprint-for-2024/"><u>Birth of an Internet Persona – The VTuber Blueprint for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/channeling-success-navigating-the-new-youtube-membership-model/"><u>Channeling Success Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/clip-weaver-workshop/"><u>Clip Weaver Workshop</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-listening-experience-with-these-6-premier-android-apps/"><u>Elevate Your Listening Experience with These 6 Premier Android Apps</u></a></li>
+<li><a href="https://win-able.techidaily.com/get-back-in-the-game-fixes-when-multiversus-wont-open-on-your-computer/"><u>Get Back in the Game: Fixes When MultiVersus Won't Open on Your Computer</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transform-your-streaming-experience-via-youtubes-av1-feature/"><u>Transform Your Streaming Experience via YouTube's AV1 Feature</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transforming-youtube-videos-bars-free-vision/"><u>Transforming YouTube Videos Bars-Free Vision</u></a></li>
 </ul></div>
 

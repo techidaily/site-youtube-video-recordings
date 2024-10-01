@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Deciphering YouTube's Shorts Funding Mechanism"
-date: 2024-08-10T04:25:19.749Z
-updated: 2024-08-11T04:25:19.749Z
+date: 2024-09-29T16:54:40.502Z
+updated: 2024-10-01T16:50:38.931Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,6 @@ Participating in YouTube Shorts Funds offer several benefits to the creators:
 
 YouTube incorporated monetization of Shorts in its YouTube Partner Program (YPP). Therefore, YouTube merged the Shorts Fund with the YPP in February 2023\. This led to YouTube Shorts Fund 2023 which now offers creators more opportunities to make money quickly on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Part 2\. Making Money with YouTube Shorts: Eligibility and Earnings**
 
 The new YouTube Shorts monetization policy means that content creators on YouTube with access to the YPP can also earn from Shorts. The revenue-sharing model has now taken the place of the YouTube Shorts Fund, which only rewarded creators using YouTube’s money. However, creators don’t have to be members of the YPP to start receiving YouTube Shorts funding. They only need to meet certain requirements, make unique content, and adhere to Community Guidelines.
@@ -70,9 +67,6 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 500 subscribers (You previously needed 1,000)
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
 
 In addition to the basic eligibility requirements, creators are also required to take additional measures to comply with YouTube’s requirements. Additional steps include:
@@ -82,9 +76,6 @@ In addition to the basic eligibility requirements, creators are also required to
 * **Enable Monetization for Individual Shorts:** Edit the monetization settings for each Short to start generating ad revenue.
 * **Comply with YouTube Policies and Guidelines:** Visit the YouTube Creator Academy to learn more about the platform’s policies and guidelines.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **What the YPP Shorts Fund Entails**
 
 The YPP Shorts Fund program includes the following features:
@@ -101,14 +92,6 @@ The amount of money you can make on Shorts often varies. It can be hard to make 
 
 The process of applying for and activating YouTube Short Funding is simple. You need to accept the Shorts Monetization Module in your terms and conditions. After activating, monetization starts immediately.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube shorts fund monetization module](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-4.jpeg)
 
 Head over to the YouTube Studio. Sign in to your account to accept the terms. Be sure to use a web browser because the YouTube app will not allow you to make these changes. Accept the terms and follow these steps to turn on the ads:
@@ -119,8 +102,12 @@ Head over to the YouTube Studio. Sign in to your account to accept the terms. Be
 4. **Setp 4**: Save your settings and the ads will be active.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Part 4\. Editing YouTube Shorts for More Revenue with Wondershare Filmora**
 
 The best way to earn from the YouTube Shorts Fund is to create quality content. With good video editing software, you can achieve this and build a community of subscribers. Wondershare Filmora is a video editing software that is effective in creating quality Shorts videos. It supports various video resolutions, including vertical videos. It also has some fascinating features that make every creation unique and exciting. Take your overexposed footage to cinema-quality Shorts video that will keep your audience engaged.
@@ -131,9 +118,6 @@ The best way to earn from the YouTube Shorts Fund is to create quality content. 
 
 Filmora can help create visually appealing and engaging videos, ultimately increasing the chances of monetization on YouTube. The following features make editing videos on Filmora quick and easy.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may have recorded horizontal videos and want to upload them as Shorts. The Auto Reframe feature allows you to automatically resize the video in seconds. You only need to choose the clip you want to resize and reframe it. No editing skills are required to do this.
@@ -142,30 +126,18 @@ You may have recorded horizontal videos and want to upload them as Shorts. The A
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. [**Auto Synchronization**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 When editing Shorts, you will likely add many footage in a short video. It is common for the audio to end up being where it is not supposed to. The Auto Synchronization feature is the ultimate audio sync. It effortlessly matches your audio with the video, making sure viewers see what they hear
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### 4\. [**Mask & Blend**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Creativity is a major component of YouTube Shorts content. The Filmora Masking and Blending mode helps you make creative video clips. It comes with a pen tool for creating free-form shapes on the go. Make your videos more impressive to your audience.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. [**Auto Beat Sync**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 With YouTube Shorts, you need to entertain your audience in under a minute. A combination of visual and audio elements makes the video more entertaining. The Auto Beat Sync feature matches the footage with the music automatically. Be sure every beat corresponds to the scene.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 The YouTube Shorts Fund offers an exceptional for creators to make additional income on the platform. Although the original Funds program has been updated with the latest monetization policy, creators can still generate nice revenue amount. As a creator, you need to publish quality and highly engaging content. With Wondershare Filmora, you can create content that will generate more revenue on the Shorts platform. The video editing software offers fantastic features that make video editing quick and fun.
@@ -173,6 +145,13 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 1\. YouTube Shorts Fund: Introduction and Benefits**
 
@@ -183,6 +162,13 @@ YouTube launched YouTube Shorts Funds in 2021 to financially support creators wh
 The main objective of the YouTube Shorts fund is to encourage creativity, diversity, and innovation in Shorts content creation. The fund operated between 2021 and 2022\. It lets creators earn $100 - $10,000 a month for their content.
 
 ![youtube shorts fund earnings](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-2.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Participating in YouTube Shorts Funds offer several benefits to the creators:
 
@@ -217,10 +203,6 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 500 subscribers (You previously needed 1,000)
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
 
 In addition to the basic eligibility requirements, creators are also required to take additional measures to comply with YouTube’s requirements. Additional steps include:
@@ -230,9 +212,6 @@ In addition to the basic eligibility requirements, creators are also required to
 * **Enable Monetization for Individual Shorts:** Edit the monetization settings for each Short to start generating ad revenue.
 * **Comply with YouTube Policies and Guidelines:** Visit the YouTube Creator Academy to learn more about the platform’s policies and guidelines.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **What the YPP Shorts Fund Entails**
 
 The YPP Shorts Fund program includes the following features:
@@ -241,18 +220,29 @@ The YPP Shorts Fund program includes the following features:
 * **Shorts Monetization Module** – Creators earn money from ads that play between YouTube Shorts.
 * **Commerce Product Addendum** – Additional monetization features, including Super Chats. Channel Memberships, Super Thanks, and Super Stickers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **How Much Can You Make with Short** **s**
 
 The amount of money you can make on Shorts often varies. It can be hard to make decent money on Shorts sometimes, and other times it brings in a nice chunk of revenue. Unfortunately, the earnings are not as spectacular as the long YouTube videos. Most creators agree that the revenue per thousand views (RPM) for shorts is around $0.05 - $0.07\. This would translate to about $50 - $70 for a million Shorts views. Although the ad revenue is relatively lower, you can generate more revenue with the shopping features. This will depend on how wee you keep your audience active and engaged.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Part 3\. How to Use YouTube Shorts Funding: Application and Activation**
 
 The process of applying for and activating YouTube Short Funding is simple. You need to accept the Shorts Monetization Module in your terms and conditions. After activating, monetization starts immediately.
 
 ![youtube shorts fund monetization module](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-4.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Head over to the YouTube Studio. Sign in to your account to accept the terms. Be sure to use a web browser because the YouTube app will not allow you to make these changes. Accept the terms and follow these steps to turn on the ads:
 
@@ -271,16 +261,17 @@ The best way to earn from the YouTube Shorts Fund is to create quality content. 
 
 Filmora can help create visually appealing and engaging videos, ultimately increasing the chances of monetization on YouTube. The following features make editing videos on Filmora quick and easy.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 You may have recorded horizontal videos and want to upload them as Shorts. The Auto Reframe feature allows you to automatically resize the video in seconds. You only need to choose the clip you want to resize and reframe it. No editing skills are required to do this.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Texts tell the audience what is happening in the video. It is also a great way to highlight major events in YouTube Shorts. The Add Text to Video feature on Filmora makes it easy to add text or captions to your videos.
@@ -314,8 +305,12 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
      data-ad-slot="1223367746"></ins>
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Phones as Cameras: A Comprehensive Guide to Mobile Video Production
 
 # How To Make YouTube Videos on Your Smartphone
@@ -328,6 +323,13 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How To Make YouTube Videos on Your Smartphone
 
  Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
@@ -356,66 +358,6 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How To Make YouTube Videos on Your Smartphone
-
- Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
-
-#### Part 1\. Keep It Steady
-
- For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
-
- There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
-
-#### Part 2\. Be Heard
-
- You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
-
- Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
-
-#### Part 3\. Tilt Your Phone
-
- When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
-
- The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
-
- Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
-
-[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
-
- After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -458,9 +400,48 @@ Follow @Richard Bennett
 
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
+
+## How To Make YouTube Videos on Your Smartphone
+
+ Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
+
+#### Part 1\. Keep It Steady
+
+ For a nice, smooth, shot consider resting your hand up on a railing, table, or anything else that will keep it steady while you film. Camera shake is always distracting to viewers, and smartphone videos are notoriously unstable because you are almost always holding your phone in your hand.
+
+ There is equipment you can use to cut out camera shake. You can get a smartphone mount for your tripod, or you can even stabilize your phone using a selfie stick. Many of the very newest smartphones have built in hardware called ‘OIS’ – optical image stabilization – that helps reduce shakiness.
+
+#### Part 2\. Be Heard
+
+ You have a lot to say, so make sure people can hear you say it! Smartphones do not tend to have very good microphones built in (neither do most cameras), so try to vlog from somewhere without a lot of background noise. It will help a lot if your voice has nothing to compete with.
+
+ Ideally, you should get an external mic to record your voice while you vlog on your phone. There are shotgun mics you can plug directly into the audio jack on your phone which will record great audio, or you can get a high quality MP3 recorder and carry it around in your pocket.
+
+#### Part 3\. Tilt Your Phone
+
+ When recording on the spur of the moment with your smartphone it is easy to automatically hold it the same way you would while texting or taking a selfie. If you record a video with your phone held so that it is tall – a ‘portrait’ shot – then your video will have thick black bars on either side when you post it to YouTube. If you tilt your phone so that it is wide you will record a ‘landscape’ shot, which will match the dimensions YouTube plays videos in.
+
+ The exception to this is videos you plan to post on Instagram. On Instagram everything is cropped into a square, and it is easier to imagine what your footage will look like as a square when you hold your phone strait up. Simply focus on the top of your screen and treat a portion of the bottom of your screen as if it is not there. When you hold your phone horizontally you need to try and estimate how much of the middle of your screen will make it in to your Instagram video, which can be awkward.
+
+ Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
+
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+
+ After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -524,9 +505,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-compreranal-guide-to-best-free-budget-friendly-lut-sources/"><u>[New] Compreranal Guide to Best Free, Budget-Friendly LUT Sources</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-cutting-edge-design-top-5-3d-intro-makers/"><u>[New] Cutting-Edge Design Top 5 3D Intro Makers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-enhance-visibility-youtube-thumbnails-made-simple/"><u>[New] Enhance Visibility YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-perfecting-your-video-conferencing-experience-with-slack-and-filmora/"><u>[New] In 2024, Perfecting Your Video Conferencing Experience with Slack & Filmora</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-deep-dive-into-youtube-mastery-using-sony-vegas-software/"><u>[Updated] A Deep Dive Into YouTube Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-a-youtube-video-essential-writing-guide/"><u>[Updated] Crafting a YouTube Video Essential Writing Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-views-prime-seo-equipment-for-videos/"><u>[Updated] Elevate Views Prime SEO Equipment for Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-quality-drones-that-accommodate-gopro-cameras/"><u>[Updated] High-Quality Drones That Accommodate GoPro Cameras</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-revealing-artistic-strategies-in-fb-video-marketing/"><u>[Updated] Revealing Artistic Strategies in FB Video Marketing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-practices-boosting-your-game-videos-with-tags/"><u>2024 Approved Best Practices Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-merge-visual-media-with-music-tracks-in-premiere-pro/"><u>2024 Approved Merge Visual Media With Music Tracks in Premiere Pro</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-poco-c55-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Poco C55 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/a-step-by-step-guide-to-crafting-an-effective-youtube-watch-later-playlist-for-2024/"><u>A Step-by-Step Guide to Crafting an Effective YouTube Watch Later Playlist for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciphering-youtubes-new-earning-standards/"><u>Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-vivo-y200-device-sim-by-drfone-android/"><u>Easily Unlock Your Vivo Y200 Device SIM</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-iphone-13-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 13 Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/visual-enhancement-for-desktops-inserting-this-pc-signpost/"><u>Visual Enhancement for Desktops: Inserting 'This PC' Signpost</u></a></li>
+</ul></div>
 

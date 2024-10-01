@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] End-Screen Essentials for Social Media Success on YouTube\""
-date: 2024-09-21T16:38:10.919Z
-updated: 2024-09-26T16:16:49.215Z
+date: 2024-09-30T17:24:55.173Z
+updated: 2024-10-01T17:27:23.825Z
 tags:
   - ai video
   - ai youtube
@@ -95,13 +95,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
@@ -119,6 +112,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -195,7 +195,21 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
@@ -229,13 +243,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -264,13 +271,6 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1: Free End Screen Templates Download
 
@@ -320,6 +320,13 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
@@ -339,13 +346,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -388,13 +388,6 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: Free End Screen Templates Download
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
@@ -441,18 +434,18 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
@@ -579,6 +572,13 @@ Never make your schedule based on what other YouTubers are doing. Your lives are
 
 Posting once a week is a good standard schedule, but if you like to spend a lot of time editing your videos and you work full time then maybe once a week isn’t realistic for you. Maybe you should post once every two weeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Best Days and Times to Post to YouTube
 
 The best times to post are **Thursdays** and **Fridays** between 12 and 3pm (in the time zone of the majority of your subscribers – just check analytics in your Creator Studio). These are the times when there are the most viewers available to watch your videos. Monday and Tuesday are the worst days to post.
@@ -588,6 +588,13 @@ _Amy's scheduling advice: don't bite off more than you can chew!_
 So, how many times do you upload per week, or per month? How often should you upload to YouTube?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -649,13 +656,6 @@ It might be helpful to set a private deadline for yourself the day before your o
 ## 4\. Bank YouTube Videos
 
 It might happen that one week you’re full of ideas and energy and making videos is a breeze. It can be tempting to abandon your schedule and post more than normal, but you should resist that urge. Don’t waste all that energy – make the videos – but instead of posting them all right away, you should save them for weeks where you aren’t feeling the same enthusiasm.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Set Realistic Goals
 
@@ -720,18 +720,18 @@ Don’t just say you’re going to post a new video every week, decide on a spec
 
 The other benefit of being specific about your posting time is that the more specific you are, the less wiggle room you give yourself. Setting a clear deadline with yourself makes it harder to procrastinate.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Make Your YouTube Upload Schedule Public
 
 Post your schedule somewhere potential subscribers can see it like in your channel banner, intro, or video descriptions. The reason schedules work as a tool for growth is that they allow your audience to build up anticipation. It will be easier for newcomers to your channel to feel that anticipation if you start setting expectations for them on their first visit.
 
 Committing publicly to a posting schedule means making a promise to your viewers. If you break that promise, they will be disappointed. This social pressure should help to keep you posting consistently.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Remember That Posting on YouTube Takes Time
 
@@ -861,19 +861,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-optimized-strategies-for-youtube-and-facebook-cross-posting-for-2024/"><u>[New] Optimized Strategies for YouTube & Facebook Cross-Posting for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-depth-look-at-the-finest-free-srt-translation-tools-available-online/"><u>[Updated] In-Depth Look at the Finest Free SRT Translation Tools Available Online</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-echoes-of-amusement-comical-tune-transformations/"><u>2024 Approved Echoes of Amusement Comical Tune Transformations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-fixing-iphone-x-overcoming-face-id-malfunction/"><u>2024 Approved Fixing iPhone X Overcoming Face ID Malfunction</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/guide-to-converting-videahu-video-files-to-mp4-format-for-both-mac-and-windows-users/"><u>Guide to Converting Videa.hu Video Files to MP4 Format for Both Mac & Windows Users</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-9-powerful-methods-to-make-money-on-your-youtube-shorts/"><u>In 2024, 9 Powerful Methods to Make Money on Your YouTube Shorts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-key-principles-to-write-captivating-vlog-dialogues/"><u>In 2024, Key Principles to Write Captivating Vlog Dialogues</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-preventing-motion-sickness-in-virtual-worlds/"><u>In 2024, Preventing Motion Sickness in Virtual Worlds</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/mastering-idevice-screen-recording-techniques-for-youtube/"><u>Mastering iDevice Screen Recording Techniques for YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/rapid-training-image-transformation-for-dynamic-youtube-desktop-thumbnails/"><u>Rapid Training Image Transformation for Dynamic YouTube Desktop Thumbnails</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-battle-for-neighborville-silly-fun-meets-strategic-plant-zombie-showdown/"><u>Review of 'Battle for Neighborville': Silly Fun Meets Strategic Plant-Zombie Showdown</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-resolving-windows-11s-unresponsive-volume-adjustment/"><u>Step-by-Step Guide to Resolving Windows 11'S Unresponsive Volume Adjustment</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unlock-creative-potential-with-no-cost-green-screen-knowledge-from-top-4-educational-channels/"><u>Unlock Creative Potential with No-Cost Green Screen Knowledge From Top 4 Educational Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-mastering-the-art-of-social-media-convergence-tiktok-facebook-linking-for-2024/"><u>[New] Mastering the Art of Social Media Convergence TikTok-Facebook Linking for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-a-visual-journey-through-pc-games-snapping-the-best-for-2024/"><u>[Updated] A Visual Journey Through PC Games - Snapping the Best for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-conquer-youtubes-realms-a-step-by-step-video-uploading-guidebook/"><u>[Updated] Conquer YouTube's Realms A Step-by-Step Video Uploading Guidebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-hilarious-reactions-mastering-youtube-tricks-3-methods-for-2024/"><u>[Updated] Creating Hilarious Reactions Mastering YouTube Tricks (3 Methods) for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10-top-must-have-gear-items-for-youtubers/"><u>2024 Approved 10 Top Must-Have Gear Items for YouTubers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-frame-by-frame-screen-capturer/"><u>2024 Approved Frame-by-Frame Screen Capturer</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-10-excellent-free-movie-editors-for-mov-files/"><u>In 2024, 10 Excellent Free Movie Editors for MOV Files</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>In 2024, Cutting Edge Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionizing-workouts-the-best-vr-treadmill-choices/"><u>In 2024, Revolutionizing Workouts The Best VR Treadmill Choices</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-transforming-youtubes-shorts-to-mp4/"><u>Masterclass in Transforming YouTube's Shorts to MP4</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/organize-and-share-music-how-to-make-youtube-playlists-easier/"><u>Organize and Share Music How to Make YouTube Playlists Easier</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-nokia-xr21-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Nokia XR21</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-plating-palette-techniques-for-food-cinematography-for-2024/"><u>The Plating Palette Techniques for Food Cinematography for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transform-your-revenue-with-youtube-shorts-tips/"><u>Transform Your Revenue with YouTube Shorts Tips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-revenue-revolution-a-practical-guide-for-monetization/"><u>Youtube's Revenue Revolution A Practical Guide for Monetization</u></a></li>
 </ul></div>
 

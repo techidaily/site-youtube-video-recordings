@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Ensuring Thumbnails Show  Shorts Video Troubleshooting\""
-date: 2024-09-24T16:11:18.475Z
-updated: 2024-09-26T16:49:22.704Z
+date: 2024-09-24T16:29:19.676Z
+updated: 2024-10-01T16:44:30.242Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -86,10 +93,10 @@ The best thing is that you don't need to transfer the video from your phone to y
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Q6\. Do YouTube Shorts Make Money?
@@ -100,16 +107,16 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### On a Desktop Computer
 
@@ -135,9 +142,23 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -151,6 +172,19 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -160,13 +194,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
@@ -184,13 +211,6 @@ YouTube also adjusted the requirements to qualify for the YPP. They made it easi
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### On a Desktop Computer
 
 * Open a Shorts video on YouTube.
@@ -204,6 +224,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
@@ -230,13 +257,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -278,21 +298,7 @@ Do you wonder how to turn on **AV1 settings on YouTube**? For your information, 
 
 ![av1 settings](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Why choose AV1 over VP9 and other formats?
 
@@ -310,6 +316,19 @@ As mentioned before, AV1 is royalty-free. AV1 is such a next-generation of royal
 
 ![av1 is royalty-free](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When it comes to the group that will ask for the royalty, MPEG is not the only one. There are also other patent groups and companies that can ask for it. Aomedia integrated Google, Mozilla, and Cisco, while they were busy creating their new video codec. However, the three companies joined together to create one codec to beat them all.
 
 ### 2\. Better performance
@@ -325,13 +344,6 @@ AV1 is designed so exclusively to function better than all the other codecs in t
 AV1 is undoubtedly superior if we compare it to other available video codecs and the exploration of the codec technology AV2 has already begun. This is such an early performance evaluation. There is some interesting part of the exploration development of AV2, such as multiple line selection for Intra prediction can make you select not just neighboring row/column for directional prediction. The same tool also exists in VVC.
 
 There are also three essential improvements, which are simplifying the existing feature (also complete removal) and picking the tool used by VVC/H.266 (It is lack originality but so much work on it) and improvement periodically improvement of an existing tool, it is too few and also not original. We haven't known yet when AV2 will be done completely though, maybe there still be some more essential improvements.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: What's the best video editor for YouTubers with AV1 format?
 
@@ -372,19 +384,16 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-churning-up-channels-top-gear-list/"><u>[New] Churning Up Channels Top Gear List</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-creating-costless-webinars-on-youtube-a-handbook/"><u>[New] Creating Costless Webinars on YouTube A Handbook</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-warriors-way-selecting-superior-hand-to-hand-titles/"><u>[Updated] 2024 Approved Warrior's Way Selecting Superior Hand-to-Hand Titles</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-chuckle-fest-the-ultimate-list-of-hilarious-youtube-personalities/"><u>[Updated] Chuckle Fest The Ultimate List of Hilarious YouTube Personalities</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-craft-an-attractive-animation-from-any-video-a-comprehensive-youtube-to-gif-guide/"><u>[Updated] Craft an Attractive Animation From Any Video - A Comprehensive Youtube-to-GIF Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-ground-up-a-complete-evaluation-of-dji-phantom-4/"><u>[Updated] From Ground Up A Complete Evaluation of DJI Phantom 4</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-acquisition-101-maximizing-youtubers-earnings/"><u>[Updated] In 2024, Channel Acquisition 101 Maximizing Youtubers' Earnings</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-epic-playlist-over-a-hundred-top-tier-titles/"><u>2024 Approved Epic Playlist Over a Hundred Top-Tier Titles</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-inverting-image-hues-in-photoshop/"><u>2024 Approved Inverting Image Hues in Photoshop</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/avoid-printer-frustration-in-the-latest-os-win11-guide/"><u>Avoid Printer Frustration in the Latest OS: Win11 Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/essential-android-ad-blocking-the-top-7-app-list-for-2024/"><u>Essential Android Ad Blocking The Top 7 App List for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gastronomic-genius-in-your-digital-kitchen-companion-chatgpt/"><u>Gastronomic Genius in Your Digital Kitchen Companion (ChatGPT)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-xiaomi-redmi-12-5g-by-drfone-android/"><u>How to Bypass FRP from Xiaomi Redmi 12 5G?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Xiaomi Redmi Note 13 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ensuring-audio-clarity-amidst-remote-recording-challenges/"><u>[New] 2024 Approved Ensuring Audio Clarity Amidst Remote Recording Challenges</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-history-series-youtube-recommendations-for-learners/"><u>[New] Essential History Series YouTube Recommendations for Learners</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-copyright-rules-for-screenshotting-and-archiving-youtube-videos/"><u>[Updated] Copyright Rules for Screenshotting and Archiving YouTube Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-identifying-top-video-capturing-tools-for-win11/"><u>[Updated] Identifying Top Video Capturing Tools for Win11</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-saber-troubles-heres-how-to-prevent-unexpected-game-shutdowns/"><u>Beat Saber Troubles? Here's How to Prevent Unexpected Game Shutdowns!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/harness-the-power-of-your-mobile-content-on-youtube-starting-now/"><u>Harness the Power of Your Mobile Content on YouTube, Starting Now</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-thorough-examination-of-dji-inspire-1/"><u>In 2024, Thorough Examination of DJI Inspire 1</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/navigating-the-world-of-youtube-content-creation-with-flair/"><u>Navigating the World of YouTube Content Creation with Flair</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-cant-watch-mlb-matches-get-free-mlb-streaming-options-now-for-2024/"><u>New Cant Watch MLB Matches? Get Free MLB Streaming Options Now for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-content-creation-with-youtube-rules/"><u>Streamlining Content Creation with YouTube Rules</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-oculus-quest-2-when-the-mic-wont-work/"><u>Troubleshooting Oculus Quest 2 When the Mic Won't Work</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Engaging Audience From Anywhere  Phone-Based Filming Techniques\""
-date: 2024-09-23T16:25:31.351Z
-updated: 2024-09-26T16:11:36.858Z
+date: 2024-09-29T16:04:40.966Z
+updated: 2024-10-01T17:37:36.923Z
 tags:
   - ai video
   - ai youtube
@@ -68,13 +68,6 @@ Follow @Richard Bennett
 
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How To Make YouTube Videos on Your Smartphone
 
  Making a video on your smartphone is similar to making a video with any other camera in a lot of ways. There are also a lot of ways in which it is different. You always have to watch out for camera shake, for example, but it can be even harder to control when you’re walking around shooting on your mobile device. Here are three things to keep in mind when vlogging with your smartphone.
@@ -146,13 +139,6 @@ Follow @Richard Bennett
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -258,6 +244,19 @@ Step2 Log in to your YouTube account and tap on the Profile icon at the top side
 
 ![how to check youtube income on mobile phone 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Tap the Analytics icon from the middle menu. Your YouTube channel income and other data will be displayed on your phone screen.
 
 ![how to check youtube income on mobile phone 3](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-4.jpg)
@@ -301,6 +300,13 @@ All the factors explained above will determine how your YouTube earnings are cal
 You can also calculate your YouTube channel total earnings by using the [YouTube calculator](https://www.tunepocket.com/youtube-money-calculator/).
 
 ![how to check youtube income on mobile phone 6](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How do you increase your YouTube earnings?
 
@@ -348,6 +354,19 @@ Step8 Preview the edited video. If you’re satisfied with the output, click the
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-15.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step9 Enter file name in the box next to Label. Then, navigate to Folder Path and choose where you want the file to be saved. Afterward, click Export to Finish.
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-16.jpg)
@@ -385,6 +404,13 @@ Finance & Investing - $12.25
 Educational Videos - $9.89
 
 Photography & Film Making - $7.31
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -409,22 +435,15 @@ Step2 Click Analytics from the left side of the screen.
 ![how to check youtube income on pc 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 On the Analytics screen, select Revenue from the top side of the screen to check your YouTube income.
 
 There, you’ll find your YouTube income and other necessary data that you might need.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Check on a Mobile Device
 
@@ -443,13 +462,6 @@ Step2 Log in to your YouTube account and tap on the Profile icon at the top side
 Step3 Tap the Analytics icon from the middle menu. Your YouTube channel income and other data will be displayed on your phone screen.
 
 ![how to check youtube income on mobile phone 3](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **YouTube Studio App**
 
@@ -491,13 +503,6 @@ You can also calculate your YouTube channel total earnings by using the [YouTube
 
 ![how to check youtube income on mobile phone 6](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How do you increase your YouTube earnings?
 
 ### 1\. Post quality videos
@@ -528,6 +533,19 @@ Step5 Next, drag-n-dop the chosen AI Portrait effect to the timeline. After that
 
 ![drag n drop ai portrait to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-11.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up that appears, adjust the settings according to your requirements.
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-12.jpg)
@@ -535,6 +553,13 @@ Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up tha
 Step7 You can add Subscribe watermark by clicking the >> icon at the top of the screen, then select Element.
 
 ![click element filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Choose the ‘Social Media Show Element 07’ Effects. Drag-n-drop the selected effect to the Timeline.
 
@@ -564,23 +589,9 @@ Let’s take a look at some frequently asked questions from users like you.
 
 YouTube monetization involves making money from videos you upload on your YouTube channel. And Google AdSense is a means of monetizing your YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Why should you consider monetizing on YouTube creator?
 
 Monetizing YouTube as a creator is a great way to earn passive income just by uploading videos. Research shows that an average YouTuber has the potential of earning $10,000 in revenue per year.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Which category is best for YouTube earnings?
 
@@ -595,6 +606,13 @@ Finance & Investing - $12.25
 Educational Videos - $9.89
 
 Photography & Film Making - $7.31
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -619,22 +637,24 @@ Checking YouTube income is not a big deal. This article has covered every necess
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-expert-advice-hassle-free-recordings-with-ios-devices/"><u>[New] Expert Advice Hassle-Free Recordings with iOS Devices</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-lost-opportunities-instant-creative-ban/"><u>[New] Lost Opportunities Instant Creative Ban</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-comprehensive-list-of-8-authentic-propagation-tools/"><u>[Updated] A Comprehensive List of 8 Authentic Propagation Tools</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-unlocking-idevice-screen-playback-perfection/"><u>[Updated] Unlocking iDevice Screen Playback Perfection</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-clear-distraction-free-viewing-of-old-youtube-content/"><u>2024 Approved Clear, Distraction-Free Viewing of Old YouTube Content</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-co-branded-content-on-youtube-platforms/"><u>2024 Approved Crafting Co-Branded Content on YouTube Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/brighter-days-with-five-winter-themed-backgrounds/"><u>Brighter Days with Five Winter-Themed Backgrounds</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-stellar-video-beginnings-with-free-tools-for-2024/"><u>Crafting Stellar Video Beginnings with Free Tools for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/creating-powerful-teacher-content-on-youtube-top-10-insights-for-2024/"><u>Creating Powerful Teacher Content on YouTube Top 10 Insights for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/humor-hubbub-top-7-cheeky-content-concepts-for-laughter-lovers/"><u>Humor Hubbub Top 7 Cheeky Content Concepts for Laughter Lovers</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-honor-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Honor</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-nokia-xr21-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Nokia XR21 Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/proven-strategies-for-optimizing-video-content-on-youtube/"><u>Proven Strategies for Optimizing Video Content on YouTube</u></a></li>
-<li><a href="https://windows11.techidaily.com/resolving-directx-install-failures-on-pcs/"><u>Resolving DirectX Install Failures on PCs</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-guide-transforming-your-yt-gaming-content-with-hashtags/"><u>Step-by-Step Guide Transforming Your YT Gaming Content with Hashtags</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-to-finding-the-perfect-region-free-dvd-player-for-your-mac/"><u>Ultimate Guide to Finding the Perfect Region-Free DVD Player for Your Mac</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-data-from-realme-note-50-by-fonelab-android-recover-data/"><u>Undelete lost data from Realme Note 50</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-clipmaster-software/"><u>[New] ClipMaster Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-emotionally-enhanced-youtube-commentary/"><u>[New] Emotionally-Enhanced YouTube Commentary</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-key-to-gain-likes-in-tiktok-unpack-sessions/"><u>[Updated] The Key to Gain Likes in TikTok Unpack Sessions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10-best-vr-videos-on-youtube-to-have-immersive-experience/"><u>2024 Approved 10 Best VR Videos on YouTube to Have Immersive Experience</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-comprehensive-guide-to-editing-hauls-for-online-audiences/"><u>2024 Approved The Comprehensive Guide to Editing Hauls for Online Audiences</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722151524290-bring-powerful-ai-search-from-bing-to-your-mobile-available-for-android-and-iphone-now/"><u>Bring Powerful AI Search From Bing to Your Mobile: Available for Android and iPhone Now!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/craft-visionary-videos-from-start-to-finish-using-youtube-studio-editor-for-2024/"><u>Craft Visionary Videos From Start to Finish Using YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/enhance-your-webm-experience-top-codecs-for-effortless-playback-and-editing/"><u>Enhance Your WebM Experience: Top Codecs for Effortless Playback and Editing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-systems-analyzers-for-windows/"><u>Essential Systems Analyzers for Windows</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-6-methods-to-mirror-apple-iphone-14-pro-max-to-your-windows-pc-drfone-by-drfone-ios/"><u>In 2024, 6 Methods to Mirror Apple iPhone 14 Pro Max to your Windows PC | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How can I get more stardust in pokemon go On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-video-editing-hack-how-to-reverse-a-clip-in-final-cut-pro/"><u>In 2024, Video Editing Hack How to Reverse a Clip in Final Cut Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/livestream-elite-top-equipment-for-youtube-content-creators/"><u>Livestream Elite Top Equipment For YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-the-past-essential-history-youtubes-for-educational-journey/"><u>Unlocking the Past Essential History YouTubes For Educational Journey</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-your-pcs-potential-onedrive-troubleshooting-tips/"><u>Unlocking Your PC's Potential: OneDrive Troubleshooting Tips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/visual-voyages-free-thematic-tools-for-youtube/"><u>Visual Voyages Free Thematic Tools for YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-money-matters-how-to-understand-your-partner-payouts/"><u>YouTube Money Matters How to Understand Your Partner Payouts</u></a></li>
 </ul></div>
 

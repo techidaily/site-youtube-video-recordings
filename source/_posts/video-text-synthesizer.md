@@ -1,7 +1,7 @@
 ---
 title: "Video Text Synthesizer"
-date: 2024-09-20T16:35:23.604Z
-updated: 2024-09-26T16:19:38.356Z
+date: 2024-09-25T16:14:25.553Z
+updated: 2024-10-01T16:55:33.735Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,13 @@ But Adobe Premiere is not an easy solution to use for both video editing and add
 * The captions that you add using this tool will be very accurate
 * It can also be used to edit existing subtitle and caption files
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Amara Subtitle Editor
 
 Amara subtitle editor will not be able to help you create or generate captions for your video, but it can be a good solution to edit a subtitle file that you already have. It can be very useful in syncing the subtitles with the video and you can use it to make minor changes to the subtitle.
@@ -227,11 +234,153 @@ Aegisubs is another tool that you can use to create subtitles for your video. Bu
 * It doesn’t have speech recognition and you’ll have to enter all the text manually
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### AHD Subtitle Maker
+
+AHD subtitle maker is a Windows program that can be used to create subtitles and captions for your video in a variety of formats such as SRT. It is a completely free solution that can also be used to edit subtitle files in numerous ways, even changing the format of the file.
+
+Among other things, you can use AHD subtitle maker to translate, change, copy and delete selected text from a subtitle file and even replace the text with something else.
+
+**_Key Features_**
+
+* It is a free program that works on all versions of Windows
+* It can generate subtitle and caption files in a variety of formats
+* You can use it to generate subtitle files or edit existing files in various ways
+* It can also be used to generate various types of content including ID3 tags for music files
+
+### Videocaptionmaker.com
+
+To generate captions and subtitles on your Mac for free, the best option is Video Caption Maker. The full version of the program is available for free and it can be used to create a subtitle file or make changes to a subtitle file you already have.
+
+**_Key Features_**
+
+* You can use it to add text to a video in a simple and straightforward way
+* It can also be used to make changes to existing subtitles by changing the fonts, styles, backgrounds, positions, and more
+* It will also add a visual waveform to an audio file to identify the start and end time
+* It supports numerous video formats including .mov, .mp4, .mpeg, .3gpp, .3gpp2
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Jubler
+
+Jubler is a program that can edit subtitles and captions for videos. It can also be used to create new subtitles although it doesn’t automatically generate the captions and you will have to type them in. But when it comes to editing subtitles, this tool is very effective, allowing you to change the font style, color, and even positioning of the subtitles.
+
+**_Key Features_**
+
+* It works on all platforms including Windows, Mac, and Linux
+* It will graphically display the subtitles so you can easily move them to the desired location
+* It supports all subtitle and caption file formats
+* It allows you to edit the subtitles in many ways
+* It can be used to translate the subtitles to various languages
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Related FAQs
+
+****How Do I Make a Caption for a Video?**
+
+Making a caption for your video can be easy depending on the type of program you choose to use. A good rule of thumb is to choose solutions that auto generates the captions as they save you a lot of time. If there are issues after the captions have been generated, you can then use a subtitled editor to fix them, more preferable to typing in the subtitles or captions yourself.
+
+****How Do I Get Automatic Captions for my Video?**
+
+If you are uploading your video on YouTube, you can easily generate automatic captions from the YouTube studio. Just use these simple steps;
+
+Step 1: Sign in to YouTube Studio and in the left menu, select “Subtitles.”
+
+Step 2: Click on the video that you want to add subtitles
+
+Step 3: Select “More” under Subtitles and then go through the captions to make sure they are correct. If not, you can edit them on this page.
+
+If you are not using YouTube to share your video, you can use one of the solutions we have outlined in this article to generate automatic captions.
+
+****How Long Does It Take to Caption a Video?**
+
+The amount of time that you spend creating a caption for your video is entirely dependent on the captioning tool that you use. Automatic caption generators can create captions in a few seconds but manual subtitle tools can lengthen the process, especially for a longer video.
+
+## Conclusion
+
+Captions are a great way to get users to engage with your videos. Studies have shown that a captioned video is far more likely to get more engagements and shares on social media. And since it can be very easy to make caption for you video, why not utilize this little known resource and get your videos to stand out a little bit more.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Best Video Caption Makers
+
+The following are the top video caption makers that you can choose from;
+
+### YouTube Automatic Caption
+
+If you already have your own YouTube channel, you can use the built-in speech recognition feature to generate accurate captions for your video. This feature can generate captions in a number of languages including English, Portuguese, German, Spanish, Korean, French, Italian, and Dutch which is more than some of the premium caption generators in the market.
+
+The main reason most people choose this solution is that it is fairly simple to use. You don’t have to do much; just upload the video and the automatic caption generator will create the captions you need.
+
+**_Key Features_**
+
+* It is easy to use and freely accessible
+* You can use it to generate captions in a number of different languages
+* It is very accurate
+* You can use it to generate transcripts for the video
+
+### Kapwing Auto-Subtitle Maker
+
+Kapwing is an online solution that will generate subtitles and captions for most videos. But it does limit the size of the video that it can generate subtitles on to about 500 MB. There is a free version of the program that although limited in functionality will not add a watermark to the generated captions file. But free users can only get captions for up to 7 minutes of video, making it a less ideal solution when you have a longer video.
+
+**_Key Features_**
+
+* You can generate captions and subtitles for free
+* It is accessible online and you don’t have to install software on your computer to get the captions
+* It has a very simple user interface, making the caption generation process quick and easy
+* In addition to generating subtitles and captions, you can edit existing files.
+
+### Adobe Premiere Pro CC
+
+You may know Adobe Premiere as one of the most popular video editing programs on the market, but most people are unaware that it can also be used to generate captions for the video. This tool can be very useful in the creation of high-quality videos and you can generate an accurate caption or subtitle for the video as well.
+
+But Adobe Premiere is not an easy solution to use for both video editing and adding captions, particularly for beginner users. But it is certainly one of the best ways to create and edit videos on your computer.
+
+**_Key Features_**
+
+* Even though the interface is not easy to use, it is clear and flexible
+* You have numerous options to add the captions including font style and color
+* The captions that you add using this tool will be very accurate
+* It can also be used to edit existing subtitle and caption files
+
+### Amara Subtitle Editor
+
+Amara subtitle editor will not be able to help you create or generate captions for your video, but it can be a good solution to edit a subtitle file that you already have. It can be very useful in syncing the subtitles with the video and you can use it to make minor changes to the subtitle.
+
+While editing the subtitle file is easy, creating a caption file using Amara can be a lengthy process since you would have to type in the text.
+
+**_Key Features_**
+
+* It can be used to edit caption and subtitles files easily
+* The user interface is pleasant and easy to use
+* It is completely free
+
+### Aegisubs
+
+Aegisubs is another tool that you can use to create subtitles for your video. But we must warn you right off the bat that this tool is not very user-friendly and you may find that you will spend a lot of time trying to generate subtitles for your video. But it is a free solution and widely accessible on most platforms.
+
+**_Key Features_**
+
+* It can be used to create subtitles and captions in different languages
+* It supports numerous video and audio formats
+* It has a simple user interface that is easy to navigate
+* It doesn’t have speech recognition and you’ll have to enter all the text manually
 
 ### AHD Subtitle Maker
 
@@ -398,139 +547,11 @@ Jubler is a program that can edit subtitles and captions for videos. It can also
 * It can be used to translate the subtitles to various languages
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## Related FAQs
-
-****How Do I Make a Caption for a Video?**
-
-Making a caption for your video can be easy depending on the type of program you choose to use. A good rule of thumb is to choose solutions that auto generates the captions as they save you a lot of time. If there are issues after the captions have been generated, you can then use a subtitled editor to fix them, more preferable to typing in the subtitles or captions yourself.
-
-****How Do I Get Automatic Captions for my Video?**
-
-If you are uploading your video on YouTube, you can easily generate automatic captions from the YouTube studio. Just use these simple steps;
-
-Step 1: Sign in to YouTube Studio and in the left menu, select “Subtitles.”
-
-Step 2: Click on the video that you want to add subtitles
-
-Step 3: Select “More” under Subtitles and then go through the captions to make sure they are correct. If not, you can edit them on this page.
-
-If you are not using YouTube to share your video, you can use one of the solutions we have outlined in this article to generate automatic captions.
-
-****How Long Does It Take to Caption a Video?**
-
-The amount of time that you spend creating a caption for your video is entirely dependent on the captioning tool that you use. Automatic caption generators can create captions in a few seconds but manual subtitle tools can lengthen the process, especially for a longer video.
-
-## Conclusion
-
-Captions are a great way to get users to engage with your videos. Studies have shown that a captioned video is far more likely to get more engagements and shares on social media. And since it can be very easy to make caption for you video, why not utilize this little known resource and get your videos to stand out a little bit more.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Best Video Caption Makers
-
-The following are the top video caption makers that you can choose from;
-
-### YouTube Automatic Caption
-
-If you already have your own YouTube channel, you can use the built-in speech recognition feature to generate accurate captions for your video. This feature can generate captions in a number of languages including English, Portuguese, German, Spanish, Korean, French, Italian, and Dutch which is more than some of the premium caption generators in the market.
-
-The main reason most people choose this solution is that it is fairly simple to use. You don’t have to do much; just upload the video and the automatic caption generator will create the captions you need.
-
-**_Key Features_**
-
-* It is easy to use and freely accessible
-* You can use it to generate captions in a number of different languages
-* It is very accurate
-* You can use it to generate transcripts for the video
-
-### Kapwing Auto-Subtitle Maker
-
-Kapwing is an online solution that will generate subtitles and captions for most videos. But it does limit the size of the video that it can generate subtitles on to about 500 MB. There is a free version of the program that although limited in functionality will not add a watermark to the generated captions file. But free users can only get captions for up to 7 minutes of video, making it a less ideal solution when you have a longer video.
-
-**_Key Features_**
-
-* You can generate captions and subtitles for free
-* It is accessible online and you don’t have to install software on your computer to get the captions
-* It has a very simple user interface, making the caption generation process quick and easy
-* In addition to generating subtitles and captions, you can edit existing files.
-
-### Adobe Premiere Pro CC
-
-You may know Adobe Premiere as one of the most popular video editing programs on the market, but most people are unaware that it can also be used to generate captions for the video. This tool can be very useful in the creation of high-quality videos and you can generate an accurate caption or subtitle for the video as well.
-
-But Adobe Premiere is not an easy solution to use for both video editing and adding captions, particularly for beginner users. But it is certainly one of the best ways to create and edit videos on your computer.
-
-**_Key Features_**
-
-* Even though the interface is not easy to use, it is clear and flexible
-* You have numerous options to add the captions including font style and color
-* The captions that you add using this tool will be very accurate
-* It can also be used to edit existing subtitle and caption files
-
-### Amara Subtitle Editor
-
-Amara subtitle editor will not be able to help you create or generate captions for your video, but it can be a good solution to edit a subtitle file that you already have. It can be very useful in syncing the subtitles with the video and you can use it to make minor changes to the subtitle.
-
-While editing the subtitle file is easy, creating a caption file using Amara can be a lengthy process since you would have to type in the text.
-
-**_Key Features_**
-
-* It can be used to edit caption and subtitles files easily
-* The user interface is pleasant and easy to use
-* It is completely free
-
-### Aegisubs
-
-Aegisubs is another tool that you can use to create subtitles for your video. But we must warn you right off the bat that this tool is not very user-friendly and you may find that you will spend a lot of time trying to generate subtitles for your video. But it is a free solution and widely accessible on most platforms.
-
-**_Key Features_**
-
-* It can be used to create subtitles and captions in different languages
-* It supports numerous video and audio formats
-* It has a simple user interface that is easy to navigate
-* It doesn’t have speech recognition and you’ll have to enter all the text manually
-
-### AHD Subtitle Maker
-
-AHD subtitle maker is a Windows program that can be used to create subtitles and captions for your video in a variety of formats such as SRT. It is a completely free solution that can also be used to edit subtitle files in numerous ways, even changing the format of the file.
-
-Among other things, you can use AHD subtitle maker to translate, change, copy and delete selected text from a subtitle file and even replace the text with something else.
-
-**_Key Features_**
-
-* It is a free program that works on all versions of Windows
-* It can generate subtitle and caption files in a variety of formats
-* You can use it to generate subtitle files or edit existing files in various ways
-* It can also be used to generate various types of content including ID3 tags for music files
-
-### Videocaptionmaker.com
-
-To generate captions and subtitles on your Mac for free, the best option is Video Caption Maker. The full version of the program is available for free and it can be used to create a subtitle file or make changes to a subtitle file you already have.
-
-**_Key Features_**
-
-* You can use it to add text to a video in a simple and straightforward way
-* It can also be used to make changes to existing subtitles by changing the fonts, styles, backgrounds, positions, and more
-* It will also add a visual waveform to an audio file to identify the start and end time
-* It supports numerous video formats including .mov, .mp4, .mpeg, .3gpp, .3gpp2
-
-### Jubler
-
-Jubler is a program that can edit subtitles and captions for videos. It can also be used to create new subtitles although it doesn’t automatically generate the captions and you will have to type them in. But when it comes to editing subtitles, this tool is very effective, allowing you to change the font style, color, and even positioning of the subtitles.
-
-**_Key Features_**
-
-* It works on all platforms including Windows, Mac, and Linux
-* It will graphically display the subtitles so you can easily move them to the desired location
-* It supports all subtitle and caption file formats
-* It allows you to edit the subtitles in many ways
-* It can be used to translate the subtitles to various languages
 
 ## Related FAQs
 
@@ -576,13 +597,6 @@ Captions are a great way to get users to engage with your videos. Studies have s
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -605,13 +619,6 @@ _Lilly’s Creator Summit adventures._
 The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
 
@@ -649,12 +656,100 @@ _thinknoodles wearing his YouTube slippers._
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
+## 6\. Denim jacket
+
+A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
+
+_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
+
+Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
+
+Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
+
+Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
+
+* [**A map of Dumbo**](#dumbo)
+* [**Post Cards**](#postcards)
+* [**S’well bottle**](#bottle)
+* [**Branded slippers**](#slippers)
+* [**Pins, pins, pins**](#pins)
+* [**Denim jacket**](#jacket)
+
+_Lilly’s Creator Summit adventures._
+
+The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
+
+![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
+
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+
+Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
+
+_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
+
+There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
+
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## 1\. A map of Dumbo
+
+The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
+
+_Tess takes you to some of her favorite places in Dumbo._
+
+Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
+
+## 2\. Post Cards
+
+One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+## 3\. S’well bottle
+
+S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 4\. Branded slippers
+
+To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
+
+![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+_thinknoodles wearing his YouTube slippers._
+
+## 5\. Pins, pins, pins
+
+There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 ## 6\. Denim jacket
 
@@ -731,106 +826,12 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-_thinknoodles wearing his YouTube slippers._
-
-## 5\. Pins, pins, pins
-
-There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-## 6\. Denim jacket
-
-A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
-
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-_Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
-
-Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
-
-Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Creator Summit has been held for several years. In 2019, it was held in Tokyo, Japan, but back in 2016, 2017 and 2018, it was held in New York City. This article just introduced the YouTube Creator Summit in 2017.
-
-Tons of big-name creators were flown out by YouTube for a week of activities, networking opportunities, interesting speakers, and unicorn petting zoos. We assume.
-
-* [**A map of Dumbo**](#dumbo)
-* [**Post Cards**](#postcards)
-* [**S’well bottle**](#bottle)
-* [**Branded slippers**](#slippers)
-* [**Pins, pins, pins**](#pins)
-* [**Denim jacket**](#jacket)
-
-_Lilly’s Creator Summit adventures._
-
-The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
-
-![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
-
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
-
-Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
-
-_Nick talks about arriving in New York and goes through the swag box waiting in his hotel room._
-
-There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
-
-## 1\. A map of Dumbo
-
-The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
-
-_Tess takes you to some of her favorite places in Dumbo._
-
-Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
-
-## 2\. Post Cards
-
-One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
-
-## 3\. S’well bottle
-
-S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## 4\. Branded slippers
-
-To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
-
-![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 _thinknoodles wearing his YouTube slippers._
 
@@ -853,19 +854,6 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -969,17 +957,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-a-comprehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube/"><u>[New] A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-concealed-crusaders-conflict-with-clarion-champion/"><u>[New] Concealed Crusader's Conflict with Clarion Champion</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comparing-giants-in-ai-conversation-top-10-distinctions-between-chatgpt-and-microsofts-bing-ai/"><u>Comparing Giants in AI Conversation: Top 10 Distinctions Between ChatGPT and Microsoft's Bing AI</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/download-the-latest-amd-radeon-graphics-driver-version-2410/"><u>Download the Latest AMD Radeon Graphics Driver Version 24.10</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-x-fold-2-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo X Fold 2 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oppo-reno-10-pro-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Oppo Reno 10 Pro 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-conquering-the-labyrinth-of-lesser-known-youtube-content/"><u>In 2024, Conquering the Labyrinth of Lesser-Known YouTube Content</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-curating-your-music-collection-the-easy-guide-to-youtube-playlist-creation-webapp/"><u>In 2024, Curating Your Music Collection The Easy Guide to YouTube Playlist Creation (Web/App)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-educational-history-series-the-most-engaging-ones/"><u>In 2024, Educational History Series - The Most Engaging Ones</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-how-to-safeguard-your-feed-remove-followers/"><u>In 2024, How to Safeguard Your Feed Remove Followers</u></a></li>
-<li><a href="https://win-answers.techidaily.com/master-gaming-performance-optimize-your-setup-for-fluid-motion-and-high-framessecs/"><u>Master Gaming Performance: Optimize Your Setup for Fluid Motion and High Frames/Secs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-strategies-for-successful-youtube-srt-downloads-for-2024/"><u>Step-by-Step Strategies for Successful YouTube SRT Downloads for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-creating-compelling-content-with-powerful-youtube-titles/"><u>[New] Creating Compelling Content with Powerful YouTube Titles</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-eliminating-robotic-ratings-to-grow-views/"><u>[New] Eliminating Robotic Ratings to Grow Views</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-harnessing-the-power-combine-zoom-and-google-mail/"><u>[New] Harnessing the Power Combine Zoom & Google Mail</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-size-solution-to-boost-your-videos-online-performance-for-2024/"><u>[New] The Ultimate Size Solution to Boost Your Video's Online Performance for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-androids-leading-downloader-choice-the-ultimate-top-10-list-of-fb-video-tools/"><u>[Updated] Android's Leading Downloader Choice The Ultimate Top 10 List of FB Video Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-dance-directives-finding-ideal-dj-templates/"><u>[Updated] Dance Directives Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/chortle-chamber-ideas-for-7-amusing-online-sessions/"><u>Chortle Chamber Ideas for 7 Amusing Online Sessions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/discovering-8-youtube-channels-on-the-rise-at-lightning-speed-for-2024/"><u>Discovering 8 YouTube Channels on the Rise at Lightning Speed for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effortless-mov-to-mp4-transformation-quick-and-free-online-tool-by-movavi/"><u>Effortless MOV to MP4 Transformation - Quick and FREE Online Tool by Movavi</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-your-spotify-collection-with-youtube-music-integration-for-2024/"><u>Enhancing Your Spotify Collection with YouTube Music Integration for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/filmmakers-toolkit-making-compelling-youtube-trailers/"><u>Filmmaker's Toolkit Making Compelling YouTube Trailers</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-m54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-infinix-zero-30-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-13-mini-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 13 mini to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-autoplay-youtube-videos-on-facebook/"><u>In 2024, How to Autoplay Youtube Videos on Facebook?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/newly-eligible-users-see-revenue-uplift/"><u>Newly Eligible Users See Revenue Uplift</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/peak-popularity-on-reddit-10-most-upvoted-stories-for-2024/"><u>Peak Popularity on Reddit 10 Most Upvoted Stories for 2024</u></a></li>
 </ul></div>
 
