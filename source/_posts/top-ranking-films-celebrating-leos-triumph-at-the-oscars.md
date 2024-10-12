@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2024-10-04T01:17:48.871Z
-updated: 2024-10-06T21:23:16.467Z
+date: 2024-10-07T19:38:17.090Z
+updated: 2024-10-12T17:01:14.471Z
 tags:
   - youtube-download
 categories:
@@ -27,10 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -48,10 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -220,16 +220,10 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -249,24 +243,22 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[New] Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-liveaudiovideocasting-network/"><u>[New] LiveAudioVideocasting Network</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-step-by-step-guide-to-embedding-timestamp-metadata/"><u>[Updated] A Step-by-Step Guide to Embedding Timestamp Metadata</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>[Updated] Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-ensuring-copyright-compliance-in-youtube-to-mp4/"><u>2024 Approved Ensuring Copyright Compliance in Youtube-to-MP4</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-infinix-gt-10-pro-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Infinix GT 10 Pro Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1724766862942-apk/"><u>APKダウナローダーの正しい利用法：解決・ダウンロード失敗・ウイルス防止ガイド</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/create-with-colors-youtube-banner-creation-guide-for-2024/"><u>Create with Colors YouTube Banner Creation Guide for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/customizing-youtube-viewing-policies-for-your-content-for-2024/"><u>Customizing YouTube Viewing Policies for Your Content for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-f15-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy F15 5G</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-iphone-7-plus-by-drfone-ios/"><u>How To Unlock A Found iPhone 7 Plus?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>In 2024, Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/natural-vs-artificial-balancing-your-sets-illumination/"><u>Natural Vs. Artificial Balancing Your Set's Illumination</u></a></li>
-<li><a href="https://windows11.techidaily.com/strategies-for-windows-taskbar-recovery/"><u>Strategies for Windows Taskbar Recovery</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-ultimate-enhancement-kit-for-ps-vr2/"><u>The Ultimate Enhancement Kit for PS VR2</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unbeatable-choices-top-free-online-intros/"><u>Unbeatable Choices Top Free Online Intros</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unveiling-the-latest-in-computing-a-tour-of-toms-gadget-world/"><u>Unveiling the Latest in Computing - A Tour of Tom's Gadget World</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-the-power-of-video-enhancer-22-for-professionals-for-2024/"><u>Unveiling the Power of Video Enhancer 2.2 for Professionals for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/web-haven-for-historical-harmonies-downloads/"><u>Web Haven for Historical Harmonies' Downloads</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-comparing-tiktok-and-youtube-shorts-for-personal-content-creation-for-2024/"><u>[New] Comparing TikTok & YouTube Shorts for Personal Content Creation for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-outstanding-unlimited-space-service-index/"><u>[New] Outstanding Unlimited Space Service Index</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-5-leading-apps-to-create-professional-youtube-intros/"><u>[Updated] 5 Leading Apps to Create Professional YouTube Intros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-charting-a-course-to-success-understanding-youtube-income/"><u>[Updated] Charting a Course to Success Understanding YouTube Income</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-deciphering-how-tseries-benefits-from-youtube/"><u>[Updated] Deciphering How TSeries Benefits From YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-desktopiosandroid-zoom-with-a-virtual-board/"><u>[Updated] In 2024, Mastering Desktop/iOS/Android Zoom with a Virtual Board</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-audio-aesthetics-high-quality-dj-template-videos-downloaded/"><u>2024 Approved Audio Aesthetics High-Quality DJ Template Videos Downloaded</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-giving-life-a-curtain-call-blackout-in-pro/"><u>2024 Approved Giving Life a Curtain Call Blackout in Pro</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-softer-sounds-guide-for-pcos-users/"><u>2024 Approved Softer Sounds Guide for PC/OS Users</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-top-tips-for-silent-screen-capture/"><u>2024 Approved Top Tips for Silent Screen Capture</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/addressing-missing-thumbnails-in-youtube-shorts-for-2024/"><u>Addressing Missing Thumbnails in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/discovering-generative-ais-core-foundations/"><u>Discovering Generative AI's Core Foundations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-share-sharing-playlists-in-a-snap-for-2024/"><u>Flash-Share Sharing Playlists in a Snap for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/guida-rapida-alla-creazione-di-unimmagine-del-tuo-disco-di-avvio-su-un-ssd-compatto-con-windows-108711/"><u>Guida Rapida Alla Creazione Di Un'Immagine Del Tuo Disco Di Avvio Su Un SSD Compatto Con Windows 10/8/7/11</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-create-video-ads-for-free-in-youtube-video-builder/"><u>How to Create Video Ads for Free in YouTube Video Builder</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/our-quick-and-complete-obs-youtube-streaming-path-for-newbies/"><u>Our Quick & Complete OBS Youtube Streaming Path for Newbies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlock-your-content-potential-with-youtubes-movie-maker/"><u>Unlock Your Content Potential with YouTube's Movie Maker</u></a></li>
 </ul></div>
 

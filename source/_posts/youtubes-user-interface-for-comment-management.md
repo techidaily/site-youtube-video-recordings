@@ -1,7 +1,7 @@
 ---
 title: "YouTube's User Interface for Comment Management"
-date: 2024-09-26T18:17:05.657Z
-updated: 2024-10-01T17:55:41.030Z
+date: 2024-10-07T18:14:42.782Z
+updated: 2024-10-12T17:39:05.146Z
 tags:
   - ai video
   - ai youtube
@@ -110,6 +110,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -158,428 +165,407 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+## Part 1: How to Turn on or Turn off Comments for YouTube Channel
+
+If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
+
+#### Step 1: Get to YouTube Studio
+
+Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
+
+![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+#### Step 2: Go to Channel’s Advanced Settings
+
+From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
+
+![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+
+#### Step 3: Turn Off Comments
+
+From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
+
+To turn on comments on **all the videos on your YouTube channel**, you can follow the instructions given below:
+
+#### 1\. Set Channel Videos as Not Made for Kids
+
+Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
+
+![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+
+#### 2\. Define Acceptable Comment Types
+
+Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
+
+![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+#### 3\. Set Comment Allowance for Videos
+
+Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
+
+![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+
+#### **Additional Info about Comments Options**
+
+The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
+
+* **Allow all comments**
+
+When you choose this option, YouTube allows everyone to post any kind of comment, irrespective of how inappropriate or unacceptable the text is.
+
+* **Hold potentially inappropriate comments for review**
+
+This option allows all the comments from all the users only if YouTube assumes that the text is safe, and doesn’t contain any inappropriate words. In case YouTube detects some objectionable content such as spam or slang, the comment is not published, until you review the text, and approve it manually.
+
+* **Hold all comments for review**
+
+Selecting this option holds all the comments from all the users, and waits for you to review and allow or disallow each of them manually.
+
+* **Disable comments**
+
+When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+## Part 2: Turn on or Turn off Comments for Specific Videos
+
+As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
+
+To learn **how to turn on comments on YouTube** for a specific video, you can follow the steps given below:
+
+#### Step 1: Go to the Content Page
+
+Use the method explained earlier to go to **YouTube Studio**, and click **Content** from the navigation bar in the left.
+
+#### Step 2: Go to the Target Video’s Details Page
+
+Hover the mouse over the target video in the right window, and click the **Details** icon.
+
+#### Step 3: Turn on Comments
+
+From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
+
+![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+
+**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+## FAQs About YouTube Comments
+
+#### 1\. Why can’t I comment on the YouTube video?
+
+There could be several reasons for this. For instance, the video or the entire channel is configured as ‘Made for kids’ by the owner, comments are disabled for the video or the channel by the owner, you are using some inappropriate words in the comment that have been temporarily blocked by YouTube, and the text requires to be reviewed and approved by the owner before it becomes visible, etc.
+
+#### 2\. I want people to comment on my Private video. What should I do?
+
+At the time of this writing, YouTube doesn’t allow anyone to post a comment on any video that has been set as ‘Private’. If your video is configured that way, you must change its nature to ‘Unlisted’, and share its link to the users before they can post a comment.
+
+#### 3\. How can I block certain words and links on the YouTube comments?
+
+You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
+
+![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+#### 4\. If I turn comments off and back on again, will the old comments come back?
+
+Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
+
+#### 5\. If I change my comment settings, will the existing comments be impacted?
+
+That depends on the nature of the comments. For instance, if you modify the settings, the changes are reflected on the comments posted on the new videos, and the new comments on your channel homepage. However, there will be no impact on the existing comments on the existing videos, new comments on the existing videos, and the existing comments on your channel’s homepage.
+
+**Conclusion**
+
+It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+YouTube comments are enabled by default, and if they aren’t, learning **how to turn on comments on YouTube** is extremely simple. One of the major benefits of having the comments enabled on your YouTube videos is that you get genuine feedback from your audiences.
+
+As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
+
+Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
+
+## Part 1: How to Turn on or Turn off Comments for YouTube Channel
+
+If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
+
+#### Step 1: Get to YouTube Studio
+
+Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
+
+![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+#### Step 2: Go to Channel’s Advanced Settings
+
+From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
+
+![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+
+#### Step 3: Turn Off Comments
+
+From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
+
+To turn on comments on **all the videos on your YouTube channel**, you can follow the instructions given below:
+
+#### 1\. Set Channel Videos as Not Made for Kids
+
+Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
+
+![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+
+#### 2\. Define Acceptable Comment Types
+
+Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
+
+![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
 <!-- affiliate ads begin -->
-<span id="1982508">
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### 3\. Set Comment Allowance for Videos
+
+Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
+
+![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+
+#### **Additional Info about Comments Options**
+
+The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
+
+* **Allow all comments**
+
+When you choose this option, YouTube allows everyone to post any kind of comment, irrespective of how inappropriate or unacceptable the text is.
+
+* **Hold potentially inappropriate comments for review**
+
+This option allows all the comments from all the users only if YouTube assumes that the text is safe, and doesn’t contain any inappropriate words. In case YouTube detects some objectionable content such as spam or slang, the comment is not published, until you review the text, and approve it manually.
+
+* **Hold all comments for review**
+
+Selecting this option holds all the comments from all the users, and waits for you to review and allow or disallow each of them manually.
+
+* **Disable comments**
+
+When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+## Part 2: Turn on or Turn off Comments for Specific Videos
+
+As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
+
+To learn **how to turn on comments on YouTube** for a specific video, you can follow the steps given below:
+
+#### Step 1: Go to the Content Page
+
+Use the method explained earlier to go to **YouTube Studio**, and click **Content** from the navigation bar in the left.
+
+#### Step 2: Go to the Target Video’s Details Page
+
+Hover the mouse over the target video in the right window, and click the **Details** icon.
+
+#### Step 3: Turn on Comments
+
+From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
+
+![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+
+**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+## FAQs About YouTube Comments
+
+#### 1\. Why can’t I comment on the YouTube video?
+
+There could be several reasons for this. For instance, the video or the entire channel is configured as ‘Made for kids’ by the owner, comments are disabled for the video or the channel by the owner, you are using some inappropriate words in the comment that have been temporarily blocked by YouTube, and the text requires to be reviewed and approved by the owner before it becomes visible, etc.
+
+#### 2\. I want people to comment on my Private video. What should I do?
+
+At the time of this writing, YouTube doesn’t allow anyone to post a comment on any video that has been set as ‘Private’. If your video is configured that way, you must change its nature to ‘Unlisted’, and share its link to the users before they can post a comment.
+
+#### 3\. How can I block certain words and links on the YouTube comments?
+
+You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
+
+![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+#### 4\. If I turn comments off and back on again, will the old comments come back?
+
+Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
+
+#### 5\. If I change my comment settings, will the existing comments be impacted?
+
+That depends on the nature of the comments. For instance, if you modify the settings, the changes are reflected on the comments posted on the new videos, and the new comments on your channel homepage. However, there will be no impact on the existing comments on the existing videos, new comments on the existing videos, and the existing comments on your channel’s homepage.
+
+**Conclusion**
+
+It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+YouTube comments are enabled by default, and if they aren’t, learning **how to turn on comments on YouTube** is extremely simple. One of the major benefits of having the comments enabled on your YouTube videos is that you get genuine feedback from your audiences.
+
+As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
+
+Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
+
+## Part 1: How to Turn on or Turn off Comments for YouTube Channel
+
+If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
+
+#### Step 1: Get to YouTube Studio
+
+Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
+
+![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### Step 2: Go to Channel’s Advanced Settings
+
+From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
+
+![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+
+#### Step 3: Turn Off Comments
+
+From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
+
+To turn on comments on **all the videos on your YouTube channel**, you can follow the instructions given below:
+
+#### 1\. Set Channel Videos as Not Made for Kids
+
+Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
+
+![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+
+#### 2\. Define Acceptable Comment Types
+
+Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
+
+![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+#### 3\. Set Comment Allowance for Videos
+
+Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
+
+![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+#### **Additional Info about Comments Options**
+
+The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
+
+* **Allow all comments**
+
+When you choose this option, YouTube allows everyone to post any kind of comment, irrespective of how inappropriate or unacceptable the text is.
+
+* **Hold potentially inappropriate comments for review**
+
+This option allows all the comments from all the users only if YouTube assumes that the text is safe, and doesn’t contain any inappropriate words. In case YouTube detects some objectionable content such as spam or slang, the comment is not published, until you review the text, and approve it manually.
+
+* **Hold all comments for review**
+
+Selecting this option holds all the comments from all the users, and waits for you to review and allow or disallow each of them manually.
+
+* **Disable comments**
+
+When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+## Part 2: Turn on or Turn off Comments for Specific Videos
+
+As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
+
+To learn **how to turn on comments on YouTube** for a specific video, you can follow the steps given below:
+
+#### Step 1: Go to the Content Page
+
+Use the method explained earlier to go to **YouTube Studio**, and click **Content** from the navigation bar in the left.
+
+#### Step 2: Go to the Target Video’s Details Page
+
+Hover the mouse over the target video in the right window, and click the **Details** icon.
+
+#### Step 3: Turn on Comments
+
+From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
+
+![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
+
+**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+## FAQs About YouTube Comments
+
+#### 1\. Why can’t I comment on the YouTube video?
+
+There could be several reasons for this. For instance, the video or the entire channel is configured as ‘Made for kids’ by the owner, comments are disabled for the video or the channel by the owner, you are using some inappropriate words in the comment that have been temporarily blocked by YouTube, and the text requires to be reviewed and approved by the owner before it becomes visible, etc.
+
+#### 2\. I want people to comment on my Private video. What should I do?
+
+At the time of this writing, YouTube doesn’t allow anyone to post a comment on any video that has been set as ‘Private’. If your video is configured that way, you must change its nature to ‘Unlisted’, and share its link to the users before they can post a comment.
+
+#### 3\. How can I block certain words and links on the YouTube comments?
+
+You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
+
+![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+#### 4\. If I turn comments off and back on again, will the old comments come back?
+
+Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
+
+#### 5\. If I change my comment settings, will the existing comments be impacted?
+
+That depends on the nature of the comments. For instance, if you modify the settings, the changes are reflected on the comments posted on the new videos, and the new comments on your channel homepage. However, there will be no impact on the existing comments on the existing videos, new comments on the existing videos, and the existing comments on your channel’s homepage.
+
+**Conclusion**
+
+It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983472">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## Part 1: How to Turn on or Turn off Comments for YouTube Channel
-
-If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
-
-#### Step 1: Get to YouTube Studio
-
-Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
-
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-#### Step 2: Go to Channel’s Advanced Settings
-
-From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
-
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-#### Step 3: Turn Off Comments
-
-From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
-
-To turn on comments on **all the videos on your YouTube channel**, you can follow the instructions given below:
-
-#### 1\. Set Channel Videos as Not Made for Kids
-
-Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
-
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-#### 2\. Define Acceptable Comment Types
-
-Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
-
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
-
-#### 3\. Set Comment Allowance for Videos
-
-Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
-
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-#### **Additional Info about Comments Options**
-
-The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
-
-* **Allow all comments**
-
-When you choose this option, YouTube allows everyone to post any kind of comment, irrespective of how inappropriate or unacceptable the text is.
-
-* **Hold potentially inappropriate comments for review**
-
-This option allows all the comments from all the users only if YouTube assumes that the text is safe, and doesn’t contain any inappropriate words. In case YouTube detects some objectionable content such as spam or slang, the comment is not published, until you review the text, and approve it manually.
-
-* **Hold all comments for review**
-
-Selecting this option holds all the comments from all the users, and waits for you to review and allow or disallow each of them manually.
-
-* **Disable comments**
-
-When this option is selected, no one can post a comment to the video(s) whatsoever.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 2: Turn on or Turn off Comments for Specific Videos
-
-As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
-
-To learn **how to turn on comments on YouTube** for a specific video, you can follow the steps given below:
-
-#### Step 1: Go to the Content Page
-
-Use the method explained earlier to go to **YouTube Studio**, and click **Content** from the navigation bar in the left.
-
-#### Step 2: Go to the Target Video’s Details Page
-
-Hover the mouse over the target video in the right window, and click the **Details** icon.
-
-#### Step 3: Turn on Comments
-
-From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
-
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-## FAQs About YouTube Comments
-
-#### 1\. Why can’t I comment on the YouTube video?
-
-There could be several reasons for this. For instance, the video or the entire channel is configured as ‘Made for kids’ by the owner, comments are disabled for the video or the channel by the owner, you are using some inappropriate words in the comment that have been temporarily blocked by YouTube, and the text requires to be reviewed and approved by the owner before it becomes visible, etc.
-
-#### 2\. I want people to comment on my Private video. What should I do?
-
-At the time of this writing, YouTube doesn’t allow anyone to post a comment on any video that has been set as ‘Private’. If your video is configured that way, you must change its nature to ‘Unlisted’, and share its link to the users before they can post a comment.
-
-#### 3\. How can I block certain words and links on the YouTube comments?
-
-You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
-
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
-
-#### 4\. If I turn comments off and back on again, will the old comments come back?
-
-Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
-
-#### 5\. If I change my comment settings, will the existing comments be impacted?
-
-That depends on the nature of the comments. For instance, if you modify the settings, the changes are reflected on the comments posted on the new videos, and the new comments on your channel homepage. However, there will be no impact on the existing comments on the existing videos, new comments on the existing videos, and the existing comments on your channel’s homepage.
-
-**Conclusion**
-
-It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-YouTube comments are enabled by default, and if they aren’t, learning **how to turn on comments on YouTube** is extremely simple. One of the major benefits of having the comments enabled on your YouTube videos is that you get genuine feedback from your audiences.
-
-As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
-
-Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
-
-## Part 1: How to Turn on or Turn off Comments for YouTube Channel
-
-If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
-
-#### Step 1: Get to YouTube Studio
-
-Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
-
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-#### Step 2: Go to Channel’s Advanced Settings
-
-From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
-
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-#### Step 3: Turn Off Comments
-
-From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
-
-To turn on comments on **all the videos on your YouTube channel**, you can follow the instructions given below:
-
-#### 1\. Set Channel Videos as Not Made for Kids
-
-Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
-
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-#### 2\. Define Acceptable Comment Types
-
-Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
-
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
-
-#### 3\. Set Comment Allowance for Videos
-
-Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
-
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-#### **Additional Info about Comments Options**
-
-The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
-
-* **Allow all comments**
-
-When you choose this option, YouTube allows everyone to post any kind of comment, irrespective of how inappropriate or unacceptable the text is.
-
-* **Hold potentially inappropriate comments for review**
-
-This option allows all the comments from all the users only if YouTube assumes that the text is safe, and doesn’t contain any inappropriate words. In case YouTube detects some objectionable content such as spam or slang, the comment is not published, until you review the text, and approve it manually.
-
-* **Hold all comments for review**
-
-Selecting this option holds all the comments from all the users, and waits for you to review and allow or disallow each of them manually.
-
-* **Disable comments**
-
-When this option is selected, no one can post a comment to the video(s) whatsoever.
-
-## Part 2: Turn on or Turn off Comments for Specific Videos
-
-As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
-
-To learn **how to turn on comments on YouTube** for a specific video, you can follow the steps given below:
-
-#### Step 1: Go to the Content Page
-
-Use the method explained earlier to go to **YouTube Studio**, and click **Content** from the navigation bar in the left.
-
-#### Step 2: Go to the Target Video’s Details Page
-
-Hover the mouse over the target video in the right window, and click the **Details** icon.
-
-#### Step 3: Turn on Comments
-
-From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
-
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
-
-**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## FAQs About YouTube Comments
-
-#### 1\. Why can’t I comment on the YouTube video?
-
-There could be several reasons for this. For instance, the video or the entire channel is configured as ‘Made for kids’ by the owner, comments are disabled for the video or the channel by the owner, you are using some inappropriate words in the comment that have been temporarily blocked by YouTube, and the text requires to be reviewed and approved by the owner before it becomes visible, etc.
-
-#### 2\. I want people to comment on my Private video. What should I do?
-
-At the time of this writing, YouTube doesn’t allow anyone to post a comment on any video that has been set as ‘Private’. If your video is configured that way, you must change its nature to ‘Unlisted’, and share its link to the users before they can post a comment.
-
-#### 3\. How can I block certain words and links on the YouTube comments?
-
-You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
-
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
-
-#### 4\. If I turn comments off and back on again, will the old comments come back?
-
-Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
-
-#### 5\. If I change my comment settings, will the existing comments be impacted?
-
-That depends on the nature of the comments. For instance, if you modify the settings, the changes are reflected on the comments posted on the new videos, and the new comments on your channel homepage. However, there will be no impact on the existing comments on the existing videos, new comments on the existing videos, and the existing comments on your channel’s homepage.
-
-**Conclusion**
-
-It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-YouTube comments are enabled by default, and if they aren’t, learning **how to turn on comments on YouTube** is extremely simple. One of the major benefits of having the comments enabled on your YouTube videos is that you get genuine feedback from your audiences.
-
-As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
-
-Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
-
-## Part 1: How to Turn on or Turn off Comments for YouTube Channel
-
-If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
-
-#### Step 1: Get to YouTube Studio
-
-Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
-
-![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
-
-#### Step 2: Go to Channel’s Advanced Settings
-
-From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
-
-![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-#### Step 3: Turn Off Comments
-
-From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
-
-To turn on comments on **all the videos on your YouTube channel**, you can follow the instructions given below:
-
-#### 1\. Set Channel Videos as Not Made for Kids
-
-Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
-
-![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-#### 2\. Define Acceptable Comment Types
-
-Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
-
-![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
-
-#### 3\. Set Comment Allowance for Videos
-
-Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
-
-![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
-
-#### **Additional Info about Comments Options**
-
-The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
-
-* **Allow all comments**
-
-When you choose this option, YouTube allows everyone to post any kind of comment, irrespective of how inappropriate or unacceptable the text is.
-
-* **Hold potentially inappropriate comments for review**
-
-This option allows all the comments from all the users only if YouTube assumes that the text is safe, and doesn’t contain any inappropriate words. In case YouTube detects some objectionable content such as spam or slang, the comment is not published, until you review the text, and approve it manually.
-
-* **Hold all comments for review**
-
-Selecting this option holds all the comments from all the users, and waits for you to review and allow or disallow each of them manually.
-
-* **Disable comments**
-
-When this option is selected, no one can post a comment to the video(s) whatsoever.
-
-## Part 2: Turn on or Turn off Comments for Specific Videos
-
-As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
-
-To learn **how to turn on comments on YouTube** for a specific video, you can follow the steps given below:
-
-#### Step 1: Go to the Content Page
-
-Use the method explained earlier to go to **YouTube Studio**, and click **Content** from the navigation bar in the left.
-
-#### Step 2: Go to the Target Video’s Details Page
-
-Hover the mouse over the target video in the right window, and click the **Details** icon.
-
-#### Step 3: Turn on Comments
-
-From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
-
-![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
-
-**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-## FAQs About YouTube Comments
-
-#### 1\. Why can’t I comment on the YouTube video?
-
-There could be several reasons for this. For instance, the video or the entire channel is configured as ‘Made for kids’ by the owner, comments are disabled for the video or the channel by the owner, you are using some inappropriate words in the comment that have been temporarily blocked by YouTube, and the text requires to be reviewed and approved by the owner before it becomes visible, etc.
-
-#### 2\. I want people to comment on my Private video. What should I do?
-
-At the time of this writing, YouTube doesn’t allow anyone to post a comment on any video that has been set as ‘Private’. If your video is configured that way, you must change its nature to ‘Unlisted’, and share its link to the users before they can post a comment.
-
-#### 3\. How can I block certain words and links on the YouTube comments?
-
-You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
-
-![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-#### 4\. If I turn comments off and back on again, will the old comments come back?
-
-Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
-
-#### 5\. If I change my comment settings, will the existing comments be impacted?
-
-That depends on the nature of the comments. For instance, if you modify the settings, the changes are reflected on the comments posted on the new videos, and the new comments on your channel homepage. However, there will be no impact on the existing comments on the existing videos, new comments on the existing videos, and the existing comments on your channel’s homepage.
-
-**Conclusion**
-
-It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
 
@@ -687,6 +673,19 @@ TubeBuddy’s tools were designed to save you time and effort when performing so
 3. [**Quick Optimization for Your Video’s Tags**](#tags)
 4. [**Useful Data**](#data)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Benefits of TubeBuddy**
 
 YouTubers who use TubeBuddy are able to spend less time on busy-work and more time on coming up with creative video ideas. Here are some of the ways TubeBuddy can help you, especially if you have a large or mid-sized channel:
@@ -771,10 +770,10 @@ Another great productivity tool is the Video Topic Planner. You can save video i
 **![TubeBuddy bulk tools](https://images.wondershare.com/filmora/article-images/tubebuddy-bulk-tools.jpg)**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Most of TubeBuddy’s bulk processing tools require a $19 per month Star license.
@@ -800,6 +799,13 @@ Another interesting tool, which is unfortunately only available with $39 license
  Have you ever tried TubeBuddy for YouTube?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -887,20 +893,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-new-to-youtube-how-to-skip-the-top-8-common-errors-on-your-platform-journey/"><u>[New] 2024 Approved New to YouTube How to Skip the Top 8 Common Errors on Your Platform Journey</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-enhancing-youtube-videos-proper-lighting-methods/"><u>[New] Enhancing YouTube Videos Proper Lighting Methods</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-youtube-earnings-a-monetization-checklist-for-2024/"><u>[New] Mastering YouTube Earnings A Monetization Checklist for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creating-professional-edits-using-youtube-studio-editor/"><u>2024 Approved Creating Professional Edits Using YouTube Studio Editor</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boost-viewers-interaction-via-youtube-cards-for-2024/"><u>Boost Viewers Interaction via YouTube Cards for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boosting-streams-switching-to-av1-in-youtubes-settings-for-2024/"><u>Boosting Streams Switching to AV1 in YouTube's Settings for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-v30-lite-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo V30 Lite 5G</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/direct-transmission-of-google-meet-into-your-youtube-playlist-for-2024/"><u>Direct Transmission of Google Meet Into Your YouTube Playlist for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/faster-adjustment-of-youtube-videos-for-mac-pixels/"><u>Faster Adjustment of YouTube Videos for Mac Pixels</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-get-overwatch-2-running-smoothly-a-guide-to-7-crucial-fixes/"><u>How to Get Overwatch 2 Running Smoothly : A Guide to 7 Crucial Fixes</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-branding-101-brainstorm-techniques/"><u>In 2024, Channel Branding 101 Brainstorm Techniques</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-approaches-in-micro-cinematography/"><u>In 2024, Innovative Approaches in Micro Cinematography</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-secrets-the-best-dronescopic-stabilizers-reviewed/"><u>In 2024, Unveiling Secrets The Best Dronescopic Stabilizers Reviewed</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-gadgets-with-toms-guide-to-computer-peripherals/"><u>Mastering Gadgets with Tom's Guide to Computer Peripherals</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-into-ais-future-with-gpt-4-nevertheless-platinum-still-rewards-users-with-6-significant-advantages/"><u>Step Into AI's Future with GPT-4! Nevertheless, Platinum Still Rewards Users With 6 Significant Advantages.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-discover-the-epic-android-video-editor-apps/"><u>[New] Discover the Epic Android Video Editor Apps</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-mastering-color-changes-11-essential-tips-for-2024/"><u>[New] Mastering Color Changes 11 Essential Tips for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-best-practices-for-youtube-video-brightness-and-contrast/"><u>[Updated] Best Practices for YouTube Video Brightness and Contrast</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-direct-mp4-uploader-perfect-for-facebook-channels/"><u>[Updated] Direct MP4 Uploader Perfect for Facebook Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-compelling-freefire-vids-with-strategy-guide/"><u>2024 Approved Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>Confirm Monetization Accuracy Essential Steps for Your YT Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dailymotion-vs-youtube-who-earns-more-from-video-content-in-2024/"><u>Dailymotion vs YouTube Who Earns More From Video Content, In 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-get-and-install-updated-dell-latitude-e6430-drivers-successfully-on-a-windows-pc/"><u>How to Get and Install Updated Dell Latitude E6430 Drivers Successfully on a Windows PC</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-itel-s23plusfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Itel S23+FRP Lock</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1723808309818-save-big-claim-your-20-off-deal-using-the-official-driver-easy-coupon-start-now/"><u>Save Big: Claim Your 20% Off Deal Using the Official Driver Easy Coupon - Start Now</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-creme-de-la-creme-ranking-the-best-eight-games-for-your-subscription-on-google-play/"><u>The Crème De La Crème: Ranking the Best Eight Games for Your Subscription on Google Play</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-advice-comprehensive-guides-on-computer-hardware/"><u>Tom's Tech Advice: Comprehensive Guides on Computer Hardware</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-xiaomi-redmi-note-12r-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Xiaomi Redmi Note 12R to Other Android Devices | Dr.fone</u></a></li>
 </ul></div>
 

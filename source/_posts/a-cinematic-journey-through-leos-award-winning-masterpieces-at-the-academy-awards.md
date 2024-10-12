@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2024-10-01T01:53:15.400Z
-updated: 2024-10-06T19:43:06.135Z
+date: 2024-10-09T19:40:54.484Z
+updated: 2024-10-12T17:52:29.553Z
 tags:
   - youtube-download
 categories:
@@ -27,16 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -54,10 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -226,10 +220,10 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -249,18 +243,14 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-demystifying-youtubes-seo-a-keyword-research-guide/"><u>[New] Demystifying YouTube's SEO A Keyword Research Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-excellence-in-entertainment-the-finest-offline-ios-games/"><u>[Updated] 2024 Approved Excellence in Entertainment - The Finest Offline iOS Games</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-beyond-simplicity-exploring-the-intricacies-of-youtubes-view-count-algorithm/"><u>[Updated] Beyond Simplicity Exploring the Intricacies of YouTube’s View Count Algorithm</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-funimate-masterclass-gameplay-enhancement/"><u>[Updated] Funimate Masterclass Gameplay Enhancement</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-elevate-your-tweeted-visuals-ultimate-gif-saver-guide/"><u>[Updated] In 2024, Elevate Your Tweeted Visuals Ultimate GIF Saver Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-top-10-non-native-screen-capture-applications-for-2024/"><u>[Updated] Top 10 Non-Native Screen Capture Applications for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-acceleratedecelerate-your-youtube-videos-a-step-by-step-guide/"><u>2024 Approved Accelerate/Decelerate Your YouTube Videos A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-buzzing-beats-leading-music-distortion-apps/"><u>In 2024, Buzzing Beats Leading Music Distortion Apps</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Vivo Y78+? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/pro-freefire-compiling-premier-gaming-vids-and-hashtags/"><u>Pro-FreeFire Compiling Premier Gaming Vids and Hashtags</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reviving-inactive-cpu-cooler-directive-for-os/"><u>Reviving Inactive CPU Cooler Directive for OS</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-get-the-scoop-on-vn-video-editor-for-pc/"><u>Updated In 2024, Get the Scoop on VN Video Editor for PC</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-captivating-openings-top-free-intra-makers-list/"><u>[New] Crafting Captivating Openings Top Free Intra Makers List</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-guide-to-digital-audio-streaming-and-recording-for-2024/"><u>[New] The Ultimate Guide to Digital Audio Streaming & Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-extract-and-play-fb-soundtracks/"><u>[Updated] In 2024, Extract and Play FB Soundtracks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-optimal-solution-for-actions-screening-for-2024/"><u>[Updated] Optimal Solution for Actions Screening for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-imagery-tale-constructor/"><u>2024 Approved Exclusive Imagery Tale Constructor</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/consistent-viewing-automatic-youtube-video-playback-on-tv/"><u>Consistent Viewing Automatic YouTube Video Playback on TV</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-ensuring-authenticity-as-you-aspire-for-one-million-video-watches/"><u>In 2024, Ensuring Authenticity as You Aspire for One Million Video Watches</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/orchestrated-journey-through-youtubes-undisclosed-content/"><u>Orchestrated Journey Through YouTube's Undisclosed Content</u></a></li>
 </ul></div>
 

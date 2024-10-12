@@ -1,7 +1,7 @@
 ---
 title: "\"Zero-Cost Techniques for Video and Text Combination\""
-date: 2024-09-30T16:41:48.121Z
-updated: 2024-10-01T16:30:11.481Z
+date: 2024-10-11T16:27:43.059Z
+updated: 2024-10-12T16:18:48.358Z
 tags:
   - ai video
   - ai youtube
@@ -150,6 +150,13 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -164,6 +171,13 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -176,29 +190,22 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -211,10 +218,10 @@ You should start by creating a new project in Filmora and importing the video yo
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
@@ -226,13 +233,6 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -296,25 +296,11 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -452,6 +438,13 @@ In this article, I will show you how to find great tags for your YouTube videos 
 2. [Try YouTube Tag Generators](#gen)
 3. [Study Your YouTube Rivals' Tags](#rival)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to Find YouTube Tags \[3 Effective Ways\]
 
 ### 1. Use YouTube’s Auto-Suggest Tool to Get Tags
@@ -461,13 +454,6 @@ YouTube’s search engine can be your best ally on the quest for great tags. Thi
 ![ Find YouTube Video Tag](https://images.wondershare.com/filmora/article-images/find-youtube-tag-by-searching.jpg)
 
 This method may not be too precise, but the idea is to quickly gather information and perhaps get some inspiration for more creative or complex tags. Most of the suggestions will be logical, but there can be a few unexpected combinations you’d never think of. Be very careful when translating the findings to your own situation, since the fact that some terms are popular doesn’t mean they are relevant for your video. Another problem is that slightly altered terminology can significantly change the effectiveness of the tag, so you should ideally use the suggested phrases in the exact form as you found them or not at all. If you do make adjustments, you should test the new tag through the same auto-complete tool and see how it fares.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2.  Try YouTube Tag Generators
 
@@ -500,10 +486,10 @@ Currently used to manage more than 30,000 YouTube channels, this powerful video 
 What’s your YouTube tag strategy?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: YouTube Tag FAQs
@@ -610,6 +596,13 @@ There are lots of filters, overlays and effects pre-programmed in [Wondershare F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -641,6 +634,13 @@ In this article, I will show you how to find great tags for your YouTube videos 
 YouTube’s search engine can be your best ally on the quest for great tags. This tool was created to aid users who are looking for content on the platform, and content creators can benefit from it as well. By typing the general topic of your video, or a few words vaguely related to your video, into the search bar on YouTube you can see suggestions that reflect what viewers are searching for and take some of those suggestions into consideration for your tags. With every new phrase (and even every additional character you type), new options will appear. By playing around with this tool you will gain valuable insight into the searching habits of YouTube viewers.
 
 ![ Find YouTube Video Tag](https://images.wondershare.com/filmora/article-images/find-youtube-tag-by-searching.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This method may not be too precise, but the idea is to quickly gather information and perhaps get some inspiration for more creative or complex tags. Most of the suggestions will be logical, but there can be a few unexpected combinations you’d never think of. Be very careful when translating the findings to your own situation, since the fact that some terms are popular doesn’t mean they are relevant for your video. Another problem is that slightly altered terminology can significantly change the effectiveness of the tag, so you should ideally use the suggested phrases in the exact form as you found them or not at all. If you do make adjustments, you should test the new tag through the same auto-complete tool and see how it fares.
 
@@ -717,16 +717,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-break-free-from-fee-free-youtube-start-at-500plus-subscriber-level/"><u>[New] Break Free From Fee-Free Youtube - Start at 500+ Subscriber Level</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-comprehensive-tutorial-easy-ios-device-screen-capture-for-2024/"><u>[New] Comprehensive Tutorial Easy iOS Device Screen Capture for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-your-profit-with-these-top-10-simplified-youtube-business-channels/"><u>[New] Elevate Your Profit with These Top 10 Simplified YouTube Business Channels</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlock-your-fcp-potential-with-these-10-plugs/"><u>[New] Unlock Your FCP Potential with These 10 Plugs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-boost-cash-flow-with-these-5-instagram-hacks/"><u>[Updated] 2024 Approved Boost Cash Flow with These 5 Instagram Hacks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-achieve-financial-success-on-youtube-start-at-500-views/"><u>[Updated] Achieve Financial Success on YouTube Start at 500 Views</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-streamline-your-tiktok-videos-effortlessly/"><u>[Updated] In 2024, Streamline Your TikTok Videos Effortlessly</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-conjoin-video-streams-for-queue-curation/"><u>2024 Approved Conjoin Video Streams for Queue Curation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-tips-for-incorporating-songs-in-instagram-stories-withwithout/"><u>In 2024, Tips for Incorporating Songs in Instagram Stories (With/Without)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/monetization-tracker-tool-for-online-videos/"><u>Monetization Tracker Tool for Online Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726029546658-mp4mov/"><u>オンライン MP4へのMOVファイル変換サービスとして最適なウェブサイトをご紹介</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-sites-for-fetching-video-intro-files/"><u>[New] Essential Sites for Fetching Video Intro Files</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-ideal-frames-per-second-for-excellent-slow-mo-videos/"><u>[New] Unveiling Ideal Frames Per Second For Excellent Slow-Mo Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-ig-music-companion/"><u>[Updated] 2024 Approved The Ultimate IG Music Companion</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-ensuring-authenticity-of-your-youtube-account/"><u>[Updated] Ensuring Authenticity of Your YouTube Account</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-peek-into-pixel-play-resolution-basics-explained/"><u>[Updated] Peek Into Pixel Play Resolution Basics Explained</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-utilizing-zoom-to-upgrade-tiktok-video-aesthetics/"><u>[Updated] Utilizing Zoom to Upgrade TikTok Video Aesthetics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income/"><u>2024 Approved Charting Success Navigating a 3-Step Strategy for Tracking YouTube Income</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/decoding-varieties-in-hand-motion-tracking-for-2024/"><u>Decoding Varieties in Hand Motion Tracking for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/earning-through-eyes-the-actual-youtube-view-count-needed-for-2024/"><u>Earning Through Eyes The Actual YouTube View Count Needed for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-avoiding-poverty-earning-in-beauty-media/"><u>In 2024, Avoiding Poverty Earning in Beauty Media</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-privacy-tip-remove-spotifys-auto-podcast-suggestions/"><u>In 2024, Privacy Tip Remove Spotify's Auto-Podcast Suggestions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-the-top-10-apple-iphone-15-pro-max-emualtors-for-windows-mac-and-android-drfone-by-drfone-ios/"><u>In 2024, The Top 10 Apple iPhone 15 Pro Max Emualtors for Windows, Mac and Android | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/realme-gt-5-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme GT 5 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-audio-pace-via-devices/"><u>Streamlining YouTube Audio Pace via Devices</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-advantages-and-disadvantages-of-using-chatgpt-for-crafting-written-art/"><u>The Advantages and Disadvantages of Using ChatGPT for Crafting Written Art</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-economy-streamlining-youtube-videos/"><u>The Art of Economy Streamlining YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transformative-strategies-for-broadcast-excellence-wirecast-on-youtube/"><u>Transformative Strategies for Broadcast Excellence WireCast on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/visionary-vittles-steps-to-craft-food-films/"><u>Visionary Vittles Steps to Craft Food Films</u></a></li>
 </ul></div>
 
