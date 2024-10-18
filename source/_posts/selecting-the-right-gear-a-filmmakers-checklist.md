@@ -1,7 +1,7 @@
 ---
 title: "\"Selecting the Right Gear  A Filmmaker's Checklist\""
-date: 2024-08-27T08:39:08.162Z
-updated: 2024-08-28T08:39:08.162Z
+date: 2024-10-14T18:16:50.124Z
+updated: 2024-10-18T18:39:35.987Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
 # YouTube Video Shooting Equipment List: What You Need to Start Recording Videos
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,6 +31,13 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 ## What Equipment Will You Need to Start Your New YouTube Channel?
 
  The process of creating a video can be divided into three different stages, the pre-production, production, and post-production. Each stage has its own tools, without which completing a video would be impossible. In this article, we will be covering the equipment that will make the production stage of the process much smoother, and it will also help you to go through post-production much faster.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Equipment 1: Camera
 
@@ -81,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
  Check: [best microphones for YouTube vloggers.]( https://filmora.wondershare.com/vlogger/best-microphone-for-youtuber-videos.html)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Equipment 3: Video Stabilization Equipment
 
  Holding a camera in your hand while shooting a video is often not the best idea, because even breathing may cause the camera to move and produce camera shakes. That's where [tripods](https://tools.techidaily.com/wondershare/filmora/download/), steadicams, [gimbals](https://tools.techidaily.com/wondershare/filmora/download/), rigs and other video stabilization equipment comes in. As a matter of fact, you should only shoot handheld videos when you want to achieve this effect, while all another camera movement should be avoided without the use of appropriate equipment.
@@ -89,9 +100,6 @@ thumbnail: https://thmb.techidaily.com/7a3bff4e2eede5438bb2fccedcb9095f7ad51baa5
 
  Check our list of [best camera stabilizer for YouTubers in 2018]( https://filmora.wondershare.com/vlogger/best-camera-stabilizers-for-youtube.html).
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 4: Lighting Equipment
 
  Instead of struggling with natural light sources and having to deal with shadows, you can simply use the [lighting equipment](https://tools.techidaily.com/wondershare/filmora/download/) to equalize the light values in a shot. Of course, whether or not you will use artificial light in your video depends on a number of factors, including the location and the visual style you're trying to achieve.
@@ -134,9 +142,6 @@ Follow @Richard Bennett
 
  You can also [make YouTube videos with just your phone](https://tools.techidaily.com/wondershare/filmora/download/), check this video for more details.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2. Action Cameras
@@ -193,9 +198,6 @@ Follow @Richard Bennett
 
  We'd love to hear all about the gear you're using to capture your videos, so leave a comment and let us know.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -213,17 +215,12 @@ Follow @Richard Bennett
  On the other hand, buying the most expensive microphones, lighting equipment or cameras doesn't guarantee that your videos will be a major success once you post them on YouTube. Instead, you should look for the equipment that is best suited for the type of videos you want to create. Let's explore the equipment that is necessary for running a successful YouTube channel.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What Equipment Will You Need to Start Your New YouTube Channel?
 
  The process of creating a video can be divided into three different stages, the pre-production, production, and post-production. Each stage has its own tools, without which completing a video would be impossible. In this article, we will be covering the equipment that will make the production stage of the process much smoother, and it will also help you to go through post-production much faster.
@@ -264,9 +261,6 @@ Follow @Richard Bennett
 
  With a DSLR camera, you can also use it a webcam for recording your face and your desktop screen at the same time, check [how to use a DSLR camera as a webcam]( https://filmora.wondershare.com/webcam-recording/use-dslr-camera-as-webcam.html).
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 2: Microphones
 
  Moving images are less effective without sound, which is the reason why you should pay close attention to this aspect of the video making process. All cameras have built-in microphones, but the audio quality they produce is often not good enough to actually use it in a YouTube video. That's why recording sound with an external microphone is a common practice among the most successful YouTubers.
@@ -277,9 +271,6 @@ Follow @Richard Bennett
 
  Check: [best microphones for YouTube vloggers.]( https://filmora.wondershare.com/vlogger/best-microphone-for-youtuber-videos.html)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 3: Video Stabilization Equipment
 
  Holding a camera in your hand while shooting a video is often not the best idea, because even breathing may cause the camera to move and produce camera shakes. That's where [tripods](https://tools.techidaily.com/wondershare/filmora/download/), steadicams, [gimbals](https://tools.techidaily.com/wondershare/filmora/download/), rigs and other video stabilization equipment comes in. As a matter of fact, you should only shoot handheld videos when you want to achieve this effect, while all another camera movement should be avoided without the use of appropriate equipment.
@@ -288,9 +279,6 @@ Follow @Richard Bennett
 
  Check our list of [best camera stabilizer for YouTubers in 2018]( https://filmora.wondershare.com/vlogger/best-camera-stabilizers-for-youtube.html).
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 4: Lighting Equipment
 
  Instead of struggling with natural light sources and having to deal with shadows, you can simply use the [lighting equipment](https://tools.techidaily.com/wondershare/filmora/download/) to equalize the light values in a shot. Of course, whether or not you will use artificial light in your video depends on a number of factors, including the location and the visual style you're trying to achieve.
@@ -319,16 +307,10 @@ Follow @Richard Bennett
 
  On the other hand, buying the most expensive microphones, lighting equipment or cameras doesn't guarantee that your videos will be a major success once you post them on YouTube. Instead, you should look for the equipment that is best suited for the type of videos you want to create. Let's explore the equipment that is necessary for running a successful YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What Equipment Will You Need to Start Your New YouTube Channel?
 
  The process of creating a video can be divided into three different stages, the pre-production, production, and post-production. Each stage has its own tools, without which completing a video would be impossible. In this article, we will be covering the equipment that will make the production stage of the process much smoother, and it will also help you to go through post-production much faster.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 1: Camera
 
  You can't shoot a video without a camera, but which camera you're going to use depends on the type of the video you want to produce. Sometimes the camera that offers the most shooting options is not the best choice, and different factors like size or the weight of the camera can be much more important than the sheer quality of the footage.
@@ -365,9 +347,6 @@ Follow @Richard Bennett
 
  With a DSLR camera, you can also use it a webcam for recording your face and your desktop screen at the same time, check [how to use a DSLR camera as a webcam]( https://filmora.wondershare.com/webcam-recording/use-dslr-camera-as-webcam.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 2: Microphones
 
  Moving images are less effective without sound, which is the reason why you should pay close attention to this aspect of the video making process. All cameras have built-in microphones, but the audio quality they produce is often not good enough to actually use it in a YouTube video. That's why recording sound with an external microphone is a common practice among the most successful YouTubers.
@@ -386,9 +365,6 @@ Follow @Richard Bennett
 
  Check our list of [best camera stabilizer for YouTubers in 2018]( https://filmora.wondershare.com/vlogger/best-camera-stabilizers-for-youtube.html).
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Equipment 4: Lighting Equipment
 
  Instead of struggling with natural light sources and having to deal with shadows, you can simply use the [lighting equipment](https://tools.techidaily.com/wondershare/filmora/download/) to equalize the light values in a shot. Of course, whether or not you will use artificial light in your video depends on a number of factors, including the location and the visual style you're trying to achieve.
@@ -402,6 +378,13 @@ Follow @Richard Bennett
  We'd love to hear all about the gear you're using to capture your videos, so leave a comment and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -421,9 +404,6 @@ Follow @Richard Bennett
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Guiding You Through YouTube's Security Settings
 
 # How to Change the Privacy Setting on Your YouTube Videos
@@ -444,20 +424,95 @@ Follow @Richard Bennett
 
  Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
+## Part 1: Public VS Unlisted VS Private
+
+ Let's figure out some terms before runing into the how-to part.
+
+ **Public Videos**
+
+ These are videos that everyone can view. This is the majority of YouTube videos, and just about every one you’ve ever watched will have been public. You'll want this if you want lots of people to watch your video.
+
+ **Unlisted**
+
+ Unlisted videos are ones that anybody can view so long as they have the link. The video won’t show up on search results or in "related" or "suggested" videos.
+
+ This is a great setting for sharing a video amongst small groups. You might have a rough edit you want to show a few people, or you might have a show reel that you only want certain people to see.
+
+ **Private**
+
+ Completely private videos cannot be watched by anyone who doesn’t have permission. You grant people permission by allowing their Google accounts to access the video. Nobody else can see the video, regardless of whether they have the link.
+
+ It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
+
+![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 2: How to Change Privacy Settings
+
+ There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
+
+**Method 1:**
+
+ When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
+
+![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
+
+**Method 2:**
+
+ To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
+
+![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+ To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+## Part 3: Sharing Private Videos
+
+ If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
+
+![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+## Conclusion
+
+ And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Privacy settings on YouTube allow you to control who can see your videos. There are three settings — Public, unlisted, and private. This article will give you a brief introduction of what those three settings mean, and how to use them.
+
+* [**Part1: Public VS Unlisted VS Private**](#part1)
+* [**Part2: How to Change Privacy Settings**](#part2)
+* [**Part2: Sharing Private Videos**](#part3)
+
+---
+
+ Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -510,9 +565,6 @@ No advertising on the website.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -535,16 +587,10 @@ Follow @Richard Bennett
 
  Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -565,9 +611,6 @@ Follow @Richard Bennett
 
  It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 ## Part 2: How to Change Privacy Settings
@@ -584,11 +627,14 @@ Follow @Richard Bennett
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
@@ -599,15 +645,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -632,21 +679,10 @@ Follow @Richard Bennett
 
  Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -683,109 +719,17 @@ Follow @Richard Bennett
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 3: Sharing Private Videos
-
- If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
-
-![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
-
-## Conclusion
-
- And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
-
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
- Privacy settings on YouTube allow you to control who can see your videos. There are three settings — Public, unlisted, and private. This article will give you a brief introduction of what those three settings mean, and how to use them.
-
-* [**Part1: Public VS Unlisted VS Private**](#part1)
-* [**Part2: How to Change Privacy Settings**](#part2)
-* [**Part2: Sharing Private Videos**](#part3)
-
----
-
- Want to make your YouTube videos more beautiful within minutes? Here we recommend an easy-to-use video editing software for beginner for your reference - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Part 1: Public VS Unlisted VS Private
-
- Let's figure out some terms before runing into the how-to part.
-
- **Public Videos**
-
- These are videos that everyone can view. This is the majority of YouTube videos, and just about every one you’ve ever watched will have been public. You'll want this if you want lots of people to watch your video.
-
- **Unlisted**
-
- Unlisted videos are ones that anybody can view so long as they have the link. The video won’t show up on search results or in "related" or "suggested" videos.
-
- This is a great setting for sharing a video amongst small groups. You might have a rough edit you want to show a few people, or you might have a show reel that you only want certain people to see.
-
- **Private**
-
- Completely private videos cannot be watched by anyone who doesn’t have permission. You grant people permission by allowing their Google accounts to access the video. Nobody else can see the video, regardless of whether they have the link.
-
- It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
-
-![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
-
-## Part 2: How to Change Privacy Settings
-
- There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
-
-**Method 1:**
-
- When you upload a video to YouTube you'll see on the right hand side an option that says "privacy". This is defaulted to "public", but you can use the drop-down menu on the button to change the setting. This will apply your privacy setting the second the video finishes uploading and processing.
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
-
-**Method 2:**
-
- To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
-
-![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
-
- To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -819,9 +763,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-charting-social-media-trends-with-data-graphics/"><u>[New] Charting Social Media Trends with Data Graphics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-enhancing-video-visibility-on-youtube-with-imaginative-thumbnails/"><u>[New] Enhancing Video Visibility on YouTube with Imaginative Thumbnails</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-swipe-for-success-the-art-of-flipping-videos-on-instagram-for-2024/"><u>[New] Swipe for Success The Art of Flipping Videos on Instagram for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-continuous-rotation-vs-3d-image-construction/"><u>[Updated] In 2024, Continuous Rotation vs 3D Image Construction</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-echoes-of-privacy-recovering-from-a-hack/"><u>[Updated] In 2024, Echoes of Privacy Recovering From a Hack</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/100plus-gaming-channel-names-for-every-gamer-filmora/"><u>100+ Gaming Channel Names for Every Gamer - Filmora</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-acer-trackpad-drivers-optimized-for-windows-10/"><u>Download the Newest Acer TrackPad Drivers Optimized for Windows 10!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/effortless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube/"><u>Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-motorola-moto-g14-easily-by-drfone-android/"><u>How To Unlock a Motorola Moto G14 Easily?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-f5-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Poco F5 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-music-sticker-how-to-get-the-music-sticker-on-instagram/"><u>Instagram Music Sticker How to Get the Music Sticker on Instagram</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/intercept-non-requested-youtube-video-alerts/"><u>Intercept Non-Requested YouTube Video Alerts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-view-counts-by-upholding-youtubes-cc-license/"><u>Mastering View Counts by Upholding YouTube's CC License</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-15-youtube-channels-for-stock-market-to-follow/"><u>Top 15 YouTube Channels for Stock Market to Follow</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-choices-pro-shake-free-cameras-for-video-streams/"><u>Top Choices Pro Shake-Free Cameras for Video Streams</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/understanding-and-repairing-igdkmd64sys-causing-bsod-on-windows-10-solution-walkthrough/"><u>Understanding and Repairing igdkmd64.sys Causing BSOD on Windows 10 [Solution Walkthrough]</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/whats-new-in-ipados-version-18-launch-details-cost-free-access-and-key-enhancements/"><u>What's New in iPadOS Version 18? Launch Details, Cost-Free Access & Key Enhancements!</u></a></li>
+</ul></div>
 

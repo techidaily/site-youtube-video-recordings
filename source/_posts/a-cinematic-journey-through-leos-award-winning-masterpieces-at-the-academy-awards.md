@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2024-10-09T19:40:54.484Z
-updated: 2024-10-12T17:52:29.553Z
+date: 2024-10-11T18:05:20.396Z
+updated: 2024-10-18T17:32:26.659Z
 tags:
   - youtube-download
 categories:
@@ -27,10 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -48,10 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -220,10 +220,16 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -243,14 +249,16 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-captivating-openings-top-free-intra-makers-list/"><u>[New] Crafting Captivating Openings Top Free Intra Makers List</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-guide-to-digital-audio-streaming-and-recording-for-2024/"><u>[New] The Ultimate Guide to Digital Audio Streaming & Recording for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-extract-and-play-fb-soundtracks/"><u>[Updated] In 2024, Extract and Play FB Soundtracks</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-optimal-solution-for-actions-screening-for-2024/"><u>[Updated] Optimal Solution for Actions Screening for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-imagery-tale-constructor/"><u>2024 Approved Exclusive Imagery Tale Constructor</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/consistent-viewing-automatic-youtube-video-playback-on-tv/"><u>Consistent Viewing Automatic YouTube Video Playback on TV</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-ensuring-authenticity-as-you-aspire-for-one-million-video-watches/"><u>In 2024, Ensuring Authenticity as You Aspire for One Million Video Watches</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Sony Xperia 1 V? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/orchestrated-journey-through-youtubes-undisclosed-content/"><u>Orchestrated Journey Through YouTube's Undisclosed Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-capture-chuckles-quickly-efficient-methods-for-exciting-youtube-reaction-videos-3-tips/"><u>[New] Capture Chuckles Quickly Efficient Methods for Exciting YouTube Reaction Videos (3 Tips)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-the-perfect-youtube-channel-url-a-quick-guide/"><u>[New] Crafting the Perfect YouTube Channel Url A Quick Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-scaling-your-channel-a-guide-to-increased-viewership-and-followers/"><u>[New] In 2024, Scaling Your Channel A Guide to Increased Viewership and Followers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-groundbreaking-feedback-vllo-review/"><u>[Updated] 2024 Approved Groundbreaking Feedback VLLO Review</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-filmmakers-guide-to-mastering-green-screen-technology/"><u>2024 Approved A Filmmaker's Guide to Mastering Green Screen Technology</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/earnings-escalate-500-subscriber-marker-achieved/"><u>Earnings Escalate 500-Subscriber Marker Achieved</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-usb-30-and-gigabit-network-card-drivers-to-boost-your-pcs-network-performance-on-windows/"><u>Get the Latest USB 3.0 & Gigabit Network Card Drivers to Boost Your PC's Network Performance on Windows</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-depth-tech-reviews-by-tom-uncover-the-latest-in-computing-hardware/"><u>In-Depth Tech Reviews by Tom - Uncover the Latest in Computing Hardware</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mp4audacity/"><u>MP4動画から音声素材を抽出するAudacityユーザー向けレシピ</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-oppo-reno-10-proplus-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-filmmakers-toolkit-essential-tips-for-youtube-creators-with-smartphones/"><u>The Filmmaker's Toolkit Essential Tips for YouTube Creators with Smartphones</u></a></li>
 </ul></div>
 

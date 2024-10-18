@@ -1,7 +1,7 @@
 ---
 title: "\"Personalized Melodies Made Easy  Building a YouTube Music Collection on Web/Mobile\""
-date: 2024-08-31T12:24:00.254Z
-updated: 2024-09-01T12:24:00.254Z
+date: 2024-10-14T17:24:28.673Z
+updated: 2024-10-18T16:59:46.210Z
 tags:
   - ai video
   - ai youtube
@@ -34,18 +34,12 @@ Step1 In the first step, turn on your PC, launch a web browser from the desktop 
 
 ![signing into youtube](https://images.wondershare.com/filmora/article-images/2023/03/signing-into-youtube.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** It is only possible to create a YouTube music playlist by signing into your account.
 
 Step2 When you have signed in, look for your favorite track on the YouTube live feed page or search for it in the search bar at the top of the screen. Once you have found the song, click on it to play it, click the three horizontal dots at the bottom right-hand side of the video, and select the **"Save"** option from the small pop-up.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![saving youtube video music](https://images.wondershare.com/filmora/article-images/2023/03/saving-youtube-video-music.png)
 
 Step3
@@ -66,14 +60,8 @@ Finally, click the **"Create"** button, and your YouTube music playlist will be 
 
 Step4 Repeat the second and third steps to save all the other songs you wish to add to the same playlist. Once done, head back to the main YouTube feed page, click "Library," and scroll to the middle of the page in the right pane to access and play the music playlist at your will.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![accessing youtube playlists on web](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-playlists-on-web.png)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
@@ -86,9 +74,23 @@ Step1 Download and launch the YouTube Music app on your [iPhone](https://apps.ap
 
 ![create playlist on youtube music iPhone app](https://images.wondershare.com/filmora/article-images/2023/03/create-playlist-on-youtube-music-iPhone-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Now tap the three horizontal lines with the Plus icon, tap **"+ NEW PLAYLIST"** at the bottom right corner of the screen, and type in the name of the new music playlist.
 
 ![new playlist option on youtube music app](https://images.wondershare.com/filmora/article-images/2023/03/new-playlist-option-on-youtube-music-app.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 In the next step, type in the name of your new playlist, select your privacy preferences, i.e., Private, Public, or unlisted, and tap **"Create"** to complete the process.
 
@@ -96,9 +98,6 @@ Step3 In the next step, type in the name of your new playlist, select your priva
 
 Finally, close the video, tap **"Library"** at the bottom of the screen, scroll down and see your new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Create a YouTube Music playlist on Android?
 
 YouTube Music app interface for Android is different than for iPhone, so do the following steps to create a new playlist quickly.
@@ -111,9 +110,6 @@ Then, tap **"Create a new playlist"** at the bottom right corner of the screen, 
 
 Step2 In the next step, choose your privacy preferences and tap **"OK"** to create the new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![creating youtube music playlist android](https://images.wondershare.com/filmora/article-images/2023/03/creating-youtube-music-playlist-android.png)
 
 Now tap to close the video, tap **"Library"** at the bottom of the screen, scroll down in the middle of the app and view your new YouTube music playlist.
@@ -122,9 +118,6 @@ Now tap to close the video, tap **"Library"** at the bottom of the screen, scrol
 
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
 
 You know how to create a YouTube playlist on the web or on your mobile. However, as you are a music lover and use YouTube frequently, are you interested in creating music videos by yourself? If yes, please watch the video below. It will show you how to make music videos with a user-friendly video editor, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). We hope you can enjoy your YouTube music while exploring more creative possibilities:
@@ -133,9 +126,6 @@ You know how to create a YouTube playlist on the web or on your mobile. However,
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Listening to YouTube's free music tracks is more fun when you do not have to go and forth to search for your favorite songs. You can enjoy the experience more when you have personalized playlists for situations like a long drive, studying, or working in an office.
@@ -152,9 +142,6 @@ Step3
 * Type in the name of your playlist.
 * Choose to make it **Public**, **Unlisted**, or **Private**.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube create a new playlist](https://images.wondershare.com/filmora/article-images/2023/03/youtube-create-a-new-playlist.png)
 
 The differences between the three options are:
@@ -167,12 +154,16 @@ Finally, click the **"Create"** button, and your YouTube music playlist will be 
 
 Step4 Repeat the second and third steps to save all the other songs you wish to add to the same playlist. Once done, head back to the main YouTube feed page, click "Library," and scroll to the middle of the page in the right pane to access and play the music playlist at your will.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![accessing youtube playlists on web](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-playlists-on-web.png)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
 
@@ -194,9 +185,6 @@ Step3 In the next step, type in the name of your new playlist, select your priva
 
 Finally, close the video, tap **"Library"** at the bottom of the screen, scroll down and see your new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Create a YouTube Music playlist on Android?
 
 YouTube Music app interface for Android is different than for iPhone, so do the following steps to create a new playlist quickly.
@@ -213,16 +201,10 @@ Step2 In the next step, choose your privacy preferences and tap **"OK"** to crea
 
 Now tap to close the video, tap **"Library"** at the bottom of the screen, scroll down in the middle of the app and view your new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
 
 You know how to create a YouTube playlist on the web or on your mobile. However, as you are a music lover and use YouTube frequently, are you interested in creating music videos by yourself? If yes, please watch the video below. It will show you how to make music videos with a user-friendly video editor, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). We hope you can enjoy your YouTube music while exploring more creative possibilities:
@@ -253,9 +235,6 @@ So, in this article, we have discussed a step-by-step process for creating **a Y
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -278,222 +257,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
-
-#### 1. **[VidCon](http://vidcon.com/)**
-
-**VidCon US:** June (Anaheim, California)
-
-**VidCon Europe (Amsterdam):** March/April
-
-**VidCon Australia:** August/September
-
-![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
-
-In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
-
-VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
-
-**Passes:**
-
-There are three different types of passes for VidCon – the Community Track, the Creator Track, and the Industry Track.
-
-The **Community Track** is for anyone who loves YouTube and wants a chance to see their favorite creators and meet other fans. Pricing ranges from $100 to $180, depending on how early you buy your ticket.
-
-The **Creator Track** gets you to access to all the same events as the Community badges (except for the Meet & Greet Lottery\*), plus even more panels and workshops that will help you become a better creator. Pricing ranges from $150 to $250 depending on how early you buy your ticket.
-
-The **Industry Track** is for anyone working in online video or video-adjacent industries, like advertising, branding, or talent management. There are panels on online marketing and working with influencers. Pricing ranges from $550 to $850, depending on when you buy your ticket.
-
- \*The Meet and Greet Lottery is a chance for anyone attending with a Community or Industry pass to meet their favorite creator. You rank the 15 creators you’d most like to meet according to how much you want to meet them. A computerized system will determine who gets into which Meet & Greet.
-
-You have a two-week window (usually the first half of May) to submit your choices.
-
-#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
-
-**Orlando, Florida:** April/May
-
-**Tri-State (Secaucus, New Jersey):** September
-
-**Washington DC:** September
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
-![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
-
-Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
-
-Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
-
-**Passes:**
-
-Pricing may vary depending on which event you are attending and how early you purchase your ticket. The following ranges are an estimate. Not all pass types are available for all events.
-
-The **Standard Pass** ($75 - $130) is the basic pass for fans of the online video who want to meet their favorite creators, play games, and have a great time.
-
-The **Standard Pass + Merch** ($100-$155) gets you into the same events as the standard pass plus a t-shirt and a wristband.
-
-The **Standard Deluxe** ($120 - $205) comes with a hoodie, sunglasses, and a commemorative ticket.
-
-The **Parent Pass/Parent + Merch/Parent Deluxe** ($75-$200) is for parents who want to chaperone their kids around Playlist Live and includes access to everything the Standard Pass can access.
-
-The **Insight Pass** ($150-$205) is for anyone who wants to learn more about being a digital creator. You get Standard access as well as workshops and panels for successful creators and industry professionals designed to help you on your path.
-
-The **Insight + Merch/Insight Deluxe Passes** ($175-$280) you get the same access as an Insight Pass plus goodies like shirts, wristbands, commemorative tickets, and sunglasses.
-
-The **Premium Pass** ($250-$404) grants you standard access plus early access for meetup registration and a special VIP meetup.
-
-There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
-
-#### 3. **[Beautycon Festivals](https://beautycon.com/)**
-
-**Los Angeles:** July
-
-**New York:** April
-
-**London, UK:** November
-
-![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
-
-Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
-
-In 2017, 30,000 people attended Beautycon festivals internationally.
-
-**Passes:**
-
-**Two-Day General Admission** ($69) gets you in for the whole weekend, and you’ll also get a fabric wristband and other goodies.
-
-You can also get a **One-Day General Admission** to pass for $49\.
-
-The **Two-Day Hauler** pass ($199) gets you in the doors 2 hours before the General Admission passes, plus a VIP swag bag.
-
-General Admission and Hauler passes do not include access to programmed meetups.
-
-**Two-Day All Access** passes ($999) include early entry as well as reserved seating in the front row at the Min Stage, photo opportunities in the Halo Room, a tour of the Creator Gifting Suite, custom merch, credit at the Beautycon Shop online, plus everything from the General and Hauler packs.
-
-The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everything the All-Access pass has plus a 2-night stay at a hotel downtown (for the LA festival).
-
-#### 4. **YouTube FanFest**
-
-These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
-
-There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
-
-#### 5. **[RTX](https://www.rtxaustin.com/)**
-
-**Austin, Texas:** August
-
-[**London:**](https://rtxlondon.com/) September
-
-Sydney, Australia: February
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
-![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
-
-**Passes:**
-
-It costs $50 for a **Friday** or **Sunday** pass, and $55 for just **Saturday**. You’ll get an attendee bag and lanyard with your pass.
-
-The **Weekend** pass costs $110, and you get access to all 3 days plus the bag/lanyard and 1 autograph code.
-
-A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plus 2 autograph codes, early access to the Expo hall on Friday, lounge access, and reserved seating at the stage.
-
-The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
-
-#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
-
-**Sydney, Australia:** April
-
-**Melbourne, Australia:** April
-
-These events showcase the biggest social medial talent and musical acts in Australia and New Zealand. In 2017 the headliners of the Cool for Summer tour were Lindsey Stirling, Dan & Phil, and Nash Grier.
-  
-Tickets for the **Cool for Summer** tour cost $65 or $75 AUD depending on how early you buy them.
-
-For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
-
-**Meet and Greet** tickets must be purchased separately from your event ticket.
-
-**Silver Meet and Greet**, $80 AUD: access to the ‘Cool for Summer Celebrity Zone’ featuring non-headliner talent.
-
-**Gold Meet and Greet**, $189 AUD: access to the ‘Cool for Summer Celebrity Zone’ plus a guaranteed meeting with one of the headliners (you choose which when you purchase).
-
-**Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
-
-#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
-
-**London, UK:** August
-
-![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
-
-This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
-
-Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
-
-There is one day of Summer in the City called ‘Creator Day’ (generally on Friday), which features educational workshops for creators and industry professionals.
-
-**Passes:**
-
-If you buy your tickets during early bird pricing, the prices will look like this:
-
-**Saturday** OR **Sunday**: £30.00
-
-**Saturday** AND **Sunday**: £45.00
-
-**Creator Day**: £30.00
-
-**Creator Day + Weekend**: £60.00
-
-**Industry Ticket**: £100.00
-
-Have you ever attended an offline YouTube event? Which one, and how did you like it?
-
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Dec 30, 2022• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Want to meet your favorite creators? Or, do you want to become a better creator yourself? There are huge conventions you can go to where you can both indulge in fandom and work on your skills. Here are the 7 largest and most well-known:
-
-1. [VidCon (US/Europe/Australia)](#vidcon)
-2. [PlayList Live (US)](#playlist)
-3. [Beautycon (US/UK)](#beautycon)
-4. [YouTube Fanfest (Various international locations)](#fanfest)
-5. [RTX (US/UK/Australia)](#rtx)
-6. [Amplify Live (Australia)](#amplify)
-7. [Summer in the City (UK)](#sitc)
-
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
-## **The Most Important YouTube Events**
-
-Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
-
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 #### 1. **[VidCon](http://vidcon.com/)**
@@ -590,9 +353,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -605,9 +365,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -670,9 +427,6 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -775,6 +529,19 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -797,9 +564,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -812,9 +576,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -902,13 +663,24 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -918,14 +690,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 **VidCon Australia:** August/September
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -988,9 +752,224 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
+![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
+
+In 2017, 30,000 people attended Beautycon festivals internationally.
+
+**Passes:**
+
+**Two-Day General Admission** ($69) gets you in for the whole weekend, and you’ll also get a fabric wristband and other goodies.
+
+You can also get a **One-Day General Admission** to pass for $49\.
+
+The **Two-Day Hauler** pass ($199) gets you in the doors 2 hours before the General Admission passes, plus a VIP swag bag.
+
+General Admission and Hauler passes do not include access to programmed meetups.
+
+**Two-Day All Access** passes ($999) include early entry as well as reserved seating in the front row at the Min Stage, photo opportunities in the Halo Room, a tour of the Creator Gifting Suite, custom merch, credit at the Beautycon Shop online, plus everything from the General and Hauler packs.
+
+The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everything the All-Access pass has plus a 2-night stay at a hotel downtown (for the LA festival).
+
+#### 4. **YouTube FanFest**
+
+These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
+
+![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
+
+#### 5. **[RTX](https://www.rtxaustin.com/)**
+
+**Austin, Texas:** August
+
+[**London:**](https://rtxlondon.com/) September
+
+Sydney, Australia: February
+
+![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
+
+**Passes:**
+
+It costs $50 for a **Friday** or **Sunday** pass, and $55 for just **Saturday**. You’ll get an attendee bag and lanyard with your pass.
+
+The **Weekend** pass costs $110, and you get access to all 3 days plus the bag/lanyard and 1 autograph code.
+
+A **Weekend Plus** ($335) pass gets you everything the Weekend pass gets you plus 2 autograph codes, early access to the Expo hall on Friday, lounge access, and reserved seating at the stage.
+
+The **Platinum** pass is the most expensive at $729, and it includes everything the Weekend Plus pass does plus a priority line for panels, priority seating, and an exclusive party.
+
+#### 6. **[Amplify Live](http://www.thisisamplify.com/blog/cool-for-summer-amplifylive-syd-mel-faqs)**
+
+**Sydney, Australia:** April
+
+**Melbourne, Australia:** April
+
+These events showcase the biggest social medial talent and musical acts in Australia and New Zealand. In 2017 the headliners of the Cool for Summer tour were Lindsey Stirling, Dan & Phil, and Nash Grier.
+  
+Tickets for the **Cool for Summer** tour cost $65 or $75 AUD depending on how early you buy them.
+
+For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
+
+**Meet and Greet** tickets must be purchased separately from your event ticket.
+
+**Silver Meet and Greet**, $80 AUD: access to the ‘Cool for Summer Celebrity Zone’ featuring non-headliner talent.
+
+**Gold Meet and Greet**, $189 AUD: access to the ‘Cool for Summer Celebrity Zone’ plus a guaranteed meeting with one of the headliners (you choose which when you purchase).
+
+**Platinum Meet & Greet**, $450 AUD: meet all the headliners and get access to an exclusive VIP area, merch pack, and special entry.
+
+#### 7. **[Summer in the City](https://www.sitc-event.co.uk/)**
+
+**London, UK:** August
+
+![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
+
+This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
+
+Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
+
+There is one day of Summer in the City called ‘Creator Day’ (generally on Friday), which features educational workshops for creators and industry professionals.
+
+**Passes:**
+
+If you buy your tickets during early bird pricing, the prices will look like this:
+
+**Saturday** OR **Sunday**: £30.00
+
+**Saturday** AND **Sunday**: £45.00
+
+**Creator Day**: £30.00
+
+**Creator Day + Weekend**: £60.00
+
+**Industry Ticket**: £100.00
+
+Have you ever attended an offline YouTube event? Which one, and how did you like it?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Dec 30, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Want to meet your favorite creators? Or, do you want to become a better creator yourself? There are huge conventions you can go to where you can both indulge in fandom and work on your skills. Here are the 7 largest and most well-known:
+
+1. [VidCon (US/Europe/Australia)](#vidcon)
+2. [PlayList Live (US)](#playlist)
+3. [Beautycon (US/UK)](#beautycon)
+4. [YouTube Fanfest (Various international locations)](#fanfest)
+5. [RTX (US/UK/Australia)](#rtx)
+6. [Amplify Live (Australia)](#amplify)
+7. [Summer in the City (UK)](#sitc)
+
+## **The Most Important YouTube Events**
+
+Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+#### 1. **[VidCon](http://vidcon.com/)**
+
+**VidCon US:** June (Anaheim, California)
+
+**VidCon Europe (Amsterdam):** March/April
+
+**VidCon Australia:** August/September
+
+![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
+
+VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
+
+**Passes:**
+
+There are three different types of passes for VidCon – the Community Track, the Creator Track, and the Industry Track.
+
+The **Community Track** is for anyone who loves YouTube and wants a chance to see their favorite creators and meet other fans. Pricing ranges from $100 to $180, depending on how early you buy your ticket.
+
+The **Creator Track** gets you to access to all the same events as the Community badges (except for the Meet & Greet Lottery\*), plus even more panels and workshops that will help you become a better creator. Pricing ranges from $150 to $250 depending on how early you buy your ticket.
+
+The **Industry Track** is for anyone working in online video or video-adjacent industries, like advertising, branding, or talent management. There are panels on online marketing and working with influencers. Pricing ranges from $550 to $850, depending on when you buy your ticket.
+
+ \*The Meet and Greet Lottery is a chance for anyone attending with a Community or Industry pass to meet their favorite creator. You rank the 15 creators you’d most like to meet according to how much you want to meet them. A computerized system will determine who gets into which Meet & Greet.
+
+You have a two-week window (usually the first half of May) to submit your choices.
+
+#### 2. **[PlayList Live](http://www.playlist-live.com/home.php)**
+
+**Orlando, Florida:** April/May
+
+**Tri-State (Secaucus, New Jersey):** September
+
+**Washington DC:** September
+
+![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
+
+Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
+
+**Passes:**
+
+Pricing may vary depending on which event you are attending and how early you purchase your ticket. The following ranges are an estimate. Not all pass types are available for all events.
+
+The **Standard Pass** ($75 - $130) is the basic pass for fans of the online video who want to meet their favorite creators, play games, and have a great time.
+
+The **Standard Pass + Merch** ($100-$155) gets you into the same events as the standard pass plus a t-shirt and a wristband.
+
+The **Standard Deluxe** ($120 - $205) comes with a hoodie, sunglasses, and a commemorative ticket.
+
+The **Parent Pass/Parent + Merch/Parent Deluxe** ($75-$200) is for parents who want to chaperone their kids around Playlist Live and includes access to everything the Standard Pass can access.
+
+The **Insight Pass** ($150-$205) is for anyone who wants to learn more about being a digital creator. You get Standard access as well as workshops and panels for successful creators and industry professionals designed to help you on your path.
+
+The **Insight + Merch/Insight Deluxe Passes** ($175-$280) you get the same access as an Insight Pass plus goodies like shirts, wristbands, commemorative tickets, and sunglasses.
+
+The **Premium Pass** ($250-$404) grants you standard access plus early access for meetup registration and a special VIP meetup.
+
+There is also business **Passes** with Merch and Deluxe (Business Deluxe can cost up to $330) options for people working in marketing, publicity, production, etc. These passes include access to an extra day of business and industry-specific programming.
+
+#### 3. **[Beautycon Festivals](https://beautycon.com/)**
+
+**Los Angeles:** July
+
+**New York:** April
+
+**London, UK:** November
+
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -1089,9 +1068,6 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -1113,9 +1089,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-cutting-edge-easy-to-use-mastering-magix-vpxs-capabilities/"><u>[New] Cutting Edge, Easy to Use Mastering Magix VPX's Capabilities</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-free-logos-sculpt-your-brand-with-stock-imagery/"><u>[New] In 2024, Free Logos Sculpt Your Brand with Stock Imagery</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-poco-c55-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Poco C55</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/arquivos-de-historico-vs-backup-en-windows-seleccionando-la-mejor-opcion-para-su-almacenamiento-seguro/"><u>Arquivos De Histórico Vs. Backup en Windows: Seleccionando La Mejor Opción Para Su Almacenamiento Seguro</u></a></li>
+<li><a href="https://driver-error.techidaily.com/automobile-rejected-by-tech-gear/"><u>Automobile Rejected by Tech Gear</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/collaborate-for-success-video-strategies/"><u>Collaborate for Success Video Strategies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/constructing-captivating-valorant-youtube-thumbnails/"><u>Constructing Captivating Valorant YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-viewers-to-patrons-a-vloggers-guide-to-income/"><u>Elevating Viewers to Patrons A Vlogger's Guide to Income</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/expert-tips-for-creating-dynamic-youtube-splits/"><u>Expert Tips for Creating Dynamic YouTube Splits</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/home-studio-heroics-your-path-to-effectful-artistry/"><u>Home Studio Heroics Your Path to Effectful Artistry</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-vivo-y78t-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Vivo Y78t</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-apple-iphone-11-pro-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock Apple iPhone 11 Pro in Lost Mode</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-decoding-the-wealth-of-mr-beast/"><u>In 2024, Decoding the Wealth of Mr. Beast</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-a-list-playbook-swiftly-climb-the-social-ladder-on-instagram-with-these-essentials/"><u>In 2024, The A-List Playbook Swiftly Climb the Social Ladder on Instagram with These Essentials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximize-screen-tv-playback-for-youtube-clips/"><u>Maximize Screen TV Playback for YouTube Clips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximizing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-the-asus-ax6000-rt-ax88u-your-new-smart-wi-fi-6-powerhouse/"><u>The Ultimate Guide to the Asus AX6000 RT-AX88U - Your New Smart Wi-Fi 6 Powerhouse!</u></a></li>
+<li><a href="https://media-tips.techidaily.com/troubleshooting-common-issues-with-windows-10-media-players/"><u>Troubleshooting Common Issues with Windows 10 Media Players</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-link-building-101-a-content-marketers-guide/"><u>YouTube Link-Building 101 A Content Marketer's Guide</u></a></li>
+</ul></div>
 
