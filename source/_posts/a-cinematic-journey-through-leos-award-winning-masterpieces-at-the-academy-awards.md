@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2024-10-11T18:05:20.396Z
-updated: 2024-10-18T17:32:26.659Z
+date: 2024-10-18T10:12:31.772Z
+updated: 2024-10-24T02:15:35.599Z
 tags:
   - youtube-download
 categories:
@@ -27,10 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -48,10 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -220,16 +220,10 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -249,16 +243,22 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-capture-chuckles-quickly-efficient-methods-for-exciting-youtube-reaction-videos-3-tips/"><u>[New] Capture Chuckles Quickly Efficient Methods for Exciting YouTube Reaction Videos (3 Tips)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-the-perfect-youtube-channel-url-a-quick-guide/"><u>[New] Crafting the Perfect YouTube Channel Url A Quick Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-scaling-your-channel-a-guide-to-increased-viewership-and-followers/"><u>[New] In 2024, Scaling Your Channel A Guide to Increased Viewership and Followers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-groundbreaking-feedback-vllo-review/"><u>[Updated] 2024 Approved Groundbreaking Feedback VLLO Review</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-filmmakers-guide-to-mastering-green-screen-technology/"><u>2024 Approved A Filmmaker's Guide to Mastering Green Screen Technology</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/earnings-escalate-500-subscriber-marker-achieved/"><u>Earnings Escalate 500-Subscriber Marker Achieved</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-usb-30-and-gigabit-network-card-drivers-to-boost-your-pcs-network-performance-on-windows/"><u>Get the Latest USB 3.0 & Gigabit Network Card Drivers to Boost Your PC's Network Performance on Windows</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-depth-tech-reviews-by-tom-uncover-the-latest-in-computing-hardware/"><u>In-Depth Tech Reviews by Tom - Uncover the Latest in Computing Hardware</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mp4audacity/"><u>MP4動画から音声素材を抽出するAudacityユーザー向けレシピ</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-oppo-reno-10-proplus-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-filmmakers-toolkit-essential-tips-for-youtube-creators-with-smartphones/"><u>The Filmmaker's Toolkit Essential Tips for YouTube Creators with Smartphones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-amplify-your-channels-evading-synthetic-watchers/"><u>[New] Amplify Your Channels Evading Synthetic Watchers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-building-a-broad-spectrum-audience-with-multichannel-strategy/"><u>[New] Building a Broad-Spectrum Audience with Multichannel Strategy</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-the-maze-of-public-television-download/"><u>[New] Navigating the Maze of Public Television Download</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-portal-to-successful-online-marketing-our-showcase-of-over-50-free-banners-awaits-you/"><u>[New] Your Portal to Successful Online Marketing - Our Showcase of Over 50 Free Banners Awaits You</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-practice-animation-series/"><u>[Updated] Best Practice Animation Series</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1716070041248-updated-in-2024-discover-the-best-mac-gif-recorders-now/"><u>[Updated] In 2024, Discover the Best Mac GIF Recorders Now!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-insight-advancements-in-home-video-recordings-for-2024/"><u>[Updated] The Ultimate Insight Advancements in Home Video Recordings for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-a-winning-edge-mastering-keywords-in-digital-marketing/"><u>2024 Approved Crafting a Winning Edge Mastering Keywords in Digital Marketing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>2024 Approved Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-practices-for-live-streaming-services-and-local-channels/"><u>Best Practices for Live Streaming Services & Local Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/blitz-broadcasting-channel-your-playlist-swiftly-for-2024/"><u>Blitz Broadcasting Channel Your Playlist Swiftly for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-f5-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Poco F5 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-immediate-video-removal-by-facebook-an-overview-of-processes/"><u>In 2024, Immediate Video Removal by Facebook - An Overview of Processes</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-prevent-these-8-key-mishaps-on-your-youtube-journey/"><u>In 2024, Prevent These 8 Key Mishaps on Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-ten-dos-and-donts-in-the-youtube-world/"><u>Top Ten Do's and Don'ts in the YouTube World</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unwanted-no-more-top-7-android-apps-to-eliminate-ads/"><u>Unwanted No More! Top 7 Android Apps to Eliminate Ads</u></a></li>
 </ul></div>
 
