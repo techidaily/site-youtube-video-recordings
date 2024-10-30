@@ -1,7 +1,7 @@
 ---
 title: "\"Mr. Beast's Wealth  Estimated Net Worth\""
-date: 2024-09-09T04:24:34.072Z
-updated: 2024-09-10T04:24:34.072Z
+date: 2024-10-25T04:17:34.537Z
+updated: 2024-10-29T19:43:40.108Z
 tags:
   - ai video
   - ai youtube
@@ -14,12 +14,6 @@ keywords: "MrBeastNetWorth,WealthEstimateMrBeast,MrBeastWealthValue,BeastMoneyTa
 thumbnail: https://thmb.techidaily.com/b7ac3fecaf39cbf4ad53ade68b5607328fb5fc5fabf85fb01691cb6e94c786a0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mr. Beast's Wealth: Estimated Net Worth
 
 Have you ever wondered how much a YouTuber might make by just uploading a video? Does it intrigue you how the famous YouTubers became famous in the first place?
@@ -30,12 +24,6 @@ We will now go through the life of Mr. Beast and know how much Mr. Beast earns, 
 
 1. [How to create quality content with Wondershare Filmora](#part4-1)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Who is Mr. Beast?
 
 ![mr beast](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-1.jpg)
@@ -58,24 +46,12 @@ Here’s a quick biography of Mr. Beast.
 
 After getting an overview of who he is, the following article will reveal what makes Jimmy so famous on YouTube and how much money Mr. Beast makes from YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Mr. Beast YouTube Income
 
 Mr. Beast is the second most known YouTuber in the world, in terms of the number of subscribers. He has established himself as a successful YouTube at such a young age by earning around $30 million yearly, which makes his bank accounts boil.
 
 ![mrbeast youtube channel](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Mr. Beast’s YouTube income is around $3 Million per month, which mostly goes back into making the videos. Most of his income is generated through ads, sponsored posts, and brand deals.
 
 | **Mr.Beast’s YouTube Stats** |                    |
@@ -123,20 +99,22 @@ Mr. Beast’s carefully crafted videos have a unique element of motion graphics 
 
 Have a look at his most viewed video that captured around 245 million views. It showcased a Real-life Squid Game challenge![$456,000 Squid Game In Real Life!](https://youtu.be/0e3GPea1Tyg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![mrbeast’s video squid game in real-life](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-4.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Feel-Good Element**
 
 You might have looked at the creative side of Mr. Beast uptil now, but he is also a very generous human. While helping people in terms of cash prizes, he donates most of his income to his family, friends, and charity.
@@ -190,29 +168,24 @@ This software gives easy access to videos necessary for the edit and helps you m
 ![import files](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-5.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##### Step2 Insert the video in timelines
 
 To insert a video in the timeline section, drag and drop the files from the media library that will serve as the background video in the first track, then drag and drop another video that you want to add on top of the background video in the second track.
 
 ![insert the video in timelines](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step3 Alter Speed and Duration Settings
 
 You may alter the duration of the video using the Speed and Duration Settings.
@@ -227,18 +200,6 @@ You can also access the editing interface to adjust the position of the video on
 
 ![adjust the position](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step5 Advance editing
 
 Some advanced editing can also be done to make the video more impressive. Double-click the video to open the editing panel. You can carry out multiple tasks like
@@ -247,28 +208,10 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 2\. Adjust the tone of video
 
 ![adjusting the tone](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3\. Change the colors of video
 
 ![adjust the colors of video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-11.jpg)
@@ -278,11 +221,12 @@ Some advanced editing can also be done to make the video more impressive. Double
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Filmora also has the feature of applying masks to the video; these come in different shapes and positions and can be adjusted accordingly.
 
 ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-13.jpg)
@@ -297,18 +241,6 @@ Go to the top menu and click on effects; you can find many of them; they are cat
 
 ![filmora effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-14.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Stock Videos:**
 
 Go to the official site of [Filmora video stocks](https://filmstock.wondershare.com/). There are a large number of video templates, stock videos, images, and audio files.
@@ -318,6 +250,13 @@ You can also access the stock videos from Pixels, Giphy, Pixabay, and Unsplash w
 Now you can easily find content to make your videos attractive.
 
 ![filmora stock media](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Elements:**
 
@@ -342,19 +281,14 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Words
 
 YouTube has made careers of a lot of people under the banner of creative video content that could otherwise go unnoticed.
@@ -367,12 +301,6 @@ Part 1: Who is Mr. Beast?
 
 ![mr beast](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Jimmy Donaldson, famously known as Mr. Beast, is a sensational young talent who got renowned due to his YouTube channel. His content comprises mainly Gameplay Videos, Worst intros, and much more. He’s also appreciated for his philanthropy and his deep love for charity.
 
 Here’s a quick biography of Mr. Beast.
@@ -452,12 +380,6 @@ You might have looked at the creative side of Mr. Beast uptil now, but he is als
 
 The keen element of his video is to generate enough engagement that would help him spare the money for the poor, and that is what stands him out.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus Tips: How To Be a Successful YouTuber and Make Videos Like Mr. Beast
 
 Becoming a successful YouTuber like MrBeast is not too complicated. Here are some bonus tips:
@@ -504,24 +426,12 @@ This software gives easy access to videos necessary for the edit and helps you m
 
 ![import files](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step2 Insert the video in timelines
 
 To insert a video in the timeline section, drag and drop the files from the media library that will serve as the background video in the first track, then drag and drop another video that you want to add on top of the background video in the second track.
 
 ![insert the video in timelines](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step3 Alter Speed and Duration Settings
 
 You may alter the duration of the video using the Speed and Duration Settings.
@@ -530,12 +440,6 @@ Similarly, if you want to add more than one video together, you can carry out th
 
 ![speed and duration settings](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4 Adjust the size and positioning of the video
 
 You can also access the editing interface to adjust the position of the video on top. Simply drag the sliders on the interface to change the size, direction and position of the video.
@@ -550,12 +454,6 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 2\. Adjust the tone of video
 
 ![adjusting the tone](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-10.jpg)
@@ -564,12 +462,6 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 ![adjust the colors of video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4\. Play with the audio.
 
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
@@ -588,12 +480,6 @@ Go to the top menu and click on effects; you can find many of them; they are cat
 
 ![filmora effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Stock Videos:**
 
 Go to the official site of [Filmora video stocks](https://filmstock.wondershare.com/). There are a large number of video templates, stock videos, images, and audio files.
@@ -612,12 +498,6 @@ Find multiple elements from the Element section beside the effects and transitio
 
 ![filmora elements](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Transition:**
 
 Transition smoothens the video, especially when various clips are combined. Use transitions from the Filmora Transition section and set the stage for the next scene, convey the mood and smoothen your YouTube video.
@@ -632,20 +512,8 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Words
 
 YouTube has made careers of a lot of people under the banner of creative video content that could otherwise go unnoticed.
@@ -684,18 +552,6 @@ Best Sony Vegas Alternative to Edit YouTube Videos - Even though Sony Vegas is q
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Amongst these, there are tons of other benefits that you can take advantage of.
 
 * It has over 200 unique styles you can take your pick from
@@ -704,12 +560,71 @@ Amongst these, there are tons of other benefits that you can take advantage of.
 
 ---
 
+## How to Edit YouTube Videos in Sony Vegas
+
+Let's walk through the process of editing.
+
+#### Step 1: Import Videos
+
+The first thing that you would need to do is import the video clip that you would want to re-shape and edit. In order to do so, you want to click on the File button and then go to Import. You will see a side menu on which you need to click Media and select the file that you want to upload. Keep in mind that you might have to wait for a short period of time while the videos are being uploaded.
+
+![Importing Clips](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-1.jpg)
+
+**Note:** You can also import videos which have been published on your channel by downloading them and saving them as MP4 files. On the other hand, if you have the intention of editing videos published on other channels, you might want to use [Wondershare Video Converter Ultimate](https://tools.techidaily.com/wondershare/videoconverter/download/) in order to download and convert them to your Mac and get them imported on Sony Vegas.
+
+#### Step 2: Edit the video and audio files on the Timeline
+
+![Timeline](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
+
+Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
+
+#### Step 3: Add special effects
+
+![Effects](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-3.jpg)
+
+Of course, what's video editing software without powerful special effect capabilities? You will see the special effects tab located on the left side of your screen. You can easily browse throughout all of them in order to get a sense of what you can achieve with your video. There are quite a lot of different special effects that you can incorporate in your YouTube video and make it perfect.
+
+#### Step 4: Export
+
+![Color Match](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-5.jpg)
+
+This is the thing that you need to do once you are done with the process to edit YouTube videos with Sony Vegas. It's a very easy task to handle and if you've come that far you are already on the finish line. Go to File -> Export and choose the specific extension that you want to use. The clip is going to be saved in the directory that you've selected, and it's ready to watch and upload.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+[Sony Vegas (Vegas Movie Studio)](https://tools.techidaily.com/wondershare/filmora/download/) is renowned and particularly popular video editing software which is going to provide you with quite a lot of convenience. It is light, easy to work with and has comprehensive command tools which would provide you with prominent video editing capabilities. You can choose through a variety of exportation presets, including YouTube HD videos. In this article, we'are going to show you how to edit your YouTube Videos with Sony Vegas Pro.
+
+---
+
+Best Sony Vegas Alternative to Edit YouTube Videos - Even though Sony Vegas is quite comprehensive, it does require knowledge on behalf of the user. Unlike it, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a perfect alternative which would provide you with all the necessary capabilities without presuming any kind of skills on your particular behalf. With this in mind, let's take a look at some of the benefits:
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Amongst these, there are tons of other benefits that you can take advantage of.
+
+* It has over 200 unique styles you can take your pick from
+* It has animated captions that you can add conveniently
+* It has a wide range of different templates and credits that you can use
+
+---
+
 ## How to Edit YouTube Videos in Sony Vegas
 
 Let's walk through the process of editing.
@@ -733,11 +648,12 @@ Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the c
 ![Effects](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Of course, what's video editing software without powerful special effect capabilities? You will see the special effects tab located on the left side of your screen. You can easily browse throughout all of them in order to get a sense of what you can achieve with your video. There are quite a lot of different special effects that you can incorporate in your YouTube video and make it perfect.
 
 #### Step 4: Export
@@ -766,12 +682,6 @@ Best Sony Vegas Alternative to Edit YouTube Videos - Even though Sony Vegas is q
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Amongst these, there are tons of other benefits that you can take advantage of.
 
 * It has over 200 unique styles you can take your pick from
@@ -780,118 +690,6 @@ Amongst these, there are tons of other benefits that you can take advantage of.
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Edit YouTube Videos in Sony Vegas
-
-Let's walk through the process of editing.
-
-#### Step 1: Import Videos
-
-The first thing that you would need to do is import the video clip that you would want to re-shape and edit. In order to do so, you want to click on the File button and then go to Import. You will see a side menu on which you need to click Media and select the file that you want to upload. Keep in mind that you might have to wait for a short period of time while the videos are being uploaded.
-
-![Importing Clips](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-**Note:** You can also import videos which have been published on your channel by downloading them and saving them as MP4 files. On the other hand, if you have the intention of editing videos published on other channels, you might want to use [Wondershare Video Converter Ultimate](https://tools.techidaily.com/wondershare/videoconverter/download/) in order to download and convert them to your Mac and get them imported on Sony Vegas.
-
-#### Step 2: Edit the video and audio files on the Timeline
-
-![Timeline](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
-
-#### Step 3: Add special effects
-
-![Effects](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-3.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Of course, what's video editing software without powerful special effect capabilities? You will see the special effects tab located on the left side of your screen. You can easily browse throughout all of them in order to get a sense of what you can achieve with your video. There are quite a lot of different special effects that you can incorporate in your YouTube video and make it perfect.
-
-#### Step 4: Export
-
-![Color Match](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-This is the thing that you need to do once you are done with the process to edit YouTube videos with Sony Vegas. It's a very easy task to handle and if you've come that far you are already on the finish line. Go to File -> Export and choose the specific extension that you want to use. The clip is going to be saved in the directory that you've selected, and it's ready to watch and upload.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-[Sony Vegas (Vegas Movie Studio)](https://tools.techidaily.com/wondershare/filmora/download/) is renowned and particularly popular video editing software which is going to provide you with quite a lot of convenience. It is light, easy to work with and has comprehensive command tools which would provide you with prominent video editing capabilities. You can choose through a variety of exportation presets, including YouTube HD videos. In this article, we'are going to show you how to edit your YouTube Videos with Sony Vegas Pro.
-
----
-
-Best Sony Vegas Alternative to Edit YouTube Videos - Even though Sony Vegas is quite comprehensive, it does require knowledge on behalf of the user. Unlike it, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a perfect alternative which would provide you with all the necessary capabilities without presuming any kind of skills on your particular behalf. With this in mind, let's take a look at some of the benefits:
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Amongst these, there are tons of other benefits that you can take advantage of.
-
-* It has over 200 unique styles you can take your pick from
-* It has animated captions that you can add conveniently
-* It has a wide range of different templates and credits that you can use
-
----
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Edit YouTube Videos in Sony Vegas
 
 Let's walk through the process of editing.
@@ -908,12 +706,6 @@ The first thing that you would need to do is import the video clip that you woul
 
 ![Timeline](https://images.wondershare.com/filmora/article-images/beginner-tips-for-vegas-pro-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sony Vegas introduces a Timeline with Video and Audio tracks. They contain the clips you've used in the entire editing process. You can edit them by aligning them as you see fit in order to come up with the best sequence. You can also add additional tracks. In order to do so, all you need to do is right click on the space which is empty and then go Add video track.
 
 #### Step 3: Add special effects
@@ -1007,9 +799,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-clear-screen-choices-the-ultrawide-and-uhd-4k-showdown/"><u>[New] Clear Screen Choices The Ultrawide & UHD 4K Showdown</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-elevate-youtube-rankings-with-optimized-metadata-for-2024/"><u>[Updated] How to Elevate YouTube Rankings with Optimized Metadata for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-boosting-narrative-pace-in-vlogging-through-jump-cuts/"><u>2024 Approved Boosting Narrative Pace in Vlogging Through Jump Cuts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-rapid-routines-for-presentation-saving/"><u>2024 Approved Rapid Routines for Presentation Saving</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/classic-cinema-revisited-step-by-step-video-guide/"><u>Classic Cinema Revisited Step-by-Step Video Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easily-convert-pgm-photos-online-at-no-cost-with-expert-solutions/"><u>Easily Convert PGM Photos Online at No Cost with Expert Solutions</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-apple-iphone-13-pro-max-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 13 Pro Max Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/inflammation-plays-a-key-role-in-the-degradation-of-the-arterial-wall-components/"><u>Inflammation Plays a Key Role in the Degradation of the Arterial Wall Components.</u></a></li>
+<li><a href="https://win-answers.techidaily.com/quick-resolve-why-is-my-google-chrome-freezing-and-how-to-stop-it/"><u>Quick Resolve: Why Is My Google Chrome Freezing and How to Stop It?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-essential-guide-to-free-licensed-audio-for-yt/"><u>The Essential Guide to Free, Licensed Audio for YT</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721100650720-windows-wireless-keyboard-issues-solve-common-connection-problems-now/"><u>Windows Wireless Keyboard Issues? Solve Common Connection Problems Now</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-pro-tips-for-successfully-submitting-long-videos/"><u>YouTube Pro Tips for Successfully Submitting Long Videos</u></a></li>
+</ul></div>
 

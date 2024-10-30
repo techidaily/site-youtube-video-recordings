@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2024-10-18T10:12:31.772Z
-updated: 2024-10-24T02:15:35.599Z
+date: 2024-10-23T05:07:17.889Z
+updated: 2024-10-30T07:29:00.377Z
 tags:
   - youtube-download
 categories:
@@ -27,10 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -48,10 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -220,10 +220,10 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -243,22 +243,24 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-amplify-your-channels-evading-synthetic-watchers/"><u>[New] Amplify Your Channels Evading Synthetic Watchers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-building-a-broad-spectrum-audience-with-multichannel-strategy/"><u>[New] Building a Broad-Spectrum Audience with Multichannel Strategy</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-navigating-the-maze-of-public-television-download/"><u>[New] Navigating the Maze of Public Television Download</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-portal-to-successful-online-marketing-our-showcase-of-over-50-free-banners-awaits-you/"><u>[New] Your Portal to Successful Online Marketing - Our Showcase of Over 50 Free Banners Awaits You</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-best-practice-animation-series/"><u>[Updated] Best Practice Animation Series</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/1716070041248-updated-in-2024-discover-the-best-mac-gif-recorders-now/"><u>[Updated] In 2024, Discover the Best Mac GIF Recorders Now!</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-insight-advancements-in-home-video-recordings-for-2024/"><u>[Updated] The Ultimate Insight Advancements in Home Video Recordings for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-a-winning-edge-mastering-keywords-in-digital-marketing/"><u>2024 Approved Crafting a Winning Edge Mastering Keywords in Digital Marketing</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>2024 Approved Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-practices-for-live-streaming-services-and-local-channels/"><u>Best Practices for Live Streaming Services & Local Channels</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/blitz-broadcasting-channel-your-playlist-swiftly-for-2024/"><u>Blitz Broadcasting Channel Your Playlist Swiftly for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-f5-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Poco F5 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-immediate-video-removal-by-facebook-an-overview-of-processes/"><u>In 2024, Immediate Video Removal by Facebook - An Overview of Processes</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-prevent-these-8-key-mishaps-on-your-youtube-journey/"><u>In 2024, Prevent These 8 Key Mishaps on Your YouTube Journey</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/top-ten-dos-and-donts-in-the-youtube-world/"><u>Top Ten Do's and Don'ts in the YouTube World</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unwanted-no-more-top-7-android-apps-to-eliminate-ads/"><u>Unwanted No More! Top 7 Android Apps to Eliminate Ads</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-explore-top-5-ps2-games-simulators-for-ios/"><u>[New] 2024 Approved Explore Top 5 PS2 Games Simulators for iOS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-lens-to-legacy-building-a-lasting-career-in-travel-blogging-for-2024/"><u>[New] From Lens to Legacy Building a Lasting Career in Travel Blogging for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-merge-audio-files-into-powerpoint-staging-for-2024/"><u>[New] Merge Audio Files Into PowerPoint Staging for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-building-a-professional-online-brand-as-a-game-vlogger/"><u>[Updated] Building a Professional Online Brand as a Game Vlogger</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-building-bonds-before-buying-subscription-strategies/"><u>[Updated] Building Bonds Before Buying Subscription Strategies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/abbyys-revolutionary-bookscanner-the-ultimate-solution-for-hassle-free-digitalizing-your-reading/"><u>ABBYY's Revolutionary BookScanner: The Ultimate Solution for Hassle-Free Digitalizing Your Reading</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beginners-guide-adding-text-overlays-on-youtube/"><u>Beginner's Guide Adding Text Overlays on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-motorola-razr-40-ultra-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Motorola Razr 40 Ultra Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/football-film-study-premier-insights-infographic/"><u>Football Film Study Premier Insights Infographic</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-xiaomi-14-ultra-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Xiaomi 14 Ultra Phone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-download-custom-mcb-banner-packs/"><u>In 2024, Download Custom MCB Banner Packs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-list-5-leading-youtube-shortened-url-services/"><u>In 2024, Essential List 5 Leading YouTube Shortened URL Services</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/navigating-the-crossroads-of-full-time-work-and-youtube/"><u>Navigating the Crossroads of Full-Time Work & YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/optimize-your-watch-habits-the-ultimate-guide-for-constructing-youtube-saved-lists/"><u>Optimize Your Watch Habits The Ultimate Guide for Constructing YouTube Saved Lists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/push-boundaries-with-unique-split-screen-videos-for-youtube/"><u>Push Boundaries with Unique Split-Screen Videos for YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/standout-80s-aesthetics-for-video-editing-pros-for-2024/"><u>Standout '80S Aesthetics for Video Editing Pros for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-tips-why-cant-i-launch-outlook/"><u>Troubleshooting Tips: Why Can't I Launch Outlook?</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-nubia-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Nubia</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/windows-11/"><u>Windows 11用無成本的屏幕錄制工具: 我推薦你應使用的前七種!</u></a></li>
 </ul></div>
 

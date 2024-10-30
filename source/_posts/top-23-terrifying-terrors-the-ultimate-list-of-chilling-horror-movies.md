@@ -1,7 +1,7 @@
 ---
 title: "Top 23 Terrifying Terrors: The Ultimate List of Chilling Horror Movies"
-date: 2024-10-22T10:16:10.106Z
-updated: 2024-10-24T06:34:17.293Z
+date: 2024-10-27T16:38:33.811Z
+updated: 2024-10-29T17:32:53.789Z
 tags:
   - youtube-download
 categories:
@@ -26,25 +26,11 @@ thumbnail: https://thmb.techidaily.com/c2364ce1ce1631cf3307292a0e382081e93d8f200
 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## List of Scary Movie Free Download When You Need An Intense & Soul-stirring Adventure
 
 Horror scary movies have many subgenres, and among them the most gut-wrenching and thrilling ones are those **body horror** (The Fly), **supernatural horror** (The Conjuring), **psychological horror** (The Uninvited), **slasher horrors** (Saw). The horror movies list below is selected mainly focusing on these subgenres. Let's start from the best horror movies of all time to watch!
 
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/anabelle-2-creation.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  **No. 1 Best 2018 Scary Movie Blockbuster - Anabelle 2: Creation** 
 
@@ -57,19 +43,6 @@ The doll horror movie is gaining its popularity again with the revivle of Anabel
 Based on Stephen King novel of the same name, "IT" tells a story about children disappearing in the towns. A group of young kids will have to face and square off against the evil clown Pennywise, whose history of murder and violence dates back for centuries. This scary movie 2018 amplifies the horror in Stephen King's classic story without losing touch with its heart.
 
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-nun.jpg) 
-
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  **No. 3 The Conjuring 2 Spin-off - The Nun 1 (2018)** 
 
@@ -90,18 +63,18 @@ Another 2016 horror movie hit from producer James Wan. Only this time it was dir
 
 ![Don't Breathe Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **No. 6 Best Horror Movie 2016 Home Invasion Thriller - Don't Breathe**
 
 Breaking into others' house for a perfect stealing seems not so easy this time when the house is owned by a tough blind man who's got armed with sensitive ears, smartness and guns. Getting trapped in their own digging and accidentaly revealing a more severe crime in the basement, those teens will not be easily set free. Right amount of tense, nerve-wracking plot, this horror movie 2016 can give you a break from those jump-scares supernatural scary movies.
 
 ![Hush Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-4.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **No. 7 Best 2016 Scary Movie A Modern Slasher - Hush**
 
@@ -115,24 +88,31 @@ Another big name supernatural horror film returns - the Ring series, only that t
 
 ![The Witch Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  **No. 9 Best Supernatural Religious Horror Movie 2016 - The Witch**
 
 "Disturbing and nerve-wracking slow burn whose profoundly anguishing atmosphere made my skin crawl and left me almost crying in panic." This horror movie 2016 is quite different from those jump scares. It elevates to religious belief, seduction, mistrust, repression of sexual desire. You can see how the devil brutely and slowly unravels a devoted Christian family. The little brother's dying scene really reminded me of Bernini's sculpture of Ecstasy of Saint Teresa, bearing the pain and love at the same time. 
 
 ![Goodnight Mommy Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-7.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **No. 10 Psycho Art Horror Movie 2015 - Goodnight Mommy**
 
 Perfect for extreme horror enthusiasts who are not in a rush for incessant jump scares, since the climax would be slowly reached at the end of the movie. This Austrian super horror film tells a dark story of a young boy maltreating and killing his own mom and himself due to child schizophrenia and lack of family care. One of the best foreign films of 2015 almost being nominated by the 88th Acadmey Award, yet a bit cliche and predictable.
 
 ![The Babadook Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  **No. 11 Another Must Watch Psychological Horror Movie 2014 - The Babadook**
 
@@ -145,6 +125,13 @@ This psychological horror movie 2012 is really a genuine horror more haunting th
 If you are a fan of The Exorcist 1973 and Conjuring supernatural horror, then Insidious is the right place to get your nerves again. A haunted family tried to get rid of the evil spirits, finding and protecting their son and find back their real dad. Insidious Chapter 1 and 2 are decent with gripping storyline (they put a lot effort on plot design, bravo job!) while Insidious Chapter 3 is less qualified. Also, **Insidious: The Last Key** will be on screen in Jan 2018\. By viewing its trailer, the intense horror might be back on track!
 
 ![Sinister Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-10.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  **No. 13 Best Horror Movie 2012 Scary Maze Game - Sinister** 
 
@@ -167,10 +154,17 @@ Like Conjuring, this movie has a fair share of jump scares as well as 'Saw' leve
 ![Top 6 Stop-Motion Animated Horror Movies of All Time](https://www.5kplayer.com/youtube-download/img/top-animated-horror-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  How to Free Download Horror Scary Movies 2018 2016?
@@ -206,24 +200,15 @@ Wish i could have given a full review of all the above quality horror movies, bu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-budding-buyers-guide-monetization-platforms-for-novice-channels/"><u>[New] Budding Buyers Guide Monetization Platforms for Novice Channels</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-convert-talk-to-text-the-costless-alternative/"><u>[New] Convert Talk to Text The Costless Alternative</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-becoming-an-instagram-editor-extraordinaire/"><u>[Updated] Becoming an Instagram Editor Extraordinaire</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-epic-viewership-winners-youtubes-ultimate-list-for-2024/"><u>[Updated] Epic Viewership Winners YouTube's Ultimate List for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-petite-narrative-blueprint-for-2024/"><u>[Updated] Petite Narrative Blueprint for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-stop-video-preview-on-all-platforms-with-yt-for-2024/"><u>[Updated] Stop Video Preview on All Platforms with YT for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-ace-list-of-low-cost-youtube-caption-tools/"><u>2024 Approved Ace List of Low-Cost YouTube Caption Tools</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/dark-souls-iii-update-eliminating-the-persistent-crash-issues-once-and-for-all/"><u>Dark Souls III Update: Eliminating the Persistent Crash Issues Once and For All</u></a></li>
-<li><a href="https://fox-that.techidaily.com/expert-tips-navigating-tech-troubles-with-the-apple-support-application-on-your-iphone/"><u>Expert Tips: Navigating Tech Troubles with the Apple Support Application on Your iPhone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/harmonyhub-combining-ios-and-macos-photo-videos/"><u>HarmonyHub Combining iOS & macOS Photo-Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c50-bootloader-easily-by-drfone-android/"><u>How to Unlock Poco C50 Bootloader Easily</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-can-a-brief-subscribe-boost-your-content-viewing/"><u>In 2024, Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-choosing-the-best-cameras-and-lenses-for-vloggers/"><u>In 2024, Choosing the Best Cameras & Lenses for Vloggers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-decoding-the-cost-per-thousand-views-on-youtube-for-successful-earning/"><u>In 2024, Decoding the Cost Per Thousand Views on YouTube for Successful Earning</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-elevate-your-zoom-sessions-utilizing-filters-effectively/"><u>In 2024, Elevate Your Zoom Sessions Utilizing Filters Effectively</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/path-to-youtube-riches-optimal-view-figures-for-monetization-success/"><u>Path to YouTube Riches Optimal View Figures for Monetization Success</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/refine-your-beauty-videos-with-youtubes-palette-tweaking/"><u>Refine Your Beauty Videos with Youtube's Palette Tweaking</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/rhythmic-resonance-top-10-yogis-on-the-web/"><u>Rhythmic Resonance Top 10 Yogis on the Web</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/selecting-the-right-gear-a-filmmakers-checklist/"><u>Selecting the Right Gear A Filmmaker's Checklist</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-audiovisual-quality-its-significance-in-video-ranking/"><u>[New] Audiovisual Quality Its Significance in Video Ranking</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-discovering-the-potential-apple-devices-on-your-youtube-channel/"><u>[New] Discovering the Potential Apple Devices on Your YouTube Channel</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-ultimate-collection-20-chuckle-inducing-detention-cell-photos-for-a-better-day-for-2024/"><u>[New] Ultimate Collection 20 Chuckle-Inducing Detention Cell Photos for a Better Day for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-fifa-highlights-and-trends-charting-on-youtube/"><u>[Updated] FIFA Highlights & Trends Charting on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-experts-guide-to-screencast-mastery-and-impactful-content/"><u>2024 Approved The Expert's Guide to Screencast Mastery and Impactful Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/budget-friendly-designs-for-youtube-content-creators/"><u>Budget-Friendly Designs for YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-cut-the-clutter-advanced-techniques-with-youtube-studio-editor/"><u>In 2024, Cut the Clutter Advanced Techniques with YouTube Studio Editor</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-the-iphones-full-potential-with-10-composition-principles/"><u>In 2024, Unleashing the iPhone's Full Potential with 10 Composition Principles</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-best-video-language-changers-to-make-your-videos-accessible/"><u>New Best Video Language Changers to Make Your Videos Accessible</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Samsung Galaxy A24 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Navigating Your Net Gain  Three Steps to Quantify Your YouTube Earnings\""
-date: 2024-09-09T04:23:51.600Z
-updated: 2024-09-10T04:23:51.600Z
+date: 2024-10-23T19:58:40.785Z
+updated: 2024-10-29T19:51:35.915Z
 tags:
   - ai video
   - ai youtube
@@ -26,22 +26,10 @@ So, if you don’t know how to check YouTube income, don’t worry, this article
 
 * [Hot FAQs on YouTube channel earnings check](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Follow the steps below to check your YouTube earnings
 
 The process of checking YouTube income is pretty straightforward. So, regardless of what device you’re using to check, we’ve briefly explained the step-by-step instructions to carry out your YouTube income check within a few clicks.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Check on a computer
 
 To check YouTube income on your PC or Mac, you just have to do the following;
@@ -52,12 +40,6 @@ Step2 Click Analytics from the left side of the screen.
 
 ![how to check youtube income on pc 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 On the Analytics screen, select Revenue from the top side of the screen to check your YouTube income.
 
 There, you’ll find your YouTube income and other necessary data that you might need.
@@ -86,12 +68,6 @@ Step1 Launch the YouTube Studio app on your Android or iPhone.
 
 ![how to check youtube income on mobile phone 4](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step2 Tap Analytics from the bottom menu and select Revenue from the top of the screen.
 
 ![how to check youtube income on mobile phone 5](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-6.jpg)
@@ -107,11 +83,12 @@ The information that you’ll find in the YouTube revenue analytics includes the
 * **Ad Type;** This displays the percentage of revenue earned from the different types of ads.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How your YouTube earnings are calculated
 
 Having known how to check YouTube income, if you’re still wondering how your earnings are calculated, here, we’ve discussed all the necessary information you need to know about how YouTube earnings are calculated.
@@ -150,12 +127,6 @@ Step2 Use the Import button to upload the video you created for your YouTube cha
 
 ![import video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 Drag-n-drop the video you uploaded to the Timeline.
 
 ![drag n drop video to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-9.jpg)
@@ -164,22 +135,10 @@ Step4 To remove unwanted background from your video, click Effects from the top 
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step5 Next, drag-n-dop the chosen AI Portrait effect to the timeline. After that, adjust the AI Portrait effect from the timeline. You can also add multiple effects by dragging and dropping them to the timeline.
 
 ![drag n drop ai portrait to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up that appears, adjust the settings according to your requirements.
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-12.jpg)
@@ -192,12 +151,6 @@ Choose the ‘Social Media Show Element 07’ Effects. Drag-n-drop the selected 
 
 ![add subscribe watermark filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step8 Preview the edited video. If you’re satisfied with the output, click the Export button at the top bar and choose Burn DVD from the drop-down list.
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-15.jpg)
@@ -206,18 +159,6 @@ Step9 Enter file name in the box next to Label. Then, navigate to Folder Path an
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Upload videos regularly
 
 Starting a YouTube channel can be quite hard from start, but make it a priority to upload at least two quality videos every week. Yes, the more quality videos you post, the more you attract the viewer to like your videos, and the higher your chances of getting new subscribers, thereby increasing your YouTube earnings.
@@ -238,12 +179,6 @@ YouTube monetization involves making money from videos you upload on your YouTub
 
 Monetizing YouTube as a creator is a great way to earn passive income just by uploading videos. Research shows that an average YouTuber has the potential of earning $10,000 in revenue per year.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Which category is best for YouTube earnings?
 
 The average CPM you earn from videos you upload on YouTube all depends on the niche of your video. The following are the best 5 categories best for YouTube earnings in 2022;
@@ -258,12 +193,6 @@ Educational Videos - $9.89
 
 Photography & Film Making - $7.31
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Words
 
 Checking YouTube income is not a big deal. This article has covered every necessary detail you need to know about checking your YouTube income on a PC or mobile phone. Also, if you don’t understand how YouTube earnings are calculated, we touched on that, and don’t hesitate to employ the tips discussed to increase your YouTube earnings.
@@ -276,12 +205,6 @@ Part 1: Follow the steps below to check your YouTube earnings
 
 The process of checking YouTube income is pretty straightforward. So, regardless of what device you’re using to check, we’ve briefly explained the step-by-step instructions to carry out your YouTube income check within a few clicks.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Check on a computer
 
 To check YouTube income on your PC or Mac, you just have to do the following;
@@ -296,12 +219,6 @@ Step3 On the Analytics screen, select Revenue from the top side of the screen to
 
 There, you’ll find your YouTube income and other necessary data that you might need.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Check on a Mobile Device
 
 The process of checking YouTube income on an Android or iOS device is also straightforward, and you can use either the YouTube app or the YouTube Studio app to perform the operation. The steps below explain the procedure;
@@ -312,28 +229,10 @@ Step1 Make sure you have the latest version of the YouTube app on your phone. If
 
 ![how to check youtube income on mobile phone 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step2 Log in to your YouTube account and tap on the Profile icon at the top side. Then, select Your Channel.
 
 ![how to check youtube income on mobile phone 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step3 Tap the Analytics icon from the middle menu. Your YouTube channel income and other data will be displayed on your phone screen.
 
 ![how to check youtube income on mobile phone 3](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-4.jpg)
@@ -358,18 +257,6 @@ The information that you’ll find in the YouTube revenue analytics includes the
 * **Top Earnings;** It shows the data of the video with the highest estimated revenue.
 * **Ad Type;** This displays the percentage of revenue earned from the different types of ads.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How your YouTube earnings are calculated
 
 Having known how to check YouTube income, if you’re still wondering how your earnings are calculated, here, we’ve discussed all the necessary information you need to know about how YouTube earnings are calculated.
@@ -391,19 +278,14 @@ You can also calculate your YouTube channel total earnings by using the [YouTube
 ![how to check youtube income on mobile phone 6](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How do you increase your YouTube earnings?
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Post quality videos
 
 If your video is of low quality, then viewers might not find it interesting. For this reason, it’s important you post quality videos, and you need the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) software for such an operation.
@@ -428,22 +310,10 @@ Step4 To remove unwanted background from your video, click Effects from the top 
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step5 Next, drag-n-dop the chosen AI Portrait effect to the timeline. After that, adjust the AI Portrait effect from the timeline. You can also add multiple effects by dragging and dropping them to the timeline.
 
 ![drag n drop ai portrait to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up that appears, adjust the settings according to your requirements.
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-12.jpg)
@@ -456,12 +326,6 @@ Choose the ‘Social Media Show Element 07’ Effects. Drag-n-drop the selected 
 
 ![add subscribe watermark filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step8 Preview the edited video. If you’re satisfied with the output, click the Export button at the top bar and choose Burn DVD from the drop-down list.
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-15.jpg)
@@ -474,18 +338,6 @@ Step9 Enter file name in the box next to Label. Then, navigate to Folder Path an
 
 Starting a YouTube channel can be quite hard from start, but make it a priority to upload at least two quality videos every week. Yes, the more quality videos you post, the more you attract the viewer to like your videos, and the higher your chances of getting new subscribers, thereby increasing your YouTube earnings.
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Promote your Videos
 
 Promoting your YouTube videos is a great way to increase your YouTube earnings. Once you post a new video on YouTube, you can share it to your other social media profiles or websites to increase views and attract new folks to watch the video. The more views you get the more money you’ll make.
@@ -498,12 +350,6 @@ Let’s take a look at some frequently asked questions from users like you.
 
 YouTube monetization involves making money from videos you upload on your YouTube channel. And Google AdSense is a means of monetizing your YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Why should you consider monetizing on YouTube creator?
 
 Monetizing YouTube as a creator is a great way to earn passive income just by uploading videos. Research shows that an average YouTuber has the potential of earning $10,000 in revenue per year.
@@ -521,6 +367,13 @@ Finance & Investing - $12.25
 Educational Videos - $9.89
 
 Photography & Film Making - $7.31
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -548,118 +401,6 @@ Checking YouTube income is not a big deal. This article has covered every necess
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Aspiring comedians used to have to find success performing in bars and clubs before they’d get the chance to make big audiences laugh. Now funny people can reach millions of viewers on YouTube, and all they need are funny video ideas. [Generating great video ideas](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) isn't always easy, but I'm here to help you get over that minor speed bump.
-
-Let's dive into the world of YouTube comedy videos and find out which ideas can help you launch your career as a comedian.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 7 Comedy YouTube Video Ideas
-
-1. [Do a Skit](#one)
-2. [Start a Funny Series](#two)
-3. [Kid, Baby, and Animal Videos](#three)
-4. [Machinima and Gameplay Skits](#four)
-5. [Parody Videos](#five)
-6. [Bloopers](#six)
-7. [Lip Sync Video](#seven)
-
-#### 1\. Do a Skit
-
-YouTube is the perfect medium for short, generally between one and ten minutes long comedy sketches. The majority of the audience on YouTube isn't patient enough to sit through a half-hour show, no matter how funny it is (at least not until you have a large fan base).
-
-Your skit can be about literally anything, as long as it's short and effective. Having your own unique sense of humor is a crucial factor in ensuring the success of the sketches you post online.
-
-#### 2\. Start a Funny Series
-
-Try producing a pilot episode of a comedy series for your YouTube channel. Don't worry about the budget too much because if your ideas are good even a DIY approach will be enough.
-
-Producing a funny series requires dedication and commitment to that goal, so don't let yourself be discouraged easily.
-
-#### 3\. Kid, Baby, and Animal Videos
-
-Posting cute videos on your YouTube channel will certainly help you get attention online. The Internet loves videos of adorable babies, cats, dogs and other charming animals. Including these types of videos on your channel can be a good way to boost your subscriber count.
-
-It is important to note that your content must be unique. Re-posting funny animal videos you find online won't get you far and will make it impossible to monetize your channel.
-
-#### 4\. Machinima and Gameplay Skits
-
-The term machinima means creating a cinematic production by re-using material from video games. Gameplay skits and machinima videos are a great way of reaching millions of gaming fans who enjoy good comedy videos.
-
-The gaming industry is on the rise, and the audience that wants to watch video game-related content is growing every day. However, these types of videos require an in-depth knowledge of the gaming world, and you really have to know the games you draw from in order to make this idea work.
-
-#### 5\. Parody Video
-
-A well done, poignant parody never fails to make people laugh. Pop culture provides an endless source of TV shows, movies, and songs that can be used for your parody videos. When pop stars release big new music videos, they always get parodied by someone on YouTube within the first few days in order to capitalize on the trend while it’s fresh.
-
-Parody videos will provide you with an opportunity to showcase your skills and enable you to show the world that you are a talented, relevant comedian.
-
-#### 6\. Bloopers
-
-We all make mistakes. Blooper videos enable us to at least laugh at them. Experienced YouTubers know how easy it is to flub a take, but it takes a brave creator to make an entire video from the shots they messed up.
-
-#### 7\. Lip-Sync Video
-
-Have you ever imagined what it’s like to be a pop star? Lip-sync videos offer the opportunity to step into someone else's shoes for a moment and have fun with it. Knowing the song you’re lip-syncing and having good timing can help, but you can hardly go wrong producing a video of yourself pouring your soul into a song you're lip-syncing.
-
-Lip-syncing to tunes from the most popular stars in the world will enable you to gain traffic from people looking for content related to those songs and artists.
-
-Need more YouTube video ideas? Check out our [Definitive List of YouTube Video Ideas](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Making A Better YouTube Comedy Video with Wondershare Filmora
-
-As one of the best software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTubers, Filmora allows you to create a comedy video with effects, elements and templates quickly.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -722,25 +463,27 @@ Lip-syncing to tunes from the most popular stars in the world will enable you to
 
 Need more YouTube video ideas? Check out our [Definitive List of YouTube Video Ideas](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Making A Better YouTube Comedy Video with Wondershare Filmora
 
 As one of the best software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTubers, Filmora allows you to create a comedy video with effects, elements and templates quickly.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -810,12 +553,6 @@ Lip-syncing to tunes from the most popular stars in the world will enable you to
 
 Need more YouTube video ideas? Check out our [Definitive List of YouTube Video Ideas](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Making A Better YouTube Comedy Video with Wondershare Filmora
 
 As one of the best software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTubers, Filmora allows you to create a comedy video with effects, elements and templates quickly.
@@ -823,19 +560,104 @@ As one of the best software to [edit videos](https://tools.techidaily.com/wonder
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Aspiring comedians used to have to find success performing in bars and clubs before they’d get the chance to make big audiences laugh. Now funny people can reach millions of viewers on YouTube, and all they need are funny video ideas. [Generating great video ideas](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) isn't always easy, but I'm here to help you get over that minor speed bump.
+
+Let's dive into the world of YouTube comedy videos and find out which ideas can help you launch your career as a comedian.
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## 7 Comedy YouTube Video Ideas
+
+1. [Do a Skit](#one)
+2. [Start a Funny Series](#two)
+3. [Kid, Baby, and Animal Videos](#three)
+4. [Machinima and Gameplay Skits](#four)
+5. [Parody Videos](#five)
+6. [Bloopers](#six)
+7. [Lip Sync Video](#seven)
+
+#### 1\. Do a Skit
+
+YouTube is the perfect medium for short, generally between one and ten minutes long comedy sketches. The majority of the audience on YouTube isn't patient enough to sit through a half-hour show, no matter how funny it is (at least not until you have a large fan base).
+
+Your skit can be about literally anything, as long as it's short and effective. Having your own unique sense of humor is a crucial factor in ensuring the success of the sketches you post online.
+
+#### 2\. Start a Funny Series
+
+Try producing a pilot episode of a comedy series for your YouTube channel. Don't worry about the budget too much because if your ideas are good even a DIY approach will be enough.
+
+Producing a funny series requires dedication and commitment to that goal, so don't let yourself be discouraged easily.
+
+#### 3\. Kid, Baby, and Animal Videos
+
+Posting cute videos on your YouTube channel will certainly help you get attention online. The Internet loves videos of adorable babies, cats, dogs and other charming animals. Including these types of videos on your channel can be a good way to boost your subscriber count.
+
+It is important to note that your content must be unique. Re-posting funny animal videos you find online won't get you far and will make it impossible to monetize your channel.
+
+#### 4\. Machinima and Gameplay Skits
+
+The term machinima means creating a cinematic production by re-using material from video games. Gameplay skits and machinima videos are a great way of reaching millions of gaming fans who enjoy good comedy videos.
+
+The gaming industry is on the rise, and the audience that wants to watch video game-related content is growing every day. However, these types of videos require an in-depth knowledge of the gaming world, and you really have to know the games you draw from in order to make this idea work.
+
+#### 5\. Parody Video
+
+A well done, poignant parody never fails to make people laugh. Pop culture provides an endless source of TV shows, movies, and songs that can be used for your parody videos. When pop stars release big new music videos, they always get parodied by someone on YouTube within the first few days in order to capitalize on the trend while it’s fresh.
+
+Parody videos will provide you with an opportunity to showcase your skills and enable you to show the world that you are a talented, relevant comedian.
+
+#### 6\. Bloopers
+
+We all make mistakes. Blooper videos enable us to at least laugh at them. Experienced YouTubers know how easy it is to flub a take, but it takes a brave creator to make an entire video from the shots they messed up.
+
+#### 7\. Lip-Sync Video
+
+Have you ever imagined what it’s like to be a pop star? Lip-sync videos offer the opportunity to step into someone else's shoes for a moment and have fun with it. Knowing the song you’re lip-syncing and having good timing can help, but you can hardly go wrong producing a video of yourself pouring your soul into a song you're lip-syncing.
+
+Lip-syncing to tunes from the most popular stars in the world will enable you to gain traffic from people looking for content related to those songs and artists.
+
+Need more YouTube video ideas? Check out our [Definitive List of YouTube Video Ideas](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Making A Better YouTube Comedy Video with Wondershare Filmora
+
+As one of the best software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTubers, Filmora allows you to create a comedy video with effects, elements and templates quickly.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -904,12 +726,6 @@ Lip-syncing to tunes from the most popular stars in the world will enable you to
 
 Need more YouTube video ideas? Check out our [Definitive List of YouTube Video Ideas](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Making A Better YouTube Comedy Video with Wondershare Filmora
 
 As one of the best software to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTubers, Filmora allows you to create a comedy video with effects, elements and templates quickly.
@@ -937,9 +753,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-master-discocast-your-discord-recorder-handbook/"><u>2024 Approved Master DiscoCast Your Discord Recorder Handbook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-7-plus-in-lost-mode-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 7 Plus in Lost Mode</u></a></li>
+<li><a href="https://extra-information.techidaily.com/apex-newcomer-catalogue-panzoid-edition-for-2024/"><u>Apex Newcomer Catalogue Panzoid Edition for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/audio-alchemy-free-perfectly-crafted-dj-template-videos-for-2024/"><u>Audio Alchemy Free, Perfectly Crafted DJ Template Videos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/boosting-watch-time-and-reducing-churn-on-youtube-the-ultimate-list-of-methods-for-2024/"><u>Boosting Watch Time and Reducing Churn on YouTube The Ultimate List of Methods for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/diagnose-and-correct-class-not-registered-errors-in-windows-systems/"><u>Diagnose and Correct 'Class Not Registered' Errors in Windows Systems</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/digital-dollars-kings-and-queens-youtube-edition-for-2024/"><u>Digital Dollars Kings & Queens YouTube Edition for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-strategies-for-professional-grade-video-editing/"><u>Essential Strategies for Professional-Grade Video Editing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-gionee-f3-pro-phone-without-pin-by-drfone-android/"><u>How to Unlock Gionee F3 Pro Phone without PIN</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-learn-how-to-obtain-fee-free-pictorial-entertainment/"><u>In 2024, Learn How To Obtain Fee-Free Pictorial Entertainment</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/monetize-mastery-series-behind-the-scenes-with-carminati-ajay/"><u>Monetize Mastery Series Behind the Scenes with Carminati (AJay)</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/step-by-step-guide-aktualisierung-von-windows-server-2012-r2-zu-einer-neueren-version/"><u>Step-by-Step Guide: Aktualisierung Von Windows Server 2012 R2 Zu Einer Neueren Version</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unraveling-the-secrets-of-captivating-education-videos-the-ultimate-youtube-strategy/"><u>Unraveling the Secrets of Captivating Education Videos The Ultimate YouTube Strategy</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-combine-edit-and-share-best-video-collage-apps-for-iphone-and-ipad/"><u>Updated 2024 Approved Combine, Edit, and Share Best Video Collage Apps for iPhone and iPad</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/bes-prime-stream-essential-tech-equipment-guide-for-creators-for-2024/"><u>YouTube's Prime Stream Essential Tech, Equipment Guide for Creators for 2024</u></a></li>
+</ul></div>
 
