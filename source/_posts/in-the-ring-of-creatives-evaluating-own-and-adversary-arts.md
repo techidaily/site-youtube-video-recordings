@@ -1,7 +1,7 @@
 ---
 title: "\"In the Ring of Creatives  Evaluating Own and Adversary Arts\""
-date: 2024-09-13T10:49:16.689Z
-updated: 2024-09-15T08:26:59.771Z
+date: 2024-10-31T22:11:09.554Z
+updated: 2024-11-04T16:26:15.576Z
 tags:
   - ai video
   - ai youtube
@@ -140,6 +140,13 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -300,13 +307,6 @@ Follow @Richard Bennett
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
@@ -319,24 +319,31 @@ Follow @Richard Bennett
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\.  Audience Retention
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
 
@@ -373,10 +380,10 @@ Follow @Richard Bennett
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 12\.  Sharing
@@ -384,13 +391,6 @@ Follow @Richard Bennett
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 13\.  Videos in playlists
 
@@ -486,6 +486,13 @@ Follow @Richard Bennett
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 8\.  Subscribers
 
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
@@ -525,19 +532,6 @@ Follow @Richard Bennett
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -582,6 +576,13 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Elevate Your FreeFire Presence with Top Tips and Tricks
 
@@ -626,6 +627,13 @@ To make things easier and help you get started, we've compiled a list of the 30 
 29. #garena
 30. #freefirehack ![garena freefire](https://images.wondershare.com/filmora/article-images/2023/03/garena-freefire.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How To Optimize your YouTube Tags To Win More Views
 
 Tags are one of the most important aspects of YouTube videos, yet creators often need to pay more attention to them. This is because YouTube uses them to categorize and organize videos and play a significant role in determining which videos are shown to which viewers.
@@ -647,6 +655,13 @@ Here are some advanced features of Wonderdahre Filmora that can help you improve
 [**Screen Recorder**](https://tools.techidaily.com/wondershare/filmora/download/)**:** With its screen recorder, you can simultaneously **record your gaming** screen and webcam. Additionally, you can show the mouse while recording and set the Frame Rate, Quality, and Record Timer.
 
 ![wondershare filmora screen recorder](https://images.wondershare.com/filmora/guide/recording-05.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [**Audio Ducking**](https://tools.techidaily.com/wondershare/filmora/download/)**:** Audio ducking lets you automatically lower the volume of background noise in your gaming videos when someone is speaking and is a great way to ensure that your audio is always clear and easy to understand.
 
@@ -693,5 +708,24 @@ Hopefully, this article helped resolve your query, and you can now use the right
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-amplify-your-channels-evading-synthetic-watchers/"><u>[New] Amplify Your Channels Evading Synthetic Watchers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-achieve-balance-and-vitality-top-10-premium-yoga-streams/"><u>[Updated] Achieve Balance & Vitality - Top 10 Premium Yoga Streams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>[Updated] Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-a-winning-edge-mastering-keywords-in-digital-marketing/"><u>2024 Approved Crafting a Winning Edge Mastering Keywords in Digital Marketing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-effective-strategies-for-removing-youtube-media-from-computers/"><u>2024 Approved Effective Strategies for Removing YouTube Media From Computers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>2024 Approved Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cutting-edge-techniques-for-youtube-thumbnails-made-for-macos/"><u>Cutting-Edge Techniques for YouTube Thumbnails, Made for macOS</u></a></li>
+<li><a href="https://driver-install.techidaily.com/dominate-windows-solve-usb-glitches-now/"><u>Dominate Windows: Solve USB Glitches Now</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-epson-ds-530-printer-drivers-for-windows-11-64-bit-systems/"><u>Download Epson DS-530 Printer Drivers for Windows 11 64-Bit Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/eco-set-designs-30plus-free-downloadable-templates-for-filmmaking-artistry-for-2024/"><u>Eco-Set Designs 30+ Free Downloadable Templates for Filmmaking Artistry for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-90-phone-without-password-by-drfone-android/"><u>How To Unlock Honor 90 Phone Without Password?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/remedy-excel-file-problems-opening-in-notepad/"><u>Remedy: Excel File Problems Opening in Notepad</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-zte-blade-a73-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For ZTE Blade A73 5G</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unwanted-no-more-top-7-android-apps-to-eliminate-ads/"><u>Unwanted No More! Top 7 Android Apps to Eliminate Ads</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/which-voice-ai-suits-you-best-google-assistant-vs-alexa-comparision/"><u>Which Voice AI Suits You Best? Google Assistant vs Alexa Comparision</u></a></li>
+</ul></div>
 

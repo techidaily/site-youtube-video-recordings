@@ -1,7 +1,7 @@
 ---
 title: Discover the Best Substitutes to ChatGPT's Conversational Technology
-date: 2024-10-12T17:33:08.871Z
-updated: 2024-10-18T19:00:03.782Z
+date: 2024-11-02T19:49:57.717Z
+updated: 2024-11-04T19:46:09.378Z
 tags:
   - chatgpt
   - open-ai
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 
 ![Asking ChatGPT to identify and make recipes for ingredients based on an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/asking-chatgpt-for-recipes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  It gave me some pretty accurate results in identifying items in the fridge and giving recipes I could make using the ingredients identified.
 
  Aside from taking images as input, ChatGPT can also generate DALL-E images within the interaction.
@@ -55,13 +62,6 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
  ChatGPT Plus users were immediately given access to the new features using OpenAI's new ChatGPT-4o (Omnimodal) model. Free-tier users will also have access to these features but with limited usage.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Expanded Knowledge Base and Cross-Chat Memory
 
  ChatGPT's upgraded web browsing capabilities allow it to retrieve up-to-date information from the web with better accuracy. It ensures responses are based on the latest available data and insights, making it particularly valuable for quickly evolving topics like news, technology, and market trends.
@@ -72,16 +72,16 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 ![Using ChatGPT as an AI assistant using memory and web browsing features](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-as-assistant-using-expanded-knowledge-base-1-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  ChatGPT provided sound advice by browsing the web for the weather and reviewing its memory of my schedule. It even gave me a list of activities I could do instead based on my past interactions with ChatGPT.
 
  The browsing capability feature is now available for both Plus and Free tier users, while ChatGPT Memory is only available to Plus users.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Multi-Modal Voice and Video Interactions
 
@@ -93,6 +93,13 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
  GPT-4o's voice interaction is available to all users using the ChatGPT Android/iOS app. However, the video interaction feature is unavailable at the time of writing but is expected to roll out in the near future.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Upgraded Code Analysis
 
  The previous ChatGPT Code Interpreter is now called Advanced Data Analysis (ADA). Since it is already out of beta and ChatGPT plugins are no longer available, ADA is now an integrated feature within both ChatGPT-4 and ChatGPT-4o, and both Free and Plus tier users now have this feature. No plugin or activation is needed; simply prompt ChatGPT to run, analyze, or write code, and it should do the rest for you.
@@ -101,28 +108,15 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 ![Using-ChatGPT-Advanced-Data-Analysis](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-advanced-data-analysis.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  I already knew the numbers before running it using ADA on ChatGPT-4o, so I know the provided graph is accurate. However, running it on ChatGPT-4 continually gave me errors, was slow, and never really provided me with the graph. So, although ADA is not functionally different from the old code interpreter, running ADA right on ChatGPT-4o was certainly easier, faster, and smarter.
 
  OpenAI's demonstrations also showed live code debugging using voice commands, which is another enormous upgrade for ChatGPT. Instead of having to type commands and work bit by bit, live interactions with your code could speed up the process.
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Temporary Chat
@@ -150,18 +144,19 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-memorable-images-top-10-best-meme-blueprints/"><u>[Updated] 2024 Approved Memorable Images TOP 10 Best Meme Blueprints</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-decoding-the-mechanics-a-deep-dive-into-webcam-tech-for-2024/"><u>[Updated] Decoding the Mechanics A Deep Dive Into Webcam Tech for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-discovering-the-past-best-history-youtubers/"><u>[Updated] Discovering the Past Best History YouTubers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-hilarity-at-a-click-discovering-15-comical-youtubers-work-for-2024/"><u>[Updated] Hilarity at a Click Discovering 15 Comical YouTubers' Work for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-amplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>2024 Approved Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/video-converter/"><u>當下直接變更影像：流量最高的移動Video Converter排行榜</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/a-symphony-in-silence-mastering-audio-with-precision/"><u>A Symphony in Silence Mastering Audio with Precision</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/cease-unintentional-restarts-windows-11-guide/"><u>Cease Unintentional Restarts: Windows 11 Guide</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/decouvrez-lautomatisation-cognitive-la-cle-essentielle-pour-saisir-le-sens-des-contenus-avec-abbyy/"><u>Découvrez L'automatisation Cognitive: La Clé Essentielle Pour Saisir Le Sens Des Contenus Avec ABBYY</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-success-strategy-standard-studio-or-beta-edge/"><u>In 2024, Channel Success Strategy Standard Studio or Beta Edge</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transforma-archivos-m4v-a-formato-vob-sin-costo-con-herramientas-de-conversion-online-gratuita/"><u>Transforma Archivos M4V a Formato VOB Sin Costo Con Herramientas De Conversión Online Gratuita</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtube-descriptions-revamped-by-template-professionals/"><u>YouTube Descriptions Revamped by Template Professionals</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-significance-of-proper-slug-line-usage/"><u>[New] The Significance of Proper Slug Line Usage</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlock-the-secrets-of-smooth-and-seamless-keying-in-videography/"><u>[Updated] 2024 Approved Unlock the Secrets of Smooth and Seamless Keying in Videography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-harmonic-hits-top-rated-dj-template-downloads/"><u>[Updated] In 2024, Harmonic Hits Top-Rated DJ Template Downloads</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quintessential-scriptwriting-throughout-the-film-landscape/"><u>[Updated] Quintessential Scriptwriting Throughout the Film Landscape</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-broadcast-power-play-which-livestream-tool-should-you-use/"><u>2024 Approved Broadcast Power Play Which Livestream Tool Should You Use?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-growth-and-profitability-in-the-digital-marketplace-explore-these-top-15-facebook-insights/"><u>2024 Approved Growth & Profitability in the Digital Marketplace Explore These Top 15 Facebook Insights</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/access-unlimited-free-live-videos-begin-your-downloads-now/"><u>Access Unlimited Free Live Videos - Begin Your Downloads Now!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/download-free-dailymotion-video-downloader-convert-your-favorite-movies-and-songs/"><u>Download Free DailyMotion Video Downloader: Convert Your Favorite Movies and Songs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-legally-access-and-download-mp4-videos-without-cost/"><u>How to Legally Access and Download MP4 Videos Without Cost</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-securely-watch-films-on-the-internet-at-no-charge-a-comprehensive-guide/"><u>How to Securely Watch Films on the Internet at No Charge: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-troubleshoot-and-correct-the-503-error-on-youtube-across-computers-and-smartphones/"><u>How to Troubleshoot and Correct the 503 Error on YouTube Across Computers and Smartphones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-5-must-try-websites-for-cost-free-effects/"><u>In 2024, 5 Must-Try Websites for Cost-Free Effects</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-rated-no-cost-youtube-and-web-video-saver-apps-your-guide-to-effortless-downloads/"><u>Top Rated No-Cost YouTube and Web Video Saver Apps: Your Guide to Effortless Downloads</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/poshagovoe-povtorenie-kak-sdelat-videouroki-na-movavi-instrukciya-po-formirovaniyu-tematicheskogo-kontenta/"><u>Пошаговое Повторение - Как Сделать Видеоуроки На MOVAVI: Инструкция По Формированию Тематического Контента</u></a></li>
 </ul></div>
 

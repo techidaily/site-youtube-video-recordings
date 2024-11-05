@@ -1,7 +1,7 @@
 ---
 title: The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
-date: 2024-10-16T17:54:17.911Z
-updated: 2024-10-18T18:51:26.395Z
+date: 2024-11-01T00:46:15.129Z
+updated: 2024-11-04T16:32:54.776Z
 categories:
   - BestProducts
 description: This Article Describes The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
@@ -38,6 +38,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
@@ -67,10 +74,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Story: A lot going on, and none of it to be spoiled**
@@ -123,14 +130,14 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC ship](https://www.lifewire.com/thmb/n9S5L4JClTiqP1vYa_7cTGw6o0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-7-d89d4a9941b8488ea6ef1aeba6486895.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Difficulty and Content Settings: Lots to customize**
 
@@ -146,18 +153,18 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Customization: Lots of stuff to tweak**
 
  As in Odyssey, the game allows you to play as either male or female, and offers a range of cosmetic options, mainly by way of tattoos and hairstyles. New tattoo patterns are acquired through parkour challenges. What’s more interesting is the gameplay affecting clothing and weapons that alter your appearance—I particularly appreciated that upgrading those items affects their looks. You can choose from different ravens and horses, and change the appearance of your longship. Eventually, you will also be able to customize the appearance of your settlement.
 
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Graphics: Epic good looks**
 
@@ -167,14 +174,14 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process and Performance: A rough start**
 
@@ -193,10 +200,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Typical AAA**
@@ -205,20 +212,14 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
@@ -229,13 +230,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Final Verdict: Epic stories and exciting combat in a sprawling open world.
 
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -260,24 +254,15 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-premier-screenshots-software-for-linux-users/"><u>[New] 2024 Approved Premier Screenshots Software for Linux Users</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-essential-sites-for-fetching-video-intro-files/"><u>[New] Essential Sites for Fetching Video Intro Files</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-top-5-mac-voice-capture-apps-compiling-peak-performances/"><u>[New] Top 5 Mac Voice Capture Apps Compiling Peak Performances</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-ensuring-authenticity-of-your-youtube-account/"><u>[Updated] Ensuring Authenticity of Your YouTube Account</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income/"><u>2024 Approved Charting Success Navigating a 3-Step Strategy for Tracking YouTube Income</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-summit-elite-studio-25-test/"><u>2024 Approved Summit Elite Studio 25 Test</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/1717308381276-2024-approved-youtubing-green-magic-ideas-that-come-to-life/"><u>2024 Approved Youtubing Green Magic – Ideas That Come to Life!</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/earning-through-eyes-the-actual-youtube-view-count-needed-for-2024/"><u>Earning Through Eyes The Actual YouTube View Count Needed for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-does-trimming-videos-impact-their-filesize-tips-for-keeping-it-small/"><u>How Does Trimming Videos Impact Their Filesize? Tips for Keeping It Small</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-avoiding-poverty-earning-in-beauty-media/"><u>In 2024, Avoiding Poverty Earning in Beauty Media</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-ipad-video-tutorials-for-easy-time-lapses/"><u>In 2024, IPad Video Tutorials for Easy Time-Lapses</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-revolutionary-techniques-to-change-video-borders-in-tiktok/"><u>In 2024, Revolutionary Techniques to Change Video Borders in TikTok</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/precision-in-performance-utilizing-social-blade-for-youtube-data/"><u>Precision in Performance Utilizing Social Blade for YouTube Data</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/reviewing-changes-in-the-sony-s6500-blu-ray-system-for-2024/"><u>Reviewing Changes in the Sony S6500 Blu-Ray System for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-audio-pace-via-devices/"><u>Streamlining YouTube Audio Pace via Devices</u></a></li>
-<li><a href="https://driver-install.techidaily.com/swift-driver-update-on-windows-oses-11-81-7/"><u>Swift Driver Update on Windows OSes (11, 8.1, 7)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-economy-streamlining-youtube-videos/"><u>The Art of Economy Streamlining YouTube Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/visionary-vittles-steps-to-craft-food-films/"><u>Visionary Vittles Steps to Craft Food Films</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-halloween-playlist-top-70-spine-chilling-tracks-and-free-mp3-downloads/"><u>Best Halloween Playlist: Top 70 Spine-Chilling Tracks & Free MP3 Downloads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/educational-and-amusing-wildlife-footage-for-kids-free-downloads/"><u>Educational & Amusing Wildlife Footage for Kids - Free Downloads!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/enhance-print-quality-with-the-latest-hp-laserjet-p1007-driver-software-free-access/"><u>Enhance Print Quality with the Latest HP LaserJet P1^007 Driver Software - Free Access</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-track-to-success-brother-hl-3170cdw-printer-driver-download/"><u>Fast Track to Success: Brother HL-3170CDW Printer Driver Download</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/introducing-the-msi-c906-an-advanced-tiny-pc-boosted-by-intels-latest-raptor-lake-cpu-featuring-quad-25-gigabit-lan-connectivity/"><u>Introducing the MSI C906: An Advanced Tiny PC Boosted by Intel's Latest Raptor Lake CPU, Featuring Quad 2.5 Gigabit LAN Connectivity</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-the-challenges-of-uploading-and-streaming-in-4k-on-youtube-a-comprehensive-guide/"><u>Mastering the Challenges of Uploading and Streaming in 4K on YouTube: A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/should-you-choose-vn-video-editor-pro-for-your-video-editing-needs-in-2024/"><u>Should You Choose VN Video Editor Pro for Your Video Editing Needs, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ower-of-pausing-incorporating-effective-chapters-in-your-youtube-series/"><u>The Power of Pausing Incorporating Effective Chapters in Your YouTube Series</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/troubleshooting-and-repairing-the-internal-server-error-on-youtube-in-202n-effective-solutions/"><u>Troubleshooting and Repairing the 'Internal Server Error' On YouTube in 202N - Effective Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/yt-highlights-year-end-spotlight-on-top-music-reactions-for-2024/"><u>YT Highlights Year-End Spotlight on Top Music Reactions for 2024</u></a></li>
 </ul></div>
 

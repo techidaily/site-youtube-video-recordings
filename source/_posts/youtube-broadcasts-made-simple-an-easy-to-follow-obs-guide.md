@@ -1,7 +1,7 @@
 ---
 title: "\"Youtube Broadcasts Made Simple  An Easy-to-Follow OBS Guide\""
-date: 2024-10-14T18:05:04.978Z
-updated: 2024-10-18T16:52:19.214Z
+date: 2024-11-01T23:43:36.975Z
+updated: 2024-11-04T21:28:17.654Z
 tags:
   - ai video
   - ai youtube
@@ -111,6 +111,13 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Youtube Events set up
 
 Live stream is little different from Stream Now platform as it allows users to schedule the streams as well as a connectivity to Google Hangouts is provided. These easy to follow steps will assist you to handle all settings for your events using Live Stream tool:
@@ -143,13 +150,6 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![save changes ](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
@@ -157,6 +157,13 @@ Live stream is little different from Stream Now platform as it allows users to s
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Video tutorial
 
@@ -358,13 +365,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![add your cards ](https://images.wondershare.com/filmora/article-images/add-your-cards.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 10:** Now move to encoder setup and then simply copy and paste these details to your streaming software.
 
 ![ encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
@@ -373,27 +373,20 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
 ![watching and messages ](https://images.wondershare.com/filmora/article-images/watching-and-messages.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 13:** Stream health can be monitored directly.
 
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 14:** One can also use the social media button for live shares.
 
@@ -457,6 +450,13 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
@@ -480,6 +480,13 @@ Follow @Richard Bennett
 * [Part3\. Youtube Events set up](#part3)
 * [Part4\. Video tutorial](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Stream Now set up
 
 Follow these steps to live stream your impressive videos to YouTube using Stream Now tool:
@@ -492,6 +499,13 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![video manager ](https://images.wondershare.com/filmora/article-images/video-manager.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** From the drop down menu, simply select Live Streaming option to begin with.
 
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
@@ -503,13 +517,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 **Step 5:** Change or Upload your thumbnail as per need.
 
 ![thumbnail ](https://images.wondershare.com/filmora/article-images/thumbnail.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 6:** It is time to provide an eye catching title to your video, add description and finally choose category from the drop down menu.
 
@@ -531,9 +538,29 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![ encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 11:** Now you can set your live chat option as per your requirement.
 
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
@@ -556,13 +583,6 @@ As soon as you have completed the above set up then next task is to adjust setti
 **Step 2:** Now launch OBS on your device and directly go to settings option.
 
 ![ Go to setting](https://images.wondershare.com/filmora/article-images/go-to-setting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
@@ -916,13 +936,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
@@ -958,13 +971,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -1005,18 +1011,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-window-capture-suite-pro-xp/"><u>[New] 2024 Approved Window Capture Suite Pro XP</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-cutting-edge-tips-designing-immersive-educational-videos-for-online-learning/"><u>[New] Cutting-Edge Tips Designing Immersive Educational Videos for Online Learning</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exclusive-apps-to-record-on-iphone/"><u>[Updated] Exclusive Apps to Record on iPhone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10-second-teasers-explained/"><u>2024 Approved 10-Second Teasers Explained</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-8-linux-platforms-for-video-mastery/"><u>2024 Approved Best 8 Linux Platforms for Video Mastery</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/5-star-fitness-tracker-reviews-whats-hot/"><u>5-Star Fitness Tracker Reviews: What's Hot ?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/enhance-gameplay-on-dell-g3-update-essential-graphics-and-audio-drivers/"><u>Enhance Gameplay on Dell G3: Update Essential Graphics and Audio Drivers</u></a></li>
-<li><a href="https://discover-help.techidaily.com/guide-complet-pour-changer-vos-films-en-hevch2-cuisine-dune-qualite-serieuse-toutes-gratuicules/"><u>Guide Complet Pour Changer Vos Films en HEVC/H.2 Cuisine D’une Qualité Sérieuse, Toutes Gratuicules!</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/laying-foundations-for-fresh-content-first-timers-youtube-video-guide-mac-edition/"><u>Laying Foundations for Fresh Content First-Timer's Youtube Video Guide, Mac Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/rank-your-social-sites-today/"><u>Rank Your Social Sites Today</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/vidoetwitter-fetcher-gather-twitter-videos-effortlessly/"><u>VidoeTwitter Fetcher Gather Twitter Videos Effortlessly</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/why-the-iphone-14-still-wins-over-the-iphone-16-pro-key-insights-from-a-tech-expert/"><u>Why the iPhone 14 Still Wins Over the iPhone 16 Pro: Key Insights From a Tech Expert</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-asmr-viewers-essentials-explained/"><u>[Updated] ASMR Viewers' Essentials Explained</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-success-pushing-your-video-into-top-charts/"><u>[Updated] Crafting Success Pushing Your Video Into Top Charts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-downloading-videos-directly-to-iphoneipad-youtubes-quick-guide/"><u>[Updated] Downloading Videos Directly to iPhone/iPad - YouTube's Quick Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insider-tips-the-best-instagram-strategies-for-profit/"><u>[Updated] In 2024, Insider Tips The Best Instagram Strategies for Profit</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-honor-90-lite-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Honor 90 Lite Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>2024 Approved Blurred Lines The Art of Anonymizing YouTube Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevating-creative-content-vimeo-vs-youtubes-approach/"><u>2024 Approved Elevating Creative Content Vimeo vs YouTube's Approach</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/advanced-email-marketing-tools-and-spam-words-lists-for-201-optimize-with-massmail/"><u>Advanced Email Marketing Tools and SPAM Words Lists for 201# | Optimize with Massmail</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-the-revised-youtube-earnings-criteria-for-2024/"><u>Decoding the Revised YouTube Earnings Criteria for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-humble-beginnings-jake-paul-on-youtube-triumph/"><u>From Humble Beginnings Jake Paul on YouTube Triumph</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-apple-iphone-12-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For Apple iPhone 12</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-build-your-mark-affordable-logo-creation-with-tailored-templates/"><u>In 2024, Build Your Mark Affordable Logo Creation with Tailored Templates</u></a></li>
+<li><a href="https://discover-great.techidaily.com/keine-sorge-weggefundene-dateien-wiederhergestellt-und-gesichert/"><u>Keine Sorge: Weggefundene Dateien Wiederhergestellt Und Gesichert</u></a></li>
+<li><a href="https://games-able.techidaily.com/master-the-art-snagging-premium-steam-titles-at-no-cost/"><u>Master the Art: Snagging Premium Steam Titles at No Cost</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/secrets-to-super-views-hashtag-hacks-for-game-streams/"><u>Secrets to Super Views Hashtag Hacks for Game Streams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/t-series-youtube-revenue-an-overview/"><u>T-Series YouTube Revenue An Overview</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/top-rated-no-cost-windows-pc-data-backup-programs-compatible-with-os-versions-7-through-11/"><u>Top Rated No-Cost Windows PC Data Backup Programs Compatible with OS Versions 7 Through 11</u></a></li>
 </ul></div>
 

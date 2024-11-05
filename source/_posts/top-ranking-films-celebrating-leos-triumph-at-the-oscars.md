@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2024-10-25T06:52:57.253Z
-updated: 2024-10-30T02:55:04.249Z
+date: 2024-10-29T22:40:11.554Z
+updated: 2024-11-05T00:39:00.143Z
 tags:
   - youtube-download
 categories:
@@ -27,10 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -48,16 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -226,10 +220,10 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -249,22 +243,22 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>[New] A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-comedy-canvas-painting-laughter-with-top-10-video-concepts/"><u>[New] Comedy Canvas Painting Laughter with Top 10 Video Concepts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-extracting-music-tracks-from-fb-for-2024/"><u>[Updated] Extracting Music Tracks From Fb for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-android-and-ios-leading-titles-mimicking-playstation-games/"><u>[Updated] In 2024, Android & iOS Leading Titles Mimicking PlayStation Games</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>2024 Approved A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/backwards-viewing-a-new-lens-for-analyzing-youtube-content/"><u>Backwards Viewing A New Lens for Analyzing YouTube Content</u></a></li>
-<li><a href="https://techtrends.techidaily.com/cd-pc/"><u>CD情報をスマートフォンに転送する新手法: PC必須なし、アプリ使用可能！</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/creating-captivating-youtube-thumbnails-for-mac-users-for-2024/"><u>Creating Captivating YouTube Thumbnails for Mac Users for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-moto-g34-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Motorola Moto G34 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-to-protectly-copy-youtube-tracks-for-free/"><u>How to Protectly Copy Youtube Tracks for Free</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/igtv-vs-youtube-should-video-content-creators-use-one-platform-or-the-other/"><u>IGTV VS YouTube Should Video Content Creators Use One Platform or The Other?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-xiaomi-14-ultra-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Xiaomi 14 Ultra without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/inside-ais-latest-marvels-how-gpt-4-stacks-up-against-its-cousins-turbo-and-phi/"><u>Inside AI's Latest Marvels: How GPT-4 Stacks Up Against Its Cousins Turbo and Phi</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/startup-steps-for-successful-youtubers-setting-up-channels-securing-sales/"><u>Startup Steps for Successful Youtubers Setting Up Channels, Securing Sales</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-guide-capturing-screen-images-on-windows-7-8-and-10/"><u>Ultimate Guide: Capturing Screen Images on Windows 7, 8 & 10</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-the-full-potential-of-zoom-on-your-google-meet-calls-for-2024/"><u>Unlocking the Full Potential of Zoom on Your Google Meet Calls for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-harness-googles-skill-for-accurate-speech-to-text-conversion/"><u>[Updated] 2024 Approved Harness Google's Skill for Accurate Speech to Text Conversion</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-construct-a-careerscape-on-camera-by-critiquing-closets/"><u>[Updated] Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>[Updated] Decoding YouTube’s Economic Strategy The Rise of Short Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-breaking-language-barriers-with-these-top-20-video-translators/"><u>[Updated] In 2024, Breaking Language Barriers with These Top 20 Video Translators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-boosting-channels-growth-strategies-for-effective-trailers/"><u>2024 Approved Boosting Channels' Growth Strategies for Effective Trailers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-many-viewers-to-target-for-a-youtube-earning-journey/"><u>2024 Approved How Many Viewers to Target for a YouTube Earning Journey?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dissecting-revenue-allocation-for-shortform-content-makers/"><u>Dissecting Revenue Allocation for Shortform Content Makers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes/"><u>Elevate Your Video Presence Mastery of Channel Art and Banner Sizes</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nubia-red-magic-9-proplus-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nubia Red Magic 9 Pro+</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevating-youtube-performance-consistency-in-cc-usage/"><u>In 2024, Elevating YouTube Performance Consistency in CC Usage</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-expert-creating-your-avatar-with-confidence/"><u>In 2024, From Novice to Expert Creating Your Avatar with Confidence</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-the-art-of-creating-top-quality-edu-videos-for-learning-platforms/"><u>Mastering the Art of Creating Top-Quality Edu-Videos for Learning Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/powering-up-your-game-the-incredible-features-of-the-asus-rog-rapture-gt-ax11th-router-examined/"><u>Powering Up Your Game: The Incredible Features of the Asus ROG Rapture GT-AX11^th Router Examined</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-5-budget-friendly-windows-screen-recorders-2023-edition/"><u>Top 5 Budget-Friendly Windows Screen Recorders – 2023 Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unleash-creativity-in-youtube-video-editing-with-adobe-premiere/"><u>Unleash Creativity in YouTube Video Editing with Adobe Premiere</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/winter-wonderland-windows-celebrate-the-holiday-season/"><u>Winter Wonderland Windows: Celebrate the Holiday Season</u></a></li>
 </ul></div>
 
