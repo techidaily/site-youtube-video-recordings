@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2024-11-01T21:05:15.832Z
-updated: 2024-11-04T16:09:20.431Z
+date: 2024-11-11T06:57:23.209Z
+updated: 2024-11-14T20:48:27.625Z
 tags:
   - youtube-download
 categories:
@@ -27,10 +27,10 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -48,10 +48,10 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -220,10 +220,10 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -243,14 +243,18 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/updated-transform-your-hdr-images-into-professional-grade-time-lapses-with-gopro-studio/"><u>[Updated] Transform Your HDR Images Into Professional-Grade Time Lapses with GoPro Studio</u></a></li>
-<li><a href="https://discover-community.techidaily.com/centralized-backup-solutions-effortless-windows-client-data-protection/"><u>Centralized Backup Solutions: Effortless Windows Client Data Protection</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/essential-info-on-crafting-engaging-yt-shorts-for-2024/"><u>Essential Info on Crafting Engaging YT Shorts for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-your-channel-ranking-with-these-11-seo-secrets/"><u>In 2024, Elevate Your Channel Ranking with These 11 SEO Secrets</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-htc-u23-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any HTC U23 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-ring-wired-smart-video-doorbell-pros-and-cons/"><u>In-Depth Analysis: Ring Wired Smart Video Doorbell Pros & Cons</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-best-laptops-for-video-editing/"><u>The Best Laptops for Video Editing</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/freedom-awaits-explore-these-top-6-youtube-shortdowners/"><u>Your Freedom Awaits Explore These Top 6 YouTube Shortdowners</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-diy-dynamics-unlock-creative-animation-potential/"><u>[New] DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-retro-remake-applying-modern-filters-on-previous-media-posts/"><u>[New] Retro Remake Applying Modern Filters on Previous Media Posts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-pioneering-easy-audio-alterations-for-competitive-play-for-2024/"><u>[Updated] Pioneering Easy Audio Alterations for Competitive Play for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-return-creator-toolkit/"><u>[Updated] Return Creator Toolkit</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-tweets-on-screen-expert-guide-for-capturing-vids-for-2024/"><u>[Updated] Top Tweets on Screen Expert Guide for Capturing Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-behind-the-scenes-crafting-your-next-big-fb-reel/"><u>2024 Approved Behind-the-Scenes Crafting Your Next Big FB Reel</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-channel-upgrade-smartphone-techniques-for-professional-videos/"><u>2024 Approved Channel Upgrade Smartphone Techniques for Professional Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-cyberlink-screen-recorder-review/"><u>2024 Approved Cyberlink Screen Recorder Review</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cognitive-cornerstones-essential-educational-content-yt/"><u>Cognitive Cornerstones Essential Educational Content YT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-hottest-youtube-to-mp3-software-picks-top-10/"><u>The Hottest YouTube-to-MP3 Software Picks (Top 10)</u></a></li>
+<li><a href="https://techidaily.com/1723808212540-trouble-with-windows-10-booting-up-discover-simple-solutions-now/"><u>Trouble with Windows 10 Booting Up? Discover Simple Solutions Now!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-youtube-potential-with-best-thumbnail-dimensions/"><u>Unlocking YouTube Potential with Best Thumbnail Dimensions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/visionary-leap-in-ai-gpt-4-rollout-by-openai/"><u>Visionary Leap in AI: GPT-4 Rollout by OpenAI</u></a></li>
 </ul></div>
 

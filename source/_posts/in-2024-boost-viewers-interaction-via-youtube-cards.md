@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Boost Viewers Interaction via YouTube Cards"
-date: 2024-09-17T16:15:52.383Z
-updated: 2024-09-20T12:26:19.119Z
+date: 2024-11-13T06:39:28.041Z
+updated: 2024-11-14T20:40:33.485Z
 tags:
   - ai video
   - ai youtube
@@ -447,117 +447,12 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
-## Part 2: End Cards
-
-When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
-
-To keep viewers on your channel, you can create your End Card which recommends other content you have created.
-
-#### Elements of an End Card
-
-An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
-
-It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
-
-You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
-
-Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
-
-#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
-
-1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
-2. Drag your background into your timeline at the end of your video.
-3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
-4. Trim the clips in your picture in picture track down to the same length as your end card.
-5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
-6. Position your clips so they are spaced evenly by dragging them in the preview screen.
-7. Mute your clips.
-8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
-9. Export your video from Filmora and upload it to YouTube.
-10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
-11. Go to your end card in the previewer, as that is where you want to add your annotations.
-12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
-13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
-14. Click **Apply Changes**.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-[Part 1: Intros](#part1)
-
-[Elements of an Intro](#elements)
-
-[Top Intro Sites](#top)
-
-[Creating an Intro in Filmora](#creating)
-
-[Part 2: End Cards](#part2)
-
-[Elements of an End Card](#element)
-
-[How To Make an End Card](#how-to)
-
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## Part1: Intros
-
-#### Elements of an Intro
-
-Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
-
-When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
-
-Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
-
-#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
-
-There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
-
-**FlixPress.com**
-
-This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
-
-**IntroMaker.net**
-
-This is another site with really professional looking intros for $5\. They only have two free options, though.
-
-#### Creating an Intro in Filmora
-
-You can create a simple intro card in **Filmora**.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
-2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
-3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
-4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
-5. Click on the editing icon with your logo selected and choose an animation.
-6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
-7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
-8. Export your video and save it for use in all of your other videos.
 
 ## Part 2: End Cards
 
@@ -621,10 +516,10 @@ Follow @Shanoon Cox
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -663,6 +558,131 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 2: End Cards
+
+When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
+
+To keep viewers on your channel, you can create your End Card which recommends other content you have created.
+
+#### Elements of an End Card
+
+An end card includes clips from two or three of your videos, muted, and shrunk down to thumbnail-size. Using spotlight annotations you can make these thumbnails click-able.
+
+It is also important that your end card includes multiple calls to action. A call to action is meant to spur a viewer to some kind of action. Writing ‘Check out this video’ above one of your thumbnails is a call to action.
+
+You should also have a subscribe link somewhere in your end card, ideally a very noticeable button with a proven call to action like ‘Subscribe Now!’.
+
+Some creators will leave their end cards at that and play music overtop, but it can be even more effective to include a voiceover where you ask viewers to subscribe and watch your other videos.
+
+#### [How To Make an End Card](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose a static background. You may want to download an end card template or create one in a drawing program. If you do, make sure to include calls to action like ‘Watch more!’ and ‘Subscribe’.
+2. Drag your background into your timeline at the end of your video.
+3. Import two or three of your previous videos and drag them into your picture in picture tracks. Each clip should be on its track.
+4. Trim the clips in your picture in picture track down to the same length as your end card.
+5. Shrink your clips down to thumbnail-size by dragging their corners in the preview window.
+6. Position your clips so they are spaced evenly by dragging them in the preview screen.
+7. Mute your clips.
+8. If your background does not include any calls to action, choose a title from the **Text/Titles** menu in Filmora and create at least two – one asking viewers to subscribe, and one asking them to watch your suggested videos.
+9. Export your video from Filmora and upload it to YouTube.
+10. Go to your **Video Manager** and select **Annotations** in the drop-down menu next to your video.
+11. Go to your end card in the previewer, as that is where you want to add your annotations.
+12. Click **Add Annotation** and add a spotlight annotation to your video. Stretch it over one of your thumbnails and then check the Link box under your Annotation’s timing. Insert a link to the video you are previewing.
+13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
+14. Click **Apply Changes**.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+[Part 1: Intros](#part1)
+
+[Elements of an Intro](#elements)
+
+[Top Intro Sites](#top)
+
+[Creating an Intro in Filmora](#creating)
+
+[Part 2: End Cards](#part2)
+
+[Elements of an End Card](#element)
+
+[How To Make an End Card](#how-to)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part1: Intros
+
+#### Elements of an Intro
+
+Intros should only last about five seconds, and that can be cut down to two or three if you have a larger following.
+
+When your intro video is longer than five seconds viewers are more likely to click away. The first 15 seconds of a video is when viewers are most likely to decide to click on one of the recommended videos, or go back to their search results and choose something else. The odds of them leaving within these first 15 seconds are greater if you do not get right to the main point of your video. That is why long intro sequences are bad for your watch time.
+
+Whether it is better to put your intro at the very beginning of your video, or after you introduce your topic, will depend on your viewers. You may want to try it both ways and then look at your retention report (found in your YouTube Creator Studio under Analytics) to see which works best for you.
+
+#### [Top Intro Sites](https://tools.techidaily.com/wondershare/filmora/download/)
+
+There are a few different sites where you can download animated intros, customized to include your username or logo. Here are two of the best:
+
+**FlixPress.com**
+
+This is probably the most popular intro site. There are a lot of great animated intros available for under $5, or even for free.
+
+**IntroMaker.net**
+
+This is another site with really professional looking intros for $5\. They only have two free options, though.
+
+#### Creating an Intro in Filmora
+
+You can create a simple intro card in **Filmora**.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
+2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
+3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
+4. With your logo selected, click on the Green Screen icon. In the pop-up, select the background of your logo to make it transparent. For this to work your logo cannot be the same color as its background.
+5. Click on the editing icon with your logo selected and choose an animation.
+6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
+7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
+8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -753,13 +773,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -768,6 +781,13 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -823,5 +843,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-decoding-the-modern-content-creators-dilemma/"><u>[New] Decoding the Modern Content Creator's Dilemma</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-boosting-mobile-slow-mo-top-app-picks/"><u>2024 Approved Boosting Mobile Slow Mo Top App Picks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-channel-flair-free-download-templates/"><u>2024 Approved Channel Flair Free Download Templates</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unlock-potential-in-social-media-storytelling-fb-slideshows/"><u>2024 Approved Unlock Potential in Social Media Storytelling FB Slideshows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-usb-30-windows-drivers-step-by-step-installation-tutorials/"><u>Download the Newest USB 3.0 Windows Drivers – Step-by-Step Installation Tutorials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/economic-elders-youtubes-most-knowledgeable-financial-stations-for-2024/"><u>Economic Elders YouTube's Most Knowledgeable Financial Stations for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-earnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>In 2024, Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-product-reviews-for-monetary-rewards-on-youtube-for-2024/"><u>Mastering Product Reviews for Monetary Rewards on YouTube for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-fixes-for-resolving-mfplatdll-not-found-windows-problems/"><u>Quick Fixes for Resolving 'mfplat.dll' Not Found Windows Problems</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/uncovering-youtubes-star-comment/"><u>Uncovering YouTube's Star Comment</u></a></li>
+</ul></div>
 

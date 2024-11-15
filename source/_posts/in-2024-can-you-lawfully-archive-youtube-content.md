@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Can You Lawfully Archive YouTube Content?"
-date: 2024-09-17T04:58:26.998Z
-updated: 2024-09-20T06:58:34.195Z
+date: 2024-11-13T20:13:55.115Z
+updated: 2024-11-15T06:28:25.958Z
 tags:
   - ai video
   - ai youtube
@@ -115,6 +115,13 @@ The Wondershare Filmora screen editor has appropriate features to help you add a
 
 ![export or save videos filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After adding all the special effects, you are almost at the final stage. The next important thing to do is to choose the format of saving your video file. After making sure that your video format is set, and then you can export your video file.
 
 Remember to save your file in a format acceptable to the platform that you are intending to upload your videos. Some of the major video formats accepted by YouTube include MP4, AVI, and VMA. You can use any of these formats to save your YouTube video files.
@@ -191,6 +198,13 @@ The Wondershare Filmora screen editor has appropriate features to help you add a
 
 ![export or save videos filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After adding all the special effects, you are almost at the final stage. The next important thing to do is to choose the format of saving your video file. After making sure that your video format is set, and then you can export your video file.
 
 Remember to save your file in a format acceptable to the platform that you are intending to upload your videos. Some of the major video formats accepted by YouTube include MP4, AVI, and VMA. You can use any of these formats to save your YouTube video files.
@@ -200,13 +214,6 @@ You don’t need to upload your videos later as the Filmora features will allow 
 When editing your YouTube videos on your computer, remember to follow the above steps carefully, and remember to use the right widescreen format, and render your video files in either 1080p or 720p high definition.
 
 Having equipped yourself with such knowledge, you can download the Filmora software and install it on your computer as it is one of the very best software when it comes to recording and editing videos and audio.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -230,6 +237,13 @@ For macOS 10.12 or later
 
 ![record games filmora](https://images.wondershare.com/filmora/guide/recording-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now that you have installed this software, launch the Wondershare Filmora program and the main interface of the Filmora application will pop up to get you to the recording options. This interface has about four options; Audio reframe, Audio Best Sync, PC screen, and AI portrait. All these are set to make your work easier when recording videos and audio. Click on the new project from the welcome screen.
 
 **Step 3: Click on the record PC screen option.**
@@ -241,10 +255,10 @@ You can customize your recording options to suit your interest and then open you
 ![record games filmora](https://images.wondershare.com/filmora/article-images/start-recording-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Edit Recorded YouTube Video
@@ -273,6 +287,19 @@ At this point, you can rotate the video at any angle, or direction and you can a
 
 ![add text effects filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now that you have edited your different video shots into a single video, you can now take the step of adding some more effects to your video. At this point, you can add different staff such as music, texts, and different other effects that you would prefer your viewers to see in your video. Some may think this is difficult to do if they have not tried it before.
 
 The Wondershare Filmora screen editor has appropriate features to help you add all the effect you need without wasting time at all. This program will guide you through how to add effects to your YouTube videos. This is an important step in answering the question asked by many; **is it illegal to record music from YouTube**? If you adhere to YouTube rules and policy, you can incorporate music and other effects into your YouTube videos without fear.
@@ -280,13 +307,6 @@ The Wondershare Filmora screen editor has appropriate features to help you add a
 **Step 4: Save and Export**
 
 ![export or save videos filmora](https://images.wondershare.com/filmora/guide/overview-export-win-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 After adding all the special effects, you are almost at the final stage. The next important thing to do is to choose the format of saving your video file. After making sure that your video format is set, and then you can export your video file.
 
@@ -297,13 +317,6 @@ You don’t need to upload your videos later as the Filmora features will allow 
 When editing your YouTube videos on your computer, remember to follow the above steps carefully, and remember to use the right widescreen format, and render your video files in either 1080p or 720p high definition.
 
 Having equipped yourself with such knowledge, you can download the Filmora software and install it on your computer as it is one of the very best software when it comes to recording and editing videos and audio.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -336,6 +349,13 @@ Now that you have installed this software, launch the Wondershare Filmora progra
 You can customize your recording options to suit your interest and then open your browser and open the YouTube video you want to record. After this is done, click on the red button to start recording the screen. Now you are aware of the steps you need to take when you want to **record a YouTube video with audio**.
 
 ![record games filmora](https://images.wondershare.com/filmora/article-images/start-recording-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Edit Recorded YouTube Video
 
@@ -417,119 +437,19 @@ In order for you to be able to view subtitles for a YouTube video the uploader o
 
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
-To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
-
-If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
-
-If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
-
-## Adding YouTube Captions in 4 Steps
-
-1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
-
-2\. Click on the drop-down menu next to the video you want to add captions to and choose **Subtitles and CC**.
-
-3\. Select **Add New** **Subtitles or CC**.
-
-4\. Choose whether to create your captions, upload a file that has them, transcribe your video, use automatic captioning, or use captioning software.
-
-**Create Subtitles or Closed Captions** will allow you to create your subtitles on YouTube.
-
-**Upload A File** allows you to upload a pre-made subtitle file from your computer. Supported file types include SubRip (.srt) and SubViewer (.sbv). You cannot use a word or PDF document for your subtitles.
-
-**Transcribe and Set Timings** is where you can type a transcript of your video and set timings to sync it to your video. This differs from Create Subtitles or Closed Captions in that your transcript is all typed in to one text field.
-
-**Use Automatic Captioning** will automatically use speech recognition technology to create captions. You can edit these auto-generated captions later if there are mistakes.
-
-**Use Captioning Software or Services** is what you choose if you want to use a program or service to create the subtitles for your video.
-
-The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-By captioning your YouTube videos you help to make them accessible to more potential viewers. Subtitles are useful to viewers who have hearing impairments, whose first language is different from yours, or who are unable to watch your video with sound. Closed captioning can also be useful for you as a YouTuber because it helps with your SEO, or search engine optimization. Practicing better SEO can get your videos ranked higher in search results. Google and YouTube both index subtitles and transcripts much like they do your video’s description, unless you use automated captions.
-
-This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
-
-## How To Turn On Captions on YouTube
-
-In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
-
-![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
-
-To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
-
-If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
-
-If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
-
-## Adding YouTube Captions in 4 Steps
-
-1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
-
-2\. Click on the drop-down menu next to the video you want to add captions to and choose **Subtitles and CC**.
-
-3\. Select **Add New** **Subtitles or CC**.
-
-4\. Choose whether to create your captions, upload a file that has them, transcribe your video, use automatic captioning, or use captioning software.
-
-**Create Subtitles or Closed Captions** will allow you to create your subtitles on YouTube.
-
-**Upload A File** allows you to upload a pre-made subtitle file from your computer. Supported file types include SubRip (.srt) and SubViewer (.sbv). You cannot use a word or PDF document for your subtitles.
-
-**Transcribe and Set Timings** is where you can type a transcript of your video and set timings to sync it to your video. This differs from Create Subtitles or Closed Captions in that your transcript is all typed in to one text field.
-
-**Use Automatic Captioning** will automatically use speech recognition technology to create captions. You can edit these auto-generated captions later if there are mistakes.
-
-**Use Captioning Software or Services** is what you choose if you want to use a program or service to create the subtitles for your video.
-
-The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-By captioning your YouTube videos you help to make them accessible to more potential viewers. Subtitles are useful to viewers who have hearing impairments, whose first language is different from yours, or who are unable to watch your video with sound. Closed captioning can also be useful for you as a YouTuber because it helps with your SEO, or search engine optimization. Practicing better SEO can get your videos ranked higher in search results. Google and YouTube both index subtitles and transcripts much like they do your video’s description, unless you use automated captions.
-
-This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
-
-## How To Turn On Captions on YouTube
-
-In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
-
-![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
-
-To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
-
-If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
-
-If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
+
+If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
+
+If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
+
 ## Adding YouTube Captions in 4 Steps
 
 1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
@@ -603,6 +523,113 @@ If you want to change the language of the subtitles click on the settings icon (
 The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+By captioning your YouTube videos you help to make them accessible to more potential viewers. Subtitles are useful to viewers who have hearing impairments, whose first language is different from yours, or who are unable to watch your video with sound. Closed captioning can also be useful for you as a YouTuber because it helps with your SEO, or search engine optimization. Practicing better SEO can get your videos ranked higher in search results. Google and YouTube both index subtitles and transcripts much like they do your video’s description, unless you use automated captions.
+
+This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
+
+## How To Turn On Captions on YouTube
+
+In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
+
+![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
+
+To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
+
+If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
+
+If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
+
+## Adding YouTube Captions in 4 Steps
+
+1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
+
+2\. Click on the drop-down menu next to the video you want to add captions to and choose **Subtitles and CC**.
+
+3\. Select **Add New** **Subtitles or CC**.
+
+4\. Choose whether to create your captions, upload a file that has them, transcribe your video, use automatic captioning, or use captioning software.
+
+**Create Subtitles or Closed Captions** will allow you to create your subtitles on YouTube.
+
+**Upload A File** allows you to upload a pre-made subtitle file from your computer. Supported file types include SubRip (.srt) and SubViewer (.sbv). You cannot use a word or PDF document for your subtitles.
+
+**Transcribe and Set Timings** is where you can type a transcript of your video and set timings to sync it to your video. This differs from Create Subtitles or Closed Captions in that your transcript is all typed in to one text field.
+
+**Use Automatic Captioning** will automatically use speech recognition technology to create captions. You can edit these auto-generated captions later if there are mistakes.
+
+**Use Captioning Software or Services** is what you choose if you want to use a program or service to create the subtitles for your video.
+
+The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+By captioning your YouTube videos you help to make them accessible to more potential viewers. Subtitles are useful to viewers who have hearing impairments, whose first language is different from yours, or who are unable to watch your video with sound. Closed captioning can also be useful for you as a YouTuber because it helps with your SEO, or search engine optimization. Practicing better SEO can get your videos ranked higher in search results. Google and YouTube both index subtitles and transcripts much like they do your video’s description, unless you use automated captions.
+
+This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
+
+## How To Turn On Captions on YouTube
+
+In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
+
+![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
+
+To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
+
+If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
+
+If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
+
+## Adding YouTube Captions in 4 Steps
+
+1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
+
+2\. Click on the drop-down menu next to the video you want to add captions to and choose **Subtitles and CC**.
+
+3\. Select **Add New** **Subtitles or CC**.
+
+4\. Choose whether to create your captions, upload a file that has them, transcribe your video, use automatic captioning, or use captioning software.
+
+**Create Subtitles or Closed Captions** will allow you to create your subtitles on YouTube.
+
+**Upload A File** allows you to upload a pre-made subtitle file from your computer. Supported file types include SubRip (.srt) and SubViewer (.sbv). You cannot use a word or PDF document for your subtitles.
+
+**Transcribe and Set Timings** is where you can type a transcript of your video and set timings to sync it to your video. This differs from Create Subtitles or Closed Captions in that your transcript is all typed in to one text field.
+
+**Use Automatic Captioning** will automatically use speech recognition technology to create captions. You can edit these auto-generated captions later if there are mistakes.
+
+**Use Captioning Software or Services** is what you choose if you want to use a program or service to create the subtitles for your video.
+
+The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -623,5 +650,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-enhance-film-scenes-with-soundtracks-in-premiere-pro/"><u>[New] 2024 Approved Enhance Film Scenes With Soundtracks in Premiere Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-perfect-youtube-introend-videos-at-no-cost/"><u>[New] Crafting Perfect YouTube Intro/End Videos at No Cost</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-propel-your-virtual-presence-with-these-gadgets/"><u>[New] Propel Your Virtual Presence with These Gadgets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-smooth-media-transfer-twitvideos-to-whatsapp-guide/"><u>[New] Smooth Media Transfer TwitVideos to WhatsApp Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfect-your-iphone-writings-and-movies-with-optimal-tools/"><u>[Updated] Perfect Your iPhone' Writings & Movies With Optimal Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-practices-selecting-among-top-9-free-logo-designers/"><u>2024 Approved Best Practices Selecting Among Top 9 Free Logo Designers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/achieve-seamless-video-playback-by-removing-bars-in-youtube-for-2024/"><u>Achieve Seamless Video Playback by Removing Bars in YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/completely-erase-your-connection-with-youtube-shorts/"><u>Completely Erase Your Connection with YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-the-functionality-of-youtubes-media-hub/"><u>Decoding the Functionality of YouTube's Media Hub</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-your-channels-image-adding-watermarks-and-logos-to-video-posts/"><u>Enhance Your Channel's Image Adding Watermarks & Logos to Video Posts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-techniques-to-elevate-your-channels-visibility/"><u>Essential Techniques to Elevate Your Channel's Visibility</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-audio-alchemy-transforming-videos-through-music-addition-and-cutting/"><u>In 2024, Audio Alchemy Transforming Videos Through Music Addition & Cutting</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-complete-analysis-lg-27-oled-screens-visual-edge/"><u>In 2024, Complete Analysis LG 27 OLED Screen's Visual Edge</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/pocket-friendly-zoom-lens-kodak-fz53-reviewed/"><u>Pocket-Friendly Zoom Lens - Kodak FZ53 Reviewed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/shooting-for-beginners-best-cams-reviewed-2024-edition/"><u>Shooting for Beginners Best Cams Reviewed 2024 Edition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tv-ready-recycling-replay-youtube-videos-efficiently/"><u>TV-Ready Recycling Replay YouTube Videos Efficiently</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-dji-mavic-3-unveiled-revolutionizing-sky-high-photography/"><u>Ultimate Guide: DJI Mavic 3 Unveiled - Revolutionizing Sky-High Photography</u></a></li>
+</ul></div>
 

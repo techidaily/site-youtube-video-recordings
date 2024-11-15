@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Create, Captivate  Independent Animation Innovations\""
-date: 2024-09-15T16:23:56.134Z
-updated: 2024-09-20T10:27:28.634Z
+date: 2024-11-08T04:05:02.231Z
+updated: 2024-11-15T06:26:38.436Z
 tags:
   - ai video
   - ai youtube
@@ -108,16 +108,16 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
@@ -155,25 +155,18 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -191,6 +184,13 @@ This site has a huge number of free After Effects tutorials. There are basic int
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -223,32 +223,32 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
+## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
+
+On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
+
+## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
+
+Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
+
+What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
+
+## **[Bloop Animation](https://www.bloopanimation.com/)**
+
+ Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
+
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
-
-On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
-
-Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
-
-What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
-
-## **[Bloop Animation](https://www.bloopanimation.com/)**
-
- Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
@@ -257,10 +257,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -297,6 +297,13 @@ Follow @Richard Bennett
 
  This article will explain the pros and cons of Sub4Sub.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -335,6 +342,13 @@ Follow @Richard Bennett
 
  This article will explain the pros and cons of Sub4Sub.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does YouTube Sub4Sub Work
 
 #### 1\. Does Sub4Sub Work?
@@ -356,6 +370,13 @@ Follow @Richard Bennett
  When you agree to exchange subscriptions with somebody there is also the danger that they will decide to unsubscribe from your channel afterwards. This could happen much later when they realize they do not want to be subscribed to so many people and have forgotten which channels were parts of Sub4Sub agreements. Or it could happen within weeks, days, or even hours of you subscribing to them. There are some dishonest YouTubers who use sub for sub to get subscribers while already planning to unsubscribe to anybody who agrees. Their hope is that the other person will not notice or will not bother unsubscribing from them if they do.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -452,5 +473,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-conceal-dont-reveal-how-to-blur-faces-online/"><u>[New] Conceal, Don't Reveal How to Blur Faces Online</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-a-beginners-pathway-to-screen-casting-and-capturing-macos/"><u>[Updated] 2024 Approved A Beginner's Pathway to Screen Casting and Capturing macOS</u></a></li>
+<li><a href="https://fox-that.techidaily.com/a-step-by-step-approach-to-utilizing-the-apple-support-tool-for-your-iphone-needs/"><u>A Step-by-Step Approach to Utilizing the Apple Support Tool for Your iPhone Needs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-techniques-for-using-live-photos-in-mobile-devices/"><u>Advanced Techniques for Using Live Photos in Mobile Devices</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/auto-play-youtube-keep-it-hidden-stay-connected-for-2024/"><u>Auto-Play YouTube - Keep It Hidden, Stay Connected for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/eco-friendly-tactics-for-youtube-call-conversions-for-2024/"><u>Eco-Friendly Tactics for YouTube Call Conversions for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-honor-magic5-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-xiaomi-redmi-note-12r-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Xiaomi Redmi Note 12R by Name | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>In 2024, Audio Matters Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-effortlessly-engage-with-an-array-of-available-youtube-content/"><u>In 2024, Effortlessly Engage with an Array of Available YouTube Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/rhythms-riches-the-ultimate-dj-templates-collection/"><u>Rhythm's Riches The Ultimate DJ Templates Collection</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-your-pc-effective-ways-to-resolve-kernel-inpage-errors/"><u>Troubleshooting Your PC: Effective Ways to Resolve Kernel Inpage Errors</u></a></li>
+<li><a href="https://win-popular.techidaily.com/why-apple-must-adapt-to-the-touch-screen-revolution-lessons-learned-from-microsofts-surface-laptop-pro-series/"><u>Why Apple Must Adapt to the Touch Screen Revolution: Lessons Learned From Microsoft's Surface Laptop Pro Series.</u></a></li>
+</ul></div>
 

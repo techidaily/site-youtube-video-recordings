@@ -1,7 +1,7 @@
 ---
 title: Is Being Polite to Intelligent Assistants Such as ChatGPT, Alexa by Amazon, and Siri by Apple a Must for Proper Interaction?
-date: 2024-10-28T17:12:34.711Z
-updated: 2024-11-04T23:54:39.552Z
+date: 2024-11-13T20:19:52.319Z
+updated: 2024-11-14T22:10:46.643Z
 tags:
   - chatgpt
   - open-ai
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
  However, the current AI models like ChatGPT-4 and Google Bard haven't yet advanced to a point they can consistently pass the Turing test. In fact, if you're familiar with AI, you can[spot AI-generated text](https://www.makeuseof.com/dangers-ai-writing-how-spot-ai-generated-text/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The 5 Best Turing Test Alternatives
 
  It's possible that[future AI models like ChatGPT-5](https://www.makeuseof.com/when-will-gpt5-launch/) could pass the Turing test. If that happens, we would need different tests combined with the Turing test to identify if we're talking to an AI or a human. Here are the best Turing test alternatives:
@@ -41,46 +48,58 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![A couple watching Netflix on TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/a-couple-watching-netflix-on-tv.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Gary Marcus, a renowned cognitive scientist and AI researcher, proposed an alternative to the Turing test that was published in the[New Yorker](https://www.newyorker.com/tech/annals-of-technology/what-comes-after-the-turing-test) to identify the cognitive ability of an AI. The test is simple—you judge an AI model based on its ability to watch and understand YouTube videos and TV shows without subtitles or text. For the AI to pass the Marcus test, it should understand sarcasm, humor, irony, and the storyline when watching the videos and explain it like a human.
 
  At the moment,[GPT-4 can describe images](https://www.makeuseof.com/best-new-gpt4-features-explained/) , but so far, there is currently no AI model that can comprehend videos like a human.[Self-driving vehicles](https://www.makeuseof.com/self-driving-cars-explained/) come close, but they're not completely autonomous and require sensors since they can't make sense of everything in their surrounding environment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. The Visual Turing Test
 
 ![Various different AI-generated images made with DALL-E](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/dall-e-ai-generated-image-gallery.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  According to a research paper published on[PNAS](https://www.pnas.org/doi/10.1073/pnas.1422953112) , the visual Turing test can be used to identify if you're talking to a human or an AI using image questionaries. It works like the Turing test, but instead of answering questions using texts, participants are shown images and expected to answer simple questions while thinking like a human. However, the[visual Turing test is different from CAPTCHAs](https://www.makeuseof.com/tag/how-do-captchas-work/) since all the answers are correct—but to pass the test, the AI must process the images similarly to a human.
 
  Beyond that, if an AI and a human are shown multiple images side by side and asked to identify realistic images, the human would have the cognitive ability to pass the test. This is because AI models find it difficult to distinguish images that don't look like they were taken in the real world. In fact, that's the reason why you can[identify AI-generated images](https://www.makeuseof.com/how-to-identify-ai-generated-image/) using anomalies that don't make sense.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. The Lovelace 2.0 Test
 
 ![robot holding a pencil pointing to a book](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/robot-holding-pencil-pointing-to-book-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The theory that a computer can't create original ideas beyond what it was programmed to do was first conceptualized by Ada Lovelace before the Turing test. However, Alan Turing objected to that theory arguing that AI can still surprise humans. It wasn't until 2001 that the guidelines for the Lovelace test were developed to tell apart an AI from a human—and, as per the[thekurzweillibrary](http://www.thekurzweillibrary.com/georgia-tech-professor-proposes-another-alternative-to-the-turing-test) the rules were later revised in 2014.
 
  For an AI to pass the Lovelace test, it must demonstrate that it can generate original ideas that exceed its training. Current AI models like GPT-4 don't have the capability to come up with new inventions beyond our existing knowledge. However,[artificial general intelligence](https://www.makeuseof.com/what-is-artificial-general-intelligence-how-it-differs-generative-ai/) can achieve that capability and pass the Lovelace test.
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Reverse Turing Test
 
@@ -91,13 +110,6 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
  For instance, if ChatGPT-4 is the interrogator, you could enroll Google Bard and another human as participants. If the AI model can correctly identify the human participant based on the answers, it has passed the test.
 
  The downside of the reverse Turing test is that it's unreliable, especially considering that sometimes[AI cannot differentiate AI-generated](https://www.makeuseof.com/ai-content-detectors-dont-work/) and human-written content.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. AI Classification Framework
 
@@ -128,21 +140,22 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-10-iphone-camera-features-you-should-know-in-ios-11/"><u>[New] In 2024, 10 iPhone Camera Features You Should Know in iOS 11</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-mastering-status-update-in-discord-chat/"><u>[New] Mastering Status Update in Discord Chat</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-love-and-light-nine-essential-filmora-elements/"><u>2024 Approved Love and Light Nine Essential Filmora Elements</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/best-of-hollywood-get-your-free-hd-movie-downloads-for-2016s-must-see-film-list/"><u>Best of Hollywood: Get Your Free HD Movie Downloads for 2016’S Must-See Film List!</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/complete-free-tutorial-on-how-to-get-watch-and-experience-high-quality-vr-in-4k-with-360-degrees-views/"><u>Complete Free Tutorial on How to Get, Watch & Experience High-Quality VR in 4K with 360 Degrees Views</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/directly-downloading-videos-from-vevo-a-step-by-step-guide/"><u>Directly Downloading Videos From Vevo: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/download-xvid-hd-full-resolution-movies-step-by-step-guide-2017-edition/"><u>Download Xvid HD Full-Resolution Movies - Step by Step Guide, 2017 Edition</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/free-tools-for-quickly-downloading-metacafe-videos-top-picks/"><u>Free Tools for Quickly Downloading Metacafe Videos: Top Picks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-guide-to-prime-church-livestreaming-services/"><u>In 2024, Guide to Prime Church Livestreaming Services</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-the-art-of-fixing-cannot-open-file-problems-in-win1110/"><u>Mastering the Art of Fixing 'Cannot Open File' Problems in Win11/10</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/save-your-favorite-tiktoks-directly-no-watermark-mp4-conversion-guide/"><u>Save Your Favorite TikToks Directly: No-Watermark MP4 Conversion Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/simple-guide-on-converting-any-video-format-avi-mp4-mkv-to-audio-files-mp3-for-free/"><u>Simple Guide on Converting Any Video Format (AVI, MP4, MKV) to Audio Files (MP3) for Free</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/top-talent-spotlights-inspiring-recruitment-chronicles-1-10-for-2024/"><u>Top Talent Spotlights Inspiring Recruitment Chronicles #1-10 for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/understanding-the-difference-how-does-1080p-compare-to-4k-and-converting-4k-to-1080p/"><u>Understanding the Difference: How Does 1080P Compare to 4K and Converting 4K to 1080P</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-amplify-earnings-monetize-youtube-on-the-go-with-effective-techniques/"><u>[New] Amplify Earnings Monetize YouTube on the Go with Effective Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-are-you-violating-copyright-by-screenrecording-youtube/"><u>[New] Are You Violating Copyright by ScreenRecording YouTube?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-depth-look-at-sonys-x1000v-hd-recorder/"><u>[New] In-Depth Look at Sony's X1000V HD Recorder</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boosting-traffic-on-youtube-mastering-the-art-of-video-outros/"><u>[Updated] Boosting Traffic on YouTube Mastering the Art of Video Outros</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-indoor-brightness-boosted-by-external-radiance/"><u>[Updated] Indoor Brightness Boosted by External Radiance</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-become-a-viral-sensation-maximizing-your-youtube-reach/"><u>2024 Approved Become a Viral Sensation Maximizing Your YouTube Reach</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-efficient-ways-to-clean-your-youtube-watch-later-playlist/"><u>2024 Approved Efficient Ways to Clean Your YouTube Watch Later Playlist</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exemplary-brain-challenge-video-libraries/"><u>2024 Approved Exemplary Brain Challenge Video Libraries</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/cutting-edge-ad-strategies-for-peak-performance-on-facebook/"><u>Cutting-Edge Ad Strategies for Peak Performance on Facebook</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dive-into-the-world-of-youtuber-shorts/"><u>Dive Into the World of Youtuber Shorts</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-xiaomi-redmi-note-13-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Xiaomi Redmi Note 13 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-creating-memorable-youtube-shorts-10-must-do-tips/"><u>In 2024, Creating Memorable YouTube Shorts - 10 Must-Do Tips</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-f34-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy F34 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-vanishing-point-restoring-your-windows-11-touchpad-cursor/"><u>Solving the Vanishing Point: Restoring Your Windows 11 Touchpad Cursor</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/step-by-step-guide-transforming-your-mp4-videos-into-compatible-mpeg-1-files/"><u>Step-by-Step Guide: Transforming Your MP4 Videos Into Compatible MPEG-1 Files</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/surging-views-selecting-best-hashtags-for-yt/"><u>Surging Views Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/top-2024-fb-ad-trends-dont-miss-out/"><u>Top 2024 FB Ad Trends Don't Miss Out</u></a></li>
 </ul></div>
 

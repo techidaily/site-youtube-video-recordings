@@ -1,7 +1,7 @@
 ---
 title: The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
-date: 2024-11-01T00:46:15.129Z
-updated: 2024-11-04T16:32:54.776Z
+date: 2024-11-08T21:36:20.788Z
+updated: 2024-11-15T07:18:38.124Z
 categories:
   - BestProducts
 description: This Article Describes The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
@@ -39,10 +39,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 4.8
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
@@ -72,13 +72,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  The Assassin’s Creed franchise has taken gamers all over the world, and now fans of this historical fiction series may venture forth into the gritty medieval landscapes of England and Norway in Assassin’s Creed Valhalla. This promises to be one of the most expansive and unique games in a long line of genre-defining titles with an enormous open world map and a wealth of engaging stories and activities to participate in. Valhalla builds on many of the mechanics players first saw in Assassins’s Creed: Origins and Odyssey, containing more RPG elements, a variety of combat styles, and plenty of upgrades.
 
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Story: A lot going on, and none of it to be spoiled**
 
@@ -130,14 +123,14 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC ship](https://www.lifewire.com/thmb/n9S5L4JClTiqP1vYa_7cTGw6o0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-7-d89d4a9941b8488ea6ef1aeba6486895.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Difficulty and Content Settings: Lots to customize**
 
@@ -154,10 +147,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Customization: Lots of stuff to tweak**
@@ -177,10 +170,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process and Performance: A rough start**
@@ -193,18 +186,18 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  On a[gaming PC](https://www.lifewire.com/best-gaming-pcs-4045451) with a more powerful processor, more RAM, and an RTX 2070[GPU](https://www.lifewire.com/best-graphics-cards-4692676) , I didn’t encounter any glitches. However, the game is extremely power-hungry, and I was only able to run it at max settings with 60fps at 1080p. Ubisoft titles are known for being poorly optimized at launch, so this game should perform better after a few patches. Still, it’s clearly designed for next-gen consoles and the latest PC hardware. If you are playing on PC, be sure to utilize the benchmarking tool to find the ideal settings for your system.
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Typical AAA**
 
@@ -213,10 +206,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -230,6 +223,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Final Verdict: Epic stories and exciting combat in a sprawling open world.
 
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -254,15 +254,16 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/best-halloween-playlist-top-70-spine-chilling-tracks-and-free-mp3-downloads/"><u>Best Halloween Playlist: Top 70 Spine-Chilling Tracks & Free MP3 Downloads</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/educational-and-amusing-wildlife-footage-for-kids-free-downloads/"><u>Educational & Amusing Wildlife Footage for Kids - Free Downloads!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/enhance-print-quality-with-the-latest-hp-laserjet-p1007-driver-software-free-access/"><u>Enhance Print Quality with the Latest HP LaserJet P1^007 Driver Software - Free Access</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/fast-track-to-success-brother-hl-3170cdw-printer-driver-download/"><u>Fast Track to Success: Brother HL-3170CDW Printer Driver Download</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/introducing-the-msi-c906-an-advanced-tiny-pc-boosted-by-intels-latest-raptor-lake-cpu-featuring-quad-25-gigabit-lan-connectivity/"><u>Introducing the MSI C906: An Advanced Tiny PC Boosted by Intel's Latest Raptor Lake CPU, Featuring Quad 2.5 Gigabit LAN Connectivity</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/mastering-the-challenges-of-uploading-and-streaming-in-4k-on-youtube-a-comprehensive-guide/"><u>Mastering the Challenges of Uploading and Streaming in 4K on YouTube: A Comprehensive Guide</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/should-you-choose-vn-video-editor-pro-for-your-video-editing-needs-in-2024/"><u>Should You Choose VN Video Editor Pro for Your Video Editing Needs, In 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ower-of-pausing-incorporating-effective-chapters-in-your-youtube-series/"><u>The Power of Pausing Incorporating Effective Chapters in Your YouTube Series</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/troubleshooting-and-repairing-the-internal-server-error-on-youtube-in-202n-effective-solutions/"><u>Troubleshooting and Repairing the 'Internal Server Error' On YouTube in 202N - Effective Solutions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/yt-highlights-year-end-spotlight-on-top-music-reactions-for-2024/"><u>YT Highlights Year-End Spotlight on Top Music Reactions for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722961599625-download-now-enhance-your-windows-11-experience-with-updated-realtek-readers/"><u>[Download Now]: Enhance Your Windows 11 Experience with Updated RealTek Readers!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-ultimate-guide-to-choosing-between-igtv-and-youtube-for-content-creators/"><u>[Updated] 2024 Approved The Ultimate Guide to Choosing Between IGTV & YouTube for Content Creators</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-advanced-techniques-for-high-quality-youtube-content/"><u>[Updated] Advanced Techniques for High-Quality YouTube Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-connect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires/"><u>2024 Approved Connect With Creators Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-your-videos-with-complimentary-banners-here/"><u>In 2024, Elevate Your Videos with Complimentary Banners, Here</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-poco-m6-pro-4g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Poco M6 Pro 4G Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-obtaining-hidden-facebook-vids/"><u>Mastering the Art of Obtaining Hidden Facebook Vids</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximize-video-discoverability-key-youtube-seo-techniques/"><u>Maximize Video Discoverability Key YouTube SEO Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/online-marketplaces-for-partnering-with-youtube-content-makers/"><u>Online Marketplaces for Partnering With YouTube Content Makers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcome-destiny-2-boot-issues-effective-solutions-unveiled/"><u>Overcome Destiny 2 Boot Issues: Effective Solutions Unveiled</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reclaiming-vanished-iphone-note-content-with-simple-tricks/"><u>Reclaiming Vanished iPhone Note Content with Simple Tricks</u></a></li>
 </ul></div>
 

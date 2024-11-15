@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Best Practices for Video Thumbnail Creation in the Digital Age"
-date: 2024-09-12T16:29:47.260Z
-updated: 2024-09-20T00:42:27.012Z
+date: 2024-11-10T19:25:49.921Z
+updated: 2024-11-15T04:30:28.189Z
 tags:
   - ai video
   - ai youtube
@@ -170,16 +170,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
 
@@ -255,13 +255,6 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -280,19 +273,6 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -304,6 +284,13 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -322,13 +309,6 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Enable Monetization on YouTube for Mobile Devices: A 2024 Guide
 
@@ -381,6 +361,13 @@ To join the YPP, you must meet the following requirements:
 
 ## Part 2\. The Step-by-Step Guide for Monetizing Your YouTube Channel on Your Phone
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### YouTube Monetization Steps for Mobile
 
 Following YPP's requirements, you should follow these steps. Several steps must be followed in order to enable YouTube monetization using a mobile device:
@@ -412,6 +399,13 @@ To access the YouTube Studio dashboard, click the icon of your channel or profil
 To view YouTube Studio's monetization options, click on the "Monetization" tab. The "Enable" option will appear if you meet the eligibility criteria. To receive your earnings, follow the instructions onscreen to set up Google AdSense.
 
 ![goggle adsense](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step - 4 . Accept YouTube's terms and conditions
 
@@ -467,6 +461,13 @@ A similar tactic has already been discussed. Your fans can buy branded goods fro
 
 Using YouTube Premium, users can watch videos ad-free and download videos. Fortunately, you can still earn money by uploading videos to this service. Video creators receive subscription revenue payments in the same manner as ad revenues. You earn money based on the number of times Premium members watch your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crowdfunding on YouTube
 
 Creators can unlock this feature once they reach 500 subscribers and watch 3000 hours. Through three main avenues, they can directly monetize their audience:
@@ -517,6 +518,13 @@ We have covered key steps for meeting YouTube's requirements and monetizing vide
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1\. What you need to know about YouTube Monetization
 
 ### Rules and requirements for YouTube Monetization
@@ -553,13 +561,6 @@ To join the YPP, you must meet the following requirements:
 * The Community Guidelines strike on your channel is not active
 
 ![join the ypp](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-2.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. The Step-by-Step Guide for Monetizing Your YouTube Channel on Your Phone
 
@@ -629,6 +630,13 @@ It is beneficial for creators to use YouTube AdSense, although it is not a relia
 
 ![ways for youtube monetization](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-6.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Ads on YouTube
 
 Monetizing a website has many methods, but this is the most basic and straightforward one. Various YouTube ad formats provide control over ad placement before or during a video.
@@ -671,6 +679,13 @@ You can elevate your content with Filmora whether you're experienced or starting
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Features for Editing Videos or Images for YouTube
 
 #### 1\. [AI Copywriting](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -708,5 +723,24 @@ We have covered key steps for meeting YouTube's requirements and monetizing vide
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-archive-hunt-accessing-yesteryears-facebook-stories/"><u>[New] 2024 Approved Archive Hunt Accessing Yesteryear's Facebook Stories</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless/"><u>[New] Deciding on the Best Videography Camera Type DSLR or Mirrorless?</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-art-of-going-unseen-during-instagram-live-events-for-2024/"><u>[New] The Art of Going Unseen During Instagram Live Events for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-high-level-behavior-tips-for-youtube-users/"><u>[Updated] 2024 Approved High-Level Behavior Tips for YouTube Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-digital-dividends-the-creators-guide-to-monetization/"><u>[Updated] Digital Dividends The Creator's Guide to Monetization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maestro-of-visual-and-sonic-harmony-creation-for-2024/"><u>[Updated] Maestro of Visual & Sonic Harmony Creation for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-no-copyrights-required-best-10-melodies-for-zen-practice/"><u>[Updated] No Copyrights Required - Best 10 Melodies for Zen Practice</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-avoiding-storage-woes-removing-youtube-media/"><u>2024 Approved Avoiding Storage Woes Removing YouTube Media</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevating-your-contents-exposure-with-ongoing-creative-commons-usage/"><u>2024 Approved Elevating Your Content's Exposure with Ongoing Creative Commons Usage</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-for-everyone-automating-with-auto-gpt-on-ubuntu/"><u>AI for Everyone: Automating with Auto-GPT on Ubuntu</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/comparing-youtube-policies-with-creative-commons/"><u>Comparing YouTube Policies with Creative Commons</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-realme-narzo-60-pro-5g-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Realme Narzo 60 Pro 5G FRP Locks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/leverage-tags-a-step-by-step-youtube-tactical-guide/"><u>Leverage Tags A Step-by-Step YouTube Tactical Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-shots-a-vloggers-lens-compendium/"><u>Mastering Shots A Vlogger’s Lens Compendium</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-fixing-cyberpunk-2077s-excessive-cpu-consumption/"><u>Solved: Fixing Cyberpunk 2077'S Excessive CPU Consumption</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/synthesizing-waterway-content-with-impact/"><u>Synthesizing Waterway Content with Impact</u></a></li>
+<li><a href="https://article-helps.techidaily.com/timing-translation-from-20mb-to-seconds-measurement/"><u>Timing Translation From 20Mb to Seconds Measurement</u></a></li>
+</ul></div>
 
