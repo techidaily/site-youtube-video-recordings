@@ -1,7 +1,7 @@
 ---
 title: "Best High-Definition Complete Games of the 2018 MLB Yankees Season: Top 10 Downloads for Fans"
-date: 2024-11-10T03:31:40.814Z
-updated: 2024-11-14T16:57:19.118Z
+date: 2024-11-17T16:52:48.991Z
+updated: 2024-11-24T17:03:18.397Z
 tags:
   - youtube-download
 categories:
@@ -33,12 +33,20 @@ As probably the most popular baseball team in the American League East division,
 [3\. Best Yankees Pitchers 2018](https://tools.techidaily.com/5kplayer/youtube-download/)  
 [4\. How to Download Yankees Games 1080p with 5KPlayer?](https://tools.techidaily.com/5kplayer/youtube-download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### New York Yankees Games Schedule July 24 – August 15
 
 Now that it's still in the 2018 MLB regular seasons period, you may continue to expect more exciting MLB Yankees games download free in the forthcoming MLB playoffs starting from October, the MLB Interleague play between AL and NL, as well as the whole World Series baseball games.  
 To make sure you don't miss a single Yankees games in the following season, you can bookmark this article & share it with friends as a reminder. 
 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
 
@@ -69,10 +77,7 @@ Matchups: Yankees, W, 2-1
 [![2018 MLB Groups Logos](https://www.5kplayer.com/youtube-download/img/mlb-group-logos.jpg)](https://tools.techidaily.com/5kplayer/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **NO. 7 Yankees Game vs Detroit Tigers 2018 Spring Training 23/02**  
@@ -92,10 +97,7 @@ Source: https://youtu.be/7pL\_RRDudzY
 Matchups: New York Yankees L: 4- 5
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best Yankees Pitchers 2018
@@ -110,10 +112,7 @@ Matchups: New York Yankees L: 4- 5
  It took only 2 years for Luis Severino to become one of the best New York Yankees best pitchers since he joined the team in 2015\. Yankees is the first and only team for Severino since his debut, unlike Chapman, he preferred the right hand for both bats and through in New York Yankees games. 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Download Yankees Games HD 1080p with 5KPlayer?
@@ -144,13 +143,6 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -166,21 +158,24 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-your-freefire-presence-with-top-tips-and-tricks/"><u>[New] Elevate Your FreeFire Presence with Top Tips and Tricks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-enhancing-outreach-with-strategic-partner-selection-on-youtube-for-2024/"><u>[New] Enhancing Outreach with Strategic Partner Selection on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-beyond-the-leading-films-hidden-cinema-treasures/"><u>[Updated] Beyond the Leading Films Hidden Cinema Treasures</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>[Updated] Engaging Audience From Anywhere Phone-Based Filming Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-adding-value-youtubes-card-system/"><u>[Updated] Strategies for Adding Value YouTube's Card System</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-professional-quality-passport-portraits-with-these-10-apps/"><u>2024 Approved Unlock Professional-Quality Passport Portraits with These 10 Apps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/beyond-youtube-3-pioneering-online-video-platforms/"><u>Beyond YouTube 3 Pioneering Online Video Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/broadview-networks-navigating-mcn-choices/"><u>Broadview Networks Navigating MCN Choices</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/dive-into-gptzeros-capabilities-for-textual-source-identification/"><u>Dive Into GPTZero's Capabilities for Textual Source Identification</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/elevate-your-cinematography-skills-editing-and-sharing-360-videos-on-youtube/"><u>Elevate Your Cinematography Skills Editing and Sharing 360° Videos on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/entryway-investments-cost-effective-channels-for-newbies-for-2024/"><u>Entryway Investments Cost-Effective Channels for Newbies for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/infinix-note-30-vip-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 VIP Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/mise-a-jour-gratuite-de-microsoft-windows-aller-de-v7881-a-windows-10-en-gardant-tous-les-donnees/"><u>Mise À Jour Gratuite De Microsoft Windows : Aller De V7/8/8.1 À Windows 10 en Gardant Tous Les Données</u></a></li>
-<li><a href="https://win-studio.techidaily.com/solucion-al-problema-de-migracion-entre-dispositivos-errores-resueltos-en-transferencia-de-google-y-samsung/"><u>Solución Al Problema De Migración Entre Dispositivos: Errores Resueltos en Transferencia De Google Y Samsung</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-movie-selections-for-immediate-online-viewing-expert-recommendations/"><u>Top Movie Selections for Immediate Online Viewing | Expert Recommendations</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-10-essential-free-fcpx-plugins-you-need-to-know/"><u>Updated In 2024, 10 Essential Free FCPX Plugins You Need to Know</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-legally-safe-chants-and-tunes-the-ultimate-meditation-list/"><u>[New] 2024 Approved Legally Safe Chants & Tunes - The Ultimate Meditation List</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-adding-vibrancy-easy-youtube-subscribe-animations-with-filmora/"><u>[New] Adding Vibrancy Easy YouTube Subscribe Animations with Filmora</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-with-the-10-most-exceptional-yoga-video-platforms/"><u>[New] Transform with the 10 Most Exceptional Yoga Video Platforms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-dive-deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>[Updated] Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creative-music-videos-a-list-of-15-youtube-projects/"><u>2024 Approved Creative Music Videos A List of 15 YouTube Projects</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-demystifying-the-art-behind-live-video-thumbnails/"><u>2024 Approved Demystifying the Art Behind Live Video Thumbnails</u></a></li>
+<li><a href="https://techtrends.techidaily.com/a-comprehensive-guide-to-internet-connected-television-systems/"><u>A Comprehensive Guide to Internet-Connected Television Systems</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ace-your-screens-the-premium-guide-to-androids-top-8-capture-apps/"><u>Ace Your Screens The Premium Guide to Android’s Top 8 Capture Apps</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beginners-guide-to-crafting-trendy-mac-video-content-for-2024/"><u>Beginner's Guide to Crafting Trendy Mac Video Content for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beyond-borders-blurring-techniques-for-global-audienes/"><u>Beyond Borders Blurring Techniques for Global Audienes</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/deciphering-which-apple-watches-receive-update-to-watchos-11-models-excluded-by-apple/"><u>Deciphering Which Apple Watches Receive Update to WatchOS 11 | Models Excluded by Apple</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/efficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed-for-2024/"><u>Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/1719354556221-eliminate-troubleshooting-roadblocks-for-compatibility-issues/"><u>Eliminate Troubleshooting Roadblocks for Compatibility Issues.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-xs-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone XS System Issues? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-10-wedding-clock-apps-for-android-and-ios-to-keep-your-day-on-track/"><u>In 2024, Top 10 Wedding Clock Apps for Android & iOS to Keep Your Day on Track</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-joyful-journey-of-sharing-smiles-through-gifs-in-snapchat/"><u>The Joyful Journey of Sharing Smiles Through Gifs in Snapchat</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/winning-against-the-0x80072efd-glitch-in-windows-11-proven-strategies-and-solutions/"><u>Winning Against the 0X80072EFD Glitch in Windows 11: Proven Strategies and Solutions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-alternatives-at-a-glance-choosing-the-best-platforms/"><u>YouTube Alternatives at a Glance Choosing the Best Platforms</u></a></li>
 </ul></div>
 

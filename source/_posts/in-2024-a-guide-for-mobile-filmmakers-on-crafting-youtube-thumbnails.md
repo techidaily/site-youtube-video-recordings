@@ -1,7 +1,7 @@
 ---
 title: "In 2024, A Guide for Mobile Filmmakers on Crafting YouTube Thumbnails"
-date: 2024-09-17T02:03:47.832Z
-updated: 2024-09-20T02:02:29.392Z
+date: 2024-11-20T16:00:07.843Z
+updated: 2024-11-24T17:03:05.280Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,10 @@ Step2 Tap the **Edit** button in the top right corner of the screen. Use the **c
 Step3 Tap the **Filters** button to access the filter effects. **Scroll** through the available filters and **tap** on one to apply it to your thumbnail image.
 
 ![ios photo filter](https://images.wondershare.com/filmora/article-images/ios-photo-filter.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 To write or draw on the image, **tap** the **Markup** button. This will open a toolbar with a variety of drawing and text tools. Use these tools to add your personal touch to the thumbnail.
 
@@ -128,6 +132,10 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
@@ -188,13 +196,6 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
 There are many different apps and tools that YouTubers use to create thumbnails for their videos. The best app for creating YouTube thumbnails will depend on your needs and skill level.
@@ -237,19 +238,6 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
@@ -257,6 +245,10 @@ Step3 Edit the image using the available tools, such as cropping, rotating, and 
 Step4 Add text to the image and **customize** it to your liking.
 
 ![pixellab add text](https://images.wondershare.com/filmora/article-images/pixellab-add-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
@@ -288,6 +280,10 @@ Here's how to do it on your mobile device:
 Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
@@ -327,13 +323,6 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
@@ -349,6 +338,10 @@ Step4 When you are done editing the thumbnail, take a **snapshot** by clicking t
 Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For more detailed instructions and a visual guide, you can watch the following video tutorial:
 
@@ -452,10 +445,7 @@ Open [YouTube's official website](https://www.youtube.com/)in your browser and c
 ![create youtube account 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 On the new page, sign in to the Google account that you want to use in creating your YouTube channel.
@@ -500,6 +490,10 @@ If you have a video ready, click Select Files and upload the video you want to p
 
 ![upload youtube video 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-14.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Complete the required editing/settings after the video is uploaded.
 
 ![upload youtube video 4](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-15.jpg)
@@ -541,6 +535,10 @@ When we say add tags to your videos, it does not mean you should add any tag to 
 Tags will help YouTube understand the kind of video you’re uploading, and it’ll help you maintain the quality of not just your videos but your YouTube channel.
 
 ![make youtube video discoverable 4](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Use Keywords in Your Videos**
 
@@ -616,6 +614,10 @@ With VidIQ, you’ll get access to a checklist that will highlight titles, descr
 
 ![tools for youtube monetization 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-30.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Tips & Tricks to Make your YouTube Grow Faster
 
 **Stay Consistent**
@@ -633,13 +635,6 @@ Don’t be shy to reach out to your fellow YouTubers for collaboration. Yes, by 
 You might have heard of SEO (Search Engine Optimization) being crucial for websites to rank well, but the truth is it also applies to YouTube channels. YouTube SEO is a great way to optimize your YouTube channel and video to make it rank well on online search results.
 
 It’s important you understand how YouTube SEO works and implement it in your YouTube channel, as it’ll increase your chances of more viewers visiting your channel and watching your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -720,6 +715,10 @@ Under Branding, you can upload your brand logo as a profile photo, upload a bann
 Under Basic Info, you’ll be able to enter a description for your YouTube channel, edit your channel URL, and do lots more. However, remember to always use the PUBLISH button to save customization.
 
 ![customize youtube channel 4](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4 Upload your first YouTube video
 
@@ -886,5 +885,22 @@ That’s all you need to know about creating a successful YouTube channel. If yo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-culinary-cinema-mastery-the-7-pathways-to-delectable-vids/"><u>[New] 2024 Approved Culinary Cinema Mastery - The 7 Pathways to Delectable Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/logventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>[New] Vlogventures in Cosmetics How to Create Your Fashion-Forward Channel</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boosting-income-through-effective-video-marketing/"><u>[Updated] Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos/"><u>[Updated] Elevating Your Video's Visual Impact YoutubThumbnail Design on macOS</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-affordable-techniques-to-enhance-written-content-with-media/"><u>2024 Approved Affordable Techniques to Enhance Written Content with Media</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-set-up-chromebook-for-seamless-video-capture/"><u>2024 Approved Set Up Chromebook for Seamless Video Capture</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/2024youtuber/"><u>2024年を見据えた最強YouTuberビデオ編集ツールとテクニックのご紹介</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/becoming-a-vlogger-voice-confident-content-creation-strategies/"><u>Becoming a Vlogger Voice Confident Content Creation Strategies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/deciding-on-a-personal-social-media-platform-tiktok-or-youtubes-shorts/"><u>Deciding on a Personal Social Media Platform TikTok or YouTubes' Shorts?</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-vivo-t2-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Vivo T2 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-note-30-vip-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Note 30 VIP to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317750-9781401932848-spellbinding/"><u>Spellbinding | Free Book</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/tackling-the-mystery-of-missing-shorts-video-images/"><u>Tackling the Mystery of Missing Shorts Video Images</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/tailoring-your-playstation-experience-with-sounds/"><u>Tailoring Your PlayStation Experience with Sounds</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/what-youre-missing-out-on-with-online-ai-psychiatry/"><u>What You're Missing Out On with Online AI Psychiatry</u></a></li>
+</ul></div>
 
