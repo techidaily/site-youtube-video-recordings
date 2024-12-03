@@ -1,7 +1,7 @@
 ---
 title: "Your First Steps in Online Broadcasting via OBS"
-date: 2024-11-01T20:18:44.284Z
-updated: 2024-11-04T21:49:03.978Z
+date: 2024-11-28T07:38:44.948Z
+updated: 2024-12-03T00:33:27.764Z
 tags:
   - ai video
   - ai youtube
@@ -190,6 +190,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![stream now ](https://images.wondershare.com/filmora/article-images/stream-now.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Change or Upload your thumbnail as per need.
 
 ![thumbnail ](https://images.wondershare.com/filmora/article-images/thumbnail.jpg)
@@ -225,13 +229,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 **Step 13:** Stream health can be monitored directly.
 
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 14:** One can also use the social media button for live shares.
 
@@ -335,10 +332,7 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4:** Now hot the steam now option on your screen.
@@ -357,13 +351,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![make archive ](https://images.wondershare.com/filmora/article-images/make-archive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 8:** You can monetize your ads as per need.
 
 ![Monetizae you ](https://images.wondershare.com/filmora/article-images/monetizae-you.jpg)
@@ -379,13 +366,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 **Step 11:** Now you can set your live chat option as per your requirement.
 
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
@@ -412,13 +392,6 @@ As soon as you have completed the above set up then next task is to adjust setti
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** Users can now add their sources and scenes.
 
@@ -527,13 +500,6 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![add your cards ](https://images.wondershare.com/filmora/article-images/add-your-cards.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 10:** Now move to encoder setup and then simply copy and paste these details to your streaming software.
 
 ![ encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
@@ -576,6 +542,10 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Youtube Events set up
 
 Live stream is little different from Stream Now platform as it allows users to schedule the streams as well as a connectivity to Google Hangouts is provided. These easy to follow steps will assist you to handle all settings for your events using Live Stream tool:
@@ -587,13 +557,6 @@ Live stream is little different from Stream Now platform as it allows users to s
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
@@ -615,9 +578,17 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![save changes ](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
@@ -709,6 +680,10 @@ YouTube channel monetization is the most popular method. By adding AdSense to yo
 
 ![ Google Adsense](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-3.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Paid Sponsorships
 
 Sponsorship involves paying a content creator to use, demonstrate, or test a brand's product in a video. Both the creator and the brand benefit from sponsorships provided by brands.
@@ -748,6 +723,10 @@ During live streams and premieres, creators can engage their fans with Super Cha
 Using the YouTube app, short, vertical videos can be uploaded straight to YouTube using a smartphone. In the same way as Instagram Stories are uploaded to the social media site. The length of YouTube shorts is limited to 60 seconds. In 2021 and 2022, a $100 million fund will be distributed for YouTube Shorts. With this initial stage, YouTube Shorts began to monetize in May 2021\. A YouTube Short will only be compensated if it meets the fund's criteria.
 
 ![youtube shorts](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-7.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. YouTube BrandConnect
 
@@ -855,11 +834,19 @@ You can monetize your YouTube videos in 10 different ways, including:
 * [YouTube Brandconnect](#filmora9)
 * [YouTube Shopping](#filmora10)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Google AdSense
 
 YouTube channel monetization is the most popular method. By adding AdSense to your videos, you can generate revenue from the ads displayed. You must adhere to our advertiser-friendly guidelines when creating your videos. The monetization of all videos may not be possible, therefore. YouTube and AdSense work seamlessly together. With no technical knowledge required, your monetization strategy can be set up and managed easily.
 
 ![ Google Adsense](https://images.wondershare.com/filmora/article-images/2023/2023-YouTube-Monetization-Mastery-How-to-Monetize-YouTube-Videos-3.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Paid Sponsorships
 
@@ -892,10 +879,7 @@ It's especially useful for YouTube creators without their own website who want t
 It's not just for startups anymore; you can use crowdfunding to fund content creation on YouTube as well. You can find people to support your work through third-party applications like Patreon in exchange for perks. You can now place sponsor buttons on your YouTube videos, which allows you to crowdfund. With this, you can offer rewards in exchange for monthly funding like with Patreon.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Stickers, chats, and thanks
@@ -979,19 +963,24 @@ With **Wondershare Filmora**'s user-friendly tools, your videos will stand out o
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-simplify-screenplay-to-film-use-windows-movie-maker-win11/"><u>[New] Simplify Screenplay to Film Use Windows Movie Maker (Win11)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-worth-of-instagram-video-selfie-authenticity/"><u>[Updated] 2024 Approved The Worth of Instagram Video Selfie Authenticity</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[Updated] Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
-<li><a href="https://article-helps.techidaily.com/adding-personal-touch-the-art-of-typeface-integration-in-ae/"><u>Adding Personal Touch The Art of Typeface Integration in AE</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/beat-boulevard-optimal-dj-video-downloads/"><u>Beat Boulevard Optimal DJ Video Downloads</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/captivating-cold-ideal-snowy-scenes-to-brighten-videos/"><u>Captivating Cold Ideal Snowy Scenes to Brighten Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/effortless-guide-to-free-melodies-in-youtube-productions-for-2024/"><u>Effortless Guide to Free Melodies in YouTube Productions for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-15-pro-max-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 15 Pro Max without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-itel-p40plus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Itel P40+ to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-realme-note-50-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Realme Note 50? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-stellar-storytelling-elevating-posts-with-3-insta-highlight-ways/"><u>In 2024, Stellar Storytelling Elevating Posts with 3 Insta Highlight Ways</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/livekernelevent-117-trouble-heres-how-you-can-fix-it/"><u>LiveKernelEvent 117 Trouble? Here's How You Can Fix It!</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/quash-unwanted-youtube-suggested-videos/"><u>Quash Unwanted YouTube Suggested Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/tackling-social-media-platforms-an-in-depth-look-at-igtv-and-youtube/"><u>Tackling Social Media Platforms An In-Depth Look at IGTV and YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-earnings-with-youtube-studio-monetization-on-any-device/"><u>[New] 2024 Approved Maximizing Earnings with YouTube Studio Monetization on Any Device</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-convert-youtube-sounds-to-wider-reach-mp3-for-mac-users/"><u>[New] Convert YouTube Sounds to Wider Reach MP3 for Mac Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-epic-webcam-connectivity-quests/"><u>[New] Epic Webcam Connectivity Quests</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-perfectly-merged-clips-the-power-of-blending-modes-for-2024/"><u>[New] Perfectly Merged Clips The Power of Blending Modes for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-fast-fortnite-icons-in-minutes/"><u>[Updated] Crafting Fast Fortnite Icons in Minutes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-earning-by-critiquing-goodies-a-youtube-guide/"><u>[Updated] Earning by Critiquing Goodies A YouTube Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-expose-and-rectify-vanished-videos-on-fb-for-2024/"><u>[Updated] How to Expose and Rectify Vanished Videos on FB for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfecting-zoom-techniques-for-tiktok-engagement/"><u>[Updated] Perfecting Zoom Techniques for TikTok Engagement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unfollowers-alert-on-your-instagram-map-for-2024/"><u>[Updated] Unfollowers Alert on Your Instagram Map for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-charting-the-course-a-comprehensive-guide-to-youtube-teaser-vids/"><u>2024 Approved Charting the Course A Comprehensive Guide to YouTube Teaser Vids</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-iphone-12-pro-max-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From iPhone 12 Pro Max</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/effective-ways-to-watch-multiple-youtube-videos-at-one-time/"><u>Effective Ways to Watch Multiple YouTube Videos at One Time</u></a></li>
+<li><a href="https://techidaily.com/how-to-erase-private-data-from-apple-iphone-6-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Private Data From Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tickletech-instant-creation-of-laughter-graphics/"><u>In 2024, TickleTech Instant Creation of Laughter Graphics</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-edit-large-videos-in-no-time-a-step-by-step-guide-for-mac-users/"><u>New Edit Large Videos in No Time A Step-by-Step Guide for Mac Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/optimize-video-sharing-preferences-on-youtube/"><u>Optimize Video Sharing Preferences on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/outro-crafting-for-beginners-top-6-free-resources/"><u>Outro Crafting for Beginners Top 6 Free Resources</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/prime-video-editors-for-youtube-enthusiasts/"><u>Prime Video Editors for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/troubleshooting-shorts-the-non-displaying-thumbnail/"><u>Troubleshooting Shorts The Non-Displaying Thumbnail</u></a></li>
 </ul></div>
 

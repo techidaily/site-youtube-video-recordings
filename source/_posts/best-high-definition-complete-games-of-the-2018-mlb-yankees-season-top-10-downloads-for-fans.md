@@ -1,7 +1,7 @@
 ---
 title: "Best High-Definition Complete Games of the 2018 MLB Yankees Season: Top 10 Downloads for Fans"
-date: 2024-11-17T16:52:48.991Z
-updated: 2024-11-24T17:03:18.397Z
+date: 2024-11-29T11:07:13.921Z
+updated: 2024-12-02T20:39:38.263Z
 tags:
   - youtube-download
 categories:
@@ -34,7 +34,7 @@ As probably the most popular baseball team in the American League East division,
 [4\. How to Download Yankees Games 1080p with 5KPlayer?](https://tools.techidaily.com/5kplayer/youtube-download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New York Yankees Games Schedule July 24 – August 15
@@ -43,10 +43,6 @@ Now that it's still in the 2018 MLB regular seasons period, you may continue to 
 To make sure you don't miss a single Yankees games in the following season, you can bookmark this article & share it with friends as a reminder. 
 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
 
@@ -76,10 +72,6 @@ Matchups: Yankees, W, 2-1
 
 [![2018 MLB Groups Logos](https://www.5kplayer.com/youtube-download/img/mlb-group-logos.jpg)](https://tools.techidaily.com/5kplayer/products/) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **NO. 7 Yankees Game vs Detroit Tigers 2018 Spring Training 23/02**  
 Source:https://youtu.be/r0hErB17XzY  
 Matchups:Yankees, W, 3-1
@@ -97,7 +89,7 @@ Source: https://youtu.be/7pL\_RRDudzY
 Matchups: New York Yankees L: 4- 5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best Yankees Pitchers 2018
@@ -110,10 +102,6 @@ Matchups: New York Yankees L: 4- 5
 
 **Luis Severino** 
  It took only 2 years for Luis Severino to become one of the best New York Yankees best pitchers since he joined the team in 2015\. Yankees is the first and only team for Severino since his debut, unlike Chapman, he preferred the right hand for both bats and through in New York Yankees games. 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Download Yankees Games HD 1080p with 5KPlayer?
 
@@ -129,6 +117,10 @@ Matchups: New York Yankees L: 4- 5
 
 ![Download Yankees Games 1080p](https://www.5kplayer.com/youtube-download/img/yankees-game-download.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Create a Playlist of Yankees Games in 5KPlayer?
 
 5KPlayer offers a convenient solution to help archive all Yankees Games, MLB playoffs into one play list for the sports videos. To create one such play list, here's how you can do:
@@ -139,9 +131,17 @@ Matchups: New York Yankees L: 4- 5
 
 ![Create Yankees Games Playlist](https://www.5kplayer.com/youtube-download/img/mlb-playlist.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The free 5KPlayer is a one-stop solution for users to not only download Yankees games free, also it helps download MLB games highlights, download best walk up songs for baseball, and download full match videos from sports streaming sites. If you'd like to download MLB Yankees games videos for offline watching, don't hesitate to download 5KPlayer for Windows and Mac for free now. 
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,24 +158,21 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-legally-safe-chants-and-tunes-the-ultimate-meditation-list/"><u>[New] 2024 Approved Legally Safe Chants & Tunes - The Ultimate Meditation List</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-adding-vibrancy-easy-youtube-subscribe-animations-with-filmora/"><u>[New] Adding Vibrancy Easy YouTube Subscribe Animations with Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ransform-with-the-10-most-exceptional-yoga-video-platforms/"><u>[New] Transform with the 10 Most Exceptional Yoga Video Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-dive-deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>[Updated] Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creative-music-videos-a-list-of-15-youtube-projects/"><u>2024 Approved Creative Music Videos A List of 15 YouTube Projects</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-demystifying-the-art-behind-live-video-thumbnails/"><u>2024 Approved Demystifying the Art Behind Live Video Thumbnails</u></a></li>
-<li><a href="https://techtrends.techidaily.com/a-comprehensive-guide-to-internet-connected-television-systems/"><u>A Comprehensive Guide to Internet-Connected Television Systems</u></a></li>
-<li><a href="https://video-capture.techidaily.com/ace-your-screens-the-premium-guide-to-androids-top-8-capture-apps/"><u>Ace Your Screens The Premium Guide to Android’s Top 8 Capture Apps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/beginners-guide-to-crafting-trendy-mac-video-content-for-2024/"><u>Beginner's Guide to Crafting Trendy Mac Video Content for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/beyond-borders-blurring-techniques-for-global-audienes/"><u>Beyond Borders Blurring Techniques for Global Audienes</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/deciphering-which-apple-watches-receive-update-to-watchos-11-models-excluded-by-apple/"><u>Deciphering Which Apple Watches Receive Update to WatchOS 11 | Models Excluded by Apple</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/efficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed-for-2024/"><u>Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/1719354556221-eliminate-troubleshooting-roadblocks-for-compatibility-issues/"><u>Eliminate Troubleshooting Roadblocks for Compatibility Issues.</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-xs-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone XS System Issues? | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-top-10-wedding-clock-apps-for-android-and-ios-to-keep-your-day-on-track/"><u>In 2024, Top 10 Wedding Clock Apps for Android & iOS to Keep Your Day on Track</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/streamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-joyful-journey-of-sharing-smiles-through-gifs-in-snapchat/"><u>The Joyful Journey of Sharing Smiles Through Gifs in Snapchat</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/winning-against-the-0x80072efd-glitch-in-windows-11-proven-strategies-and-solutions/"><u>Winning Against the 0X80072EFD Glitch in Windows 11: Proven Strategies and Solutions</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtube-alternatives-at-a-glance-choosing-the-best-platforms/"><u>YouTube Alternatives at a Glance Choosing the Best Platforms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boost-your-earnings-on-youtube-shorts-a-guide/"><u>[New] Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-do-youtubers-get-paid-monthly/"><u>[New] Do YouTubers Get Paid Monthly?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-effortless-online-video-access-via-vimeo/"><u>[New] Effortless Online Video Access via Vimeo</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enhancing-watchability-adding-time-stamps-to-youtube-videos/"><u>[Updated] Enhancing Watchability Adding Time Stamps to YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creating-an-easy-to-use-subscribe-url-for-your-yt-channel/"><u>2024 Approved Creating an Easy-to-Use Subscribe URL for Your YT Channel</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-demystifying-creator-studio-a-practical-handbook/"><u>2024 Approved Demystifying Creator Studio A Practical Handbook</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/windows111087/"><u>再インストール前にWindows環境(11/10/8/7)を適切にバックアップするチェックリスト</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/capturing-clarity-mastering-hd-videos-from-tweet-for-2024/"><u>Capturing Clarity Mastering HD Videos From Tweet for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-unveiled-the-ultimate-guide-to-personal-assistant-automation-at-work/"><u>ChatGPT Unveiled: The Ultimate Guide to Personal Assistant Automation at Work</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-beginners-guide-to-video-making-mastering-10-straightforward-youtube-concepts/"><u>In 2024, Beginner's Guide to Video Making Mastering 10 Straightforward YouTube Concepts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-discover-the-10-best-yoga-platforms-for-enhanced-fitness/"><u>In 2024, Discover The 10 Best Yoga Platforms For Enhanced Fitness</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-8-the-right-way-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock On iPod and Apple iPhone 8 The Right Way</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-g22-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Nokia G22 Bootloader Easily</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/seamless-screen-stretch-cycle-youtube-on-television-display/"><u>Seamless Screen Stretch Cycle YouTube on Television Display</u></a></li>
+<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-vivo-y100a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win-80211n-wi-fi-adapter-successfully-repaired-by-broadcom/"><u>Win 802.11N Wi-Fi Adapter Successfully Repaired by Broadcom</u></a></li>
 </ul></div>
 

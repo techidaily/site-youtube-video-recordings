@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2024-11-18T17:12:19.090Z
-updated: 2024-11-24T17:01:12.595Z
+date: 2024-11-28T12:54:33.311Z
+updated: 2024-12-02T18:04:55.094Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,16 +238,18 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-audio-quality-in-social-media-recordings/"><u>[New] Boosting Audio Quality in Social Media Recordings</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-facebook-live-the-world-in-minutes/"><u>[Updated] 2024 Approved Facebook Live The World in Minutes</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ultimate-7-virtual-marksmen-battles/"><u>[Updated] 2024 Approved Ultimate 7 Virtual Marksmen Battles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-navigating-the-world-of-sound-symbols-on-instagram-platform/"><u>2024 Approved Navigating the World of Sound Symbols on Instagram Platform</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/crafting-content-that-captivates-the-square-video-formula-on-fb/"><u>Crafting Content That Captivates The Square Video Formula on FB</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/enhance-your-contents-visibility-peak-days/"><u>Enhance Your Content's Visibility - Peak Days</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-makeup-techniques-step-by-step-youtube-guide-for-2024/"><u>Haute Makeup Techniques Step-by-Step YouTube Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-maximize-revenue-the-secret-of-fb-animation-campaigns/"><u>How to Maximize Revenue The Secret of FB Animation Campaigns</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-effortless-fusion-of-youtube-videos-with-flv-format/"><u>In 2024, Effortless Fusion of YouTube Videos with FlV Format</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-lava-blaze-2-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Lava Blaze 2 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-on-streaming-google-meet-directly-to-youtube-channel/"><u>Step by Step on Streaming Google Meet Directly to YouTube Channel</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-protecting-privacy-top-10-webcam-covers-for-2024/"><u>[New] Protecting Privacy Top 10 Webcam Covers for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-screen-guards-protect-your-device-capture-better/"><u>[New] Screen Guards Protect Your Device, Capture Better</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-the-visual-language-of-live-videos-on-youtube/"><u>[Updated] Decoding the Visual Language of Live Videos on YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-behind-the-scenes-youtubes-view-count-algorithm/"><u>2024 Approved Behind the Scenes YouTube's View Count Algorithm</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-blending-images-for-a-captivating-visual-journey/"><u>2024 Approved Blending Images for a Captivating Visual Journey</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-transform-your-podcast-with-these-google-upload-insights/"><u>2024 Approved Transform Your Podcast with These Google Upload Insights</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/beginners-guide-to-inconspicuous-image-tinkering/"><u>Beginner's Guide to Inconspicuous Image Tinkering</u></a></li>
+<li><a href="https://fox-access.techidaily.com/comprehensive-guide-to-sierras-cloud-storage-navigation/"><u>Comprehensive Guide to Sierra’s Cloud Storage Navigation</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-solo-streamer-to-global-content-powerhouse/"><u>From Solo Streamer to Global Content Powerhouse</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/how-to-share-your-4k-videos-with-the-world-via-youtube/"><u>How to Share Your 4K Videos with the World via YouTube</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-nubia-red-magic-8s-proplus-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Nubia Red Magic 8S Pro+ to New Phone | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/instantaneous-windows-image-player-for-2024/"><u>Instantaneous Windows Image Player for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Motorola G54 5G | Dr.fone</u></a></li>
 </ul></div>
 

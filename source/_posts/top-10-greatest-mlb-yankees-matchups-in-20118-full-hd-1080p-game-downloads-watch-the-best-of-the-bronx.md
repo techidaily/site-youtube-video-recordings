@@ -1,7 +1,7 @@
 ---
 title: "Top 10 Greatest MLB Yankees Matchups in 201([[18]: Full HD (1080P) Game Downloads - Watch the Best of the Bronx!"
-date: 2024-11-18T16:01:23.693Z
-updated: 2024-11-24T17:40:55.757Z
+date: 2024-12-02T01:36:11.240Z
+updated: 2024-12-02T23:43:35.282Z
 tags:
   - youtube-download
 categories:
@@ -34,7 +34,7 @@ As probably the most popular baseball team in the American League East division,
 [4\. How to Download Yankees Games 1080p with 5KPlayer?](https://tools.techidaily.com/5kplayer/youtube-download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New York Yankees Games Schedule July 24 – August 15
@@ -45,7 +45,7 @@ To make sure you don't miss a single Yankees games in the following season, you 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
@@ -76,6 +76,10 @@ Matchups: Yankees, W, 2-1
 
 [![2018 MLB Groups Logos](https://www.5kplayer.com/youtube-download/img/mlb-group-logos.jpg)](https://tools.techidaily.com/5kplayer/products/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **NO. 7 Yankees Game vs Detroit Tigers 2018 Spring Training 23/02**  
 Source:https://youtu.be/r0hErB17XzY  
 Matchups:Yankees, W, 3-1
@@ -93,7 +97,7 @@ Source: https://youtu.be/7pL\_RRDudzY
 Matchups: New York Yankees L: 4- 5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best Yankees Pitchers 2018
@@ -121,10 +125,6 @@ Matchups: New York Yankees L: 4- 5
 
 ![Download Yankees Games 1080p](https://www.5kplayer.com/youtube-download/img/yankees-game-download.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Create a Playlist of Yankees Games in 5KPlayer?
 
 5KPlayer offers a convenient solution to help archive all Yankees Games, MLB playoffs into one play list for the sports videos. To create one such play list, here's how you can do:
@@ -140,7 +140,7 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -158,18 +158,24 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-behind-glasses-and-screens-vrs-evolutionary-tale-for-2024/"><u>[New] Behind Glasses and Screens VR’s Evolutionary Tale for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-effortless-media-transition-from-mp3-to-youtube-video-posting/"><u>[New] Effortless Media Transition From MP3 to YouTube Video Posting</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-beats-and-banners-discovering-premium-dj-templates/"><u>2024 Approved Beats & Banners Discovering Premium DJ Templates</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-editing-elegance-into-news-summations/"><u>2024 Approved Editing Elegance Into News Summations</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-guide-to-setting-up-and-managing-discord-channels-for-beginners/"><u>2024 Approved Guide to Setting Up and Managing Discord Channels for Beginners</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/blitz-30-second-guide-to-fast-thumbnails/"><u>Blitz 30-Second Guide to Fast Thumbnails</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-compreehensive-guide-to-youtube-thumbnail-creation-mac/"><u>In 2024, A Compreehensive Guide to YouTube Thumbnail Creation (Mac)</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-realme-gt-3-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Realme GT 3 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-acoustic-link-for-speakers/"><u>In 2024, Innovative Acoustic Link for Speakers</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/macos-15-sequoia-preview-whats-coming-next-release-dates-exciting-functionalities-and-recent-news-covered/"><u>MacOS 15 Sequoia Preview - What's Coming Next? Release Dates, Exciting Functionalities & Recent News Covered!</u></a></li>
-<li><a href="https://common-error.techidaily.com/unlocking-usb-success-stories-overcoming-port-reset-failed-hurdles-on-your-windows-11-machine/"><u>Unlocking USB Success Stories: Overcoming 'Port Reset Failed' Hurdles on Your Windows 11 Machine</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtube-copyrights-demystified-understanding-and-managing-strikes/"><u>YouTube Copyrights Demystified Understanding and Managing Strikes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-immediate-window-image-on-pc-win/"><u>[New] 2024 Approved Immediate Window Image on PC (Win)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boost-traffic-with-effective-tools-for-youtube-videos/"><u>[New] Boost Traffic with Effective Tools for YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-slippery-slope-of-simulated-support-instagram-style/"><u>[New] In 2024, The Slippery Slope of Simulated Support, Instagram Style</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-best-background-erase-software/"><u>[New] In 2024, Top Best Background Erase Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-web-humor-fabricator/"><u>[New] In 2024, Web Humor Fabricator</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cutting-edge-top-8-free-online-video-tools/"><u>[Updated] Cutting Edge Top 8 Free Online Video Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-discovering-your-customized-youtube-playlist/"><u>[Updated] Discovering Your Customized YouTube Playlist</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-merging-melodies-the-art-of-crossfading/"><u>[Updated] Merging Melodies The Art of Crossfading</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-assessing-social-media-preference-the-case-for-tiktok-or-youtubes-shorts/"><u>2024 Approved Assessing Social Media Preference The Case for TikTok or YouTubes' Shorts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/android-lens-mastery-techniques-and-apps-for-2024/"><u>Android Lens Mastery Techniques & Apps for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-tips-and-tricks-for-creating-killer-short-videos-on-yt/"><u>Essential Tips and Tricks for Creating Killer Short Videos on YT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/free-to-learn-4-youtube-channels-unlocking-the-secrets-of-background-substitution/"><u>Free-to-Learn 4 YouTube Channels Unlocking the Secrets of Background Substitution</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/go-backwards-a-step-by-step-for-reversing-youtube-videos/"><u>Go Backwards A Step-by-Step for Reversing YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-best-of-both-worlds-youtubes-vr-gems/"><u>In 2024, Best of Both Worlds YouTube’s VR Gems</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-branding-in-videos-incorporating-logoswatermarks-for-youtube-content/"><u>In 2024, Branding in Videos Incorporating Logos/Watermarks for YouTube Content</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-gpt-effective-for-math-puzzles/"><u>Is GPT Effective for Math Puzzles?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/scouring-for-meaningful-youtube-discussions/"><u>Scouring for Meaningful YouTube Discussions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-peak-of-primes-amazons-hot-tweets-and-shows-23-for-2024/"><u>The Peak of Primes Amazon’s Hot Tweets & Shows, '23 for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-fix-list-for-11-windows-11-problems/"><u>The Ultimate Fix-List for 11 Windows 11 Problems</u></a></li>
 </ul></div>
 

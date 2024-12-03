@@ -1,7 +1,7 @@
 ---
 title: "\"Visual Identity Shielding  Adding Watermark & Logo to YouTube Media\""
-date: 2024-10-28T18:08:47.805Z
-updated: 2024-11-04T16:37:03.022Z
+date: 2024-11-27T09:15:51.279Z
+updated: 2024-12-03T01:05:10.535Z
 tags:
   - ai video
   - ai youtube
@@ -120,6 +120,10 @@ The image should be in .PNG or .GIF format.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Create a Transparent logo for Youtube Channel
 
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
@@ -135,13 +139,6 @@ Open Filmora. Choose **Create New Project**. Click import media files here in Me
 Right click on the image clip in the timeline. Choose **Green Screen**. You will see the image is transparent in the preview window. Now, you need to adjust some details. You can adjust edge thickness and edge feather to better edge. If the green screen background is not totally removed, drag tolerance to adjust it.
 
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Scale the logo
 
@@ -273,19 +270,6 @@ Right click on the image clip in the timeline. Choose **Green Screen**. You will
 
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3: Scale the logo
 
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
@@ -293,6 +277,10 @@ You can clip the image clip first and go to preview window to scale it down or u
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -317,6 +305,10 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 
 ![](https://images.media.io/anieraser/anieraser/article_recommend.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/anieraser-square.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add a Watermark to Your YouTube Videos
 
 * [**Part 1: How to add logo or watermark to in existing YouTube videos**](#part1)
@@ -338,6 +330,10 @@ To add a watermark to your previously uploaded videos you will need to have crea
 * Click on "add watermark". Then you can choose an image from your computer. After your image is uploaded, click save.
 
 ![add watermark to youtube](https://images.wondershare.com/filmora/article-images/add-watermark.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Notes
 
@@ -404,31 +400,21 @@ The image should be in .PNG or .GIF format.
 
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1: Import video and image to Filmora
 
 Open Filmora. Choose **Create New Project**. Click import media files here in Media library. Select your video and a green screen image. In fact, a green screen video is also accessable, but usually brand logo is image. Now drag them onto timeline.
 
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Import video and image to Filmora
 
 Right click on the image clip in the timeline. Choose **Green Screen**. You will see the image is transparent in the preview window. Now, you need to adjust some details. You can adjust edge thickness and edge feather to better edge. If the green screen background is not totally removed, drag tolerance to adjust it.
 
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Scale the logo
 
@@ -461,6 +447,10 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 
 ![](https://images.media.io/anieraser/anieraser/article_recommend.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/anieraser-square.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add a Watermark to Your YouTube Videos
 
 * [**Part 1: How to add logo or watermark to in existing YouTube videos**](#part1)
@@ -477,6 +467,10 @@ To add a watermark to your previously uploaded videos you will need to have crea
 * This will lead you to setting center. Click on "view additional features"
 
 ![youtube watermark view additional features](https://images.wondershare.com/filmora/article-images/view-additional-features.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To the left of the window, Click the third option of "branding"
 * Click on "add watermark". Then you can choose an image from your computer. After your image is uploaded, click save.
@@ -510,6 +504,10 @@ The following steps have to be taken to add a watermark:
 * Save the video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
 
@@ -614,6 +612,10 @@ Here are 7 places where you can find templates for YouTube channel art.
 
 [**![Free YouTube Banner](https://images.wondershare.com/filmora/article-images/50-free-youtube-banners-banner.jpg)**](https://www.filmora.io/youtube-channel-art?utm%5Fsource=filmora.io%5Fblog%5F50Free%5Fbanners&utm%5Fmedium=blog%5Fbanners&utm%5Fcampaign=50%5Ffree%5Fbanners)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can download 50 free YouTube channel art templates right here on filmora.io. We have 10 categories of banners: gaming, beauty, travel, comedy, education, minimalist, funky, comics, galaxy, and bright. There’s something for everyone.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -730,13 +732,6 @@ Let us know if you know anywhere else to get free YouTube channel art templates!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -760,13 +755,6 @@ Here are 7 places where you can find templates for YouTube channel art.
 > * [Visme](#visme)
 > * [YourTube](#yourtube)
 > * [Banner Snack](#bannersnack)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 1\. [50 Free Banner Art Templates from Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -792,13 +780,6 @@ Wondershare PixStudio is an all-in-one and powerful online graphic design maker 
 
 PixStudio has special features to remove the image background. With a single click, you can quickly remove the image background, and use your image with more flexibility. Just payment of $7.99 per month to use the features.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. [Fotor](https://www.fotor.com/features/youtube.html)
 
 _In the above video, YouTuber BBelleGames walks you through all of the features you can use to build your channel art in Fotor._
@@ -814,13 +795,6 @@ Visme offers 50 YouTube channel art templates which you can customize the text o
 ## 6\. [YourTube](http://yourtubetheme.com/youtube-channel-art-templates/)
 
 YourTube has a ton of really nice looking channel art templates you can download for free. The downloads include both PSD (Photoshop) files and the background images without text. This is great because you’ll have an editable file you can build on in Photoshop, if you have it, and an image file you can use in combination with a free service like Canva if you don’t.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. [Banner Snack](https://www.bannersnack.com/youtube.html)
 
@@ -885,6 +859,10 @@ _In the above video, YouTuber BBelleGames walks you through all of the features 
 Fotor is another free online drag-n-drop program with YouTube channel art templates. You can create your banner with Fotor in 4 steps. First open the Design feature and choose a template. Second, either choose a design or build one from scratch. Third, overlay images and any text you want over your background. Finally, save your banner and choose a format to export it in.
 
 The free version of Fotor will work well enough for most YouTubers, but you can also upgrade to their paid Pro program to unlock more content and features.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. [Visme](http://blog.visme.co/youtube-banner-template/)
 
@@ -923,22 +901,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-constructive-communication-leads-to-more-subscribers/"><u>[New] Constructive Communication Leads to More Subscribers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-your-youtube-content-for-specific-crowds/"><u>[New] Crafting Your YouTube Content for Specific Crowds</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-embracing-resilience-against-online-detractors/"><u>[New] Embracing Resilience Against Online Detractors</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-unlocking-clear-communication-zooms-best-transcription-services-for-2024/"><u>[New] Unlocking Clear Communication Zoom's Best Transcription Services for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-dive-into-video-production-mastering-green-screens-on-yt/"><u>[Updated] Dive Into Video Production Mastering Green Screens on YT</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-the-ultimate-checklist-for-transforming-your-tiktok-handle-for-2024/"><u>[Updated] The Ultimate Checklist for Transforming Your TikTok Handle for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-freewayframe-the-road-to-effortless-game-snapshots-in-24/"><u>2024 Approved FreewayFrame The Road to Effortless Game Snapshots in '24</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-instagram-video-timing-what-you-need-to-know/"><u>2024 Approved Instagram Video Timing What You Need To Know</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/boost-your-system-speed-with-these-7-proven-techniques/"><u>Boost Your System Speed with These 7 Proven Techniques</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boosting-earning-potential-on-youtube-shorts/"><u>Boosting Earning Potential on YouTube Shorts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/budget-friendly-bundles-startup-channels-for-newcomers-for-2024/"><u>Budget-Friendly Bundles Startup Channels for Newcomers for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/comprehensive-evaluation-of-lenovos-tablet-monarch-a-godzilla-level-performance-unveiled/"><u>Comprehensive Evaluation of Lenovo's Tablet Monarch: A Godzilla-Level Performance Unveiled</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/create-engaging-slideshows-with-final-cut-pro-a-step-by-step-guide/"><u>Create Engaging Slideshows with Final Cut Pro A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/elevate-video-performance-top-notch-youtube-seo-strategies/"><u>Elevate Video Performance Top-Notch YouTube SEO Strategies</u></a></li>
-<li><a href="https://android-frp.techidaily.com/top-5-oppo-find-n3-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Oppo Find N3 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://fox-links.techidaily.com/your-guide-to-excellence-11-exceptional-bridge-camera-reviews/"><u>Your Guide to Excellence #11 Exceptional Bridge Camera Reviews</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sound-streaming-showdown-which-is-the-better-choice-podcast-or-youtube/"><u>[New] Sound Streaming Showdown Which Is the Better Choice, Podcast or YouTube?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-10-insta-management-gadgets-for-boosting-engagement-for-2024/"><u>[New] Top 10 Insta Management Gadgets for Boosting Engagement for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-compreranal-guide-to-best-free-budget-friendly-lut-sources/"><u>[Updated] Compreranal Guide to Best Free, Budget-Friendly LUT Sources</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>2024 Approved A Treasure Trove Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-best-desktop-computers/"><u>2024 Approved Best Desktop Computers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beyond-tubes-the-ultimate-video-share-sites-for-2024/"><u>Beyond Tubes The Ultimate Video Share Sites for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/break-barriers-with-fluent-english-skills/"><u>Break Barriers with Fluent English Skills</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-stories-excellence-among-8-film-categories/"><u>Crafting Stories Excellence Among 8 Film Categories</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cultivate-inner-peace-and-physical-strength-with-these-channels-for-2024/"><u>Cultivate Inner Peace & Physical Strength with These Channels for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-video-magic-with-imovie-directed-to-youtube/"><u>In 2024, Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-iphone-15-pro-max-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing iPhone 15 Pro Max Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-iphone-recovery-mode-a-comprehensive-how-to-on-access-and-egress/"><u>Navigating iPhone Recovery Mode: A Comprehensive How-To on Access & Egress</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pioneering-virtual-play-samsungs-most-popular-titles/"><u>Pioneering Virtual Play Samsung's Most Popular Titles</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Effective YouTube Card Usage Guide for 2024"
-date: 2024-07-19T05:50:46.549Z
-updated: 2024-07-20T05:50:46.549Z
+date: 2024-11-30T06:46:09.244Z
+updated: 2024-12-03T11:52:38.288Z
 tags:
   - ai video
   - ai youtube
@@ -98,103 +98,6 @@ Giving viewers more information and a thumbnail through a Card can help ensure t
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-YouTube Annotations and Cards are both tools for linking viewers to your other videos or to off-YouTube webpages. Two of the major differences between them are:
-
-Annotations are not clickable on mobile devices.
-
-You cannot choose the size or positioning of Cards.
-
-This article will teach you about both Cards and Annotations and discuss the best uses for each of them.
-
-**Part 1: Annotations**
-
-Annotations are messages that float overtop of your videos in the YouTube player. Usually, annotations are clickable and take users to other content created by you.
-
-**Section 1: Types of Annotations**
-
-There are five types of YouTube annotations:
-
-**Notes** are colored boxes placed over the top of your videos.
-
-**Speech Bubbles** look like dialogue boxes in a comic strip. They have tails that you can adjust so it looks like one of the people in your video is saying what is written in the annotation.
-
-**Spotlights** have a subtle border and are completely clear inside. Your text only appears when a viewer’s cursor hovers over top of these annotations.
-
-**Labels** are like spotlights except that viewers do not have to hover over them for your text to be visible.
-
-Any of these annotations can be used to link viewers to other videos, or as subscribe links. You can also add a simple **Title** to your video through the Annotations menu.
-
-**Section 2: How to Use Annotations**
-
-\*Note: the above video mentions Pause annotations, which are no longer available.
-
-Here are two of the best uses for annotations:
-
-**Clickable End Cards / Outros**
-
-One of the best ways you can use spotlight annotations is to create clickable end cards for your videos.
-
-When your video finishes playing the YouTube player will display a selection of suggested videos that might direct viewers away from your channel. You can keep more of these viewers watching your content by creating your own ‘suggested videos’ card and putting it at the end of your videos.
-
-Put thumbnails of two or three of your other videos on your end card, or use ‘picture-in-picture’ to actually imbed footage from them. Then, after you upload your video, go in and place clickable spotlight annotations over top of your video thumbnails.
-
-This is one use for annotations that cannot be duplicated with cards.
-
-**Promoting Your Videos**
-
-You should not wait until the end of your video to start linking viewers to other content. Many viewers will click away before they see your end card because your video is not exactly what they were looking for. By placing note or speech bubble annotations occasionally throughout your videos you can catch some of these people before they click off of your channel.
-
-This works especially well if you link to videos on similar subjects to the one you are annotating.
-
-Instead of just linking to another video of yours, try to link to that video on a playlist. Once a viewer is on a playlist your videos will auto-play after each other, which is good for both your view count and watch time.
-
-You can also use the newer YouTube Cards for this, but Annotations might still be a better choice because viewers only need to click once vs. twice for Cards.
-
-Try both and see which performs best for your channel. It might be in your best interest to keep on using both as they target different audiences – Cards are clickable on mobile devices, for example, but Annotations are not.
-
-#### **Part 2: YouTube Cards**
-
-YouTube Cards are newer than annotations and a lot of people believe they will one day replace Annotations. While there are benefits to Cards – like embedding images to represent your links – you cannot choose the shape, size, or placement of them. This means they have limited uses.
-
-When viewers click on a Card they are shown additional information and a thumbnail representing the page they will be taken to if they choose to click again. This extra step could be either help viewers decide to click your links or give them a second chance to decide they would rather not.
-
-**Section 1: When to Use Cards**
-
-A linked Annotation is simply a call to action viewers can click on. A Card is a call to action as well, but instead of taking the viewer directly to where its link leads when it is clicked a Card opens up into a larger version of itself with a thumbnail image.
-
-Crowdfunding pages (Patreon is a great choice for video creators), charity fundraising pages, and merchandise stores are all examples of links that benefit from the format of YouTube Cards.
-
-When you link a viewer to a non-YouTube page you break up their session time, which negatively impacts your watch time and SEO ranking. You want to make sure that the viewers you are directing away from YouTube are the ones most likely to convert after they leave. By ‘convert’ we mean to contribute to your Patreon campaign, donate to the charity you are promoting, or buy some of your merchandise.
-
-Giving viewers more information and a thumbnail through a Card can help ensure the most interested viewers are the ones clicking your links.
-
-If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -371,9 +274,94 @@ Giving viewers more information and a thumbnail through a Card can help ensure t
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube Annotations and Cards are both tools for linking viewers to your other videos or to off-YouTube webpages. Two of the major differences between them are:
+
+Annotations are not clickable on mobile devices.
+
+You cannot choose the size or positioning of Cards.
+
+This article will teach you about both Cards and Annotations and discuss the best uses for each of them.
+
+**Part 1: Annotations**
+
+Annotations are messages that float overtop of your videos in the YouTube player. Usually, annotations are clickable and take users to other content created by you.
+
+**Section 1: Types of Annotations**
+
+There are five types of YouTube annotations:
+
+**Notes** are colored boxes placed over the top of your videos.
+
+**Speech Bubbles** look like dialogue boxes in a comic strip. They have tails that you can adjust so it looks like one of the people in your video is saying what is written in the annotation.
+
+**Spotlights** have a subtle border and are completely clear inside. Your text only appears when a viewer’s cursor hovers over top of these annotations.
+
+**Labels** are like spotlights except that viewers do not have to hover over them for your text to be visible.
+
+Any of these annotations can be used to link viewers to other videos, or as subscribe links. You can also add a simple **Title** to your video through the Annotations menu.
+
+**Section 2: How to Use Annotations**
+
+\*Note: the above video mentions Pause annotations, which are no longer available.
+
+Here are two of the best uses for annotations:
+
+**Clickable End Cards / Outros**
+
+One of the best ways you can use spotlight annotations is to create clickable end cards for your videos.
+
+When your video finishes playing the YouTube player will display a selection of suggested videos that might direct viewers away from your channel. You can keep more of these viewers watching your content by creating your own ‘suggested videos’ card and putting it at the end of your videos.
+
+Put thumbnails of two or three of your other videos on your end card, or use ‘picture-in-picture’ to actually imbed footage from them. Then, after you upload your video, go in and place clickable spotlight annotations over top of your video thumbnails.
+
+This is one use for annotations that cannot be duplicated with cards.
+
+**Promoting Your Videos**
+
+You should not wait until the end of your video to start linking viewers to other content. Many viewers will click away before they see your end card because your video is not exactly what they were looking for. By placing note or speech bubble annotations occasionally throughout your videos you can catch some of these people before they click off of your channel.
+
+This works especially well if you link to videos on similar subjects to the one you are annotating.
+
+Instead of just linking to another video of yours, try to link to that video on a playlist. Once a viewer is on a playlist your videos will auto-play after each other, which is good for both your view count and watch time.
+
+You can also use the newer YouTube Cards for this, but Annotations might still be a better choice because viewers only need to click once vs. twice for Cards.
+
+Try both and see which performs best for your channel. It might be in your best interest to keep on using both as they target different audiences – Cards are clickable on mobile devices, for example, but Annotations are not.
+
+#### **Part 2: YouTube Cards**
+
+YouTube Cards are newer than annotations and a lot of people believe they will one day replace Annotations. While there are benefits to Cards – like embedding images to represent your links – you cannot choose the shape, size, or placement of them. This means they have limited uses.
+
+When viewers click on a Card they are shown additional information and a thumbnail representing the page they will be taken to if they choose to click again. This extra step could be either help viewers decide to click your links or give them a second chance to decide they would rather not.
+
+**Section 1: When to Use Cards**
+
+A linked Annotation is simply a call to action viewers can click on. A Card is a call to action as well, but instead of taking the viewer directly to where its link leads when it is clicked a Card opens up into a larger version of itself with a thumbnail image.
+
+Crowdfunding pages (Patreon is a great choice for video creators), charity fundraising pages, and merchandise stores are all examples of links that benefit from the format of YouTube Cards.
+
+When you link a viewer to a non-YouTube page you break up their session time, which negatively impacts your watch time and SEO ranking. You want to make sure that the viewers you are directing away from YouTube are the ones most likely to convert after they leave. By ‘convert’ we mean to contribute to your Patreon campaign, donate to the charity you are promoting, or buy some of your merchandise.
+
+Giving viewers more information and a thumbnail through a Card can help ensure the most interested viewers are the ones clicking your links.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **_[Wondershare Filmstock](https://www.filmstocks.com/?fs%5Fchannel=ws)_** and will definitely enhance your productivity and helps you to make money by making videos much easier.
+
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -395,14 +383,15 @@ Follow @Richard Bennett
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Laugh Track in the Air: Parody Anthems
 
 # 10 Parody Songs That Totally Crack You Up
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -548,10 +537,11 @@ Few famous Parody singers, makers or Industries:
 * Weird Al Yankovic
 * College Humour
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -704,6 +694,10 @@ Few famous Parody singers, makers or Industries:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -852,11 +846,12 @@ Few famous Parody singers, makers or Industries:
 * Ellen DeGeneres
 * Weird Al Yankovic
 * College Humour
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -1008,6 +1003,10 @@ Few famous Parody singers, makers or Industries:
 * College Humour
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -1028,7 +1027,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-best-tools-for-live-gameplay-screen-grabs/"><u>[New] Best Tools for Live Gameplay Screen Grabs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-customizing-your-watch-the-art-of-altering-youtube-video-pace/"><u>[New] Customizing Your Watch The Art of Altering YouTube Video Pace</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-debating-platform-preferences-igtv-versus-youtube-video-sharing/"><u>[New] Debating Platform Preferences IGTV Versus YouTube Video Sharing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-video-engagement-by-inserting-captions/"><u>[New] Elevate Video Engagement by Inserting Captions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-free-mindfulness-playlist-for-2024/"><u>[New] Free Mindfulness Playlist for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-top-7-audio-capturers-2023-edition/"><u>2024 Approved Top 7 Audio Capturers 2023 Edition</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-voice-transformation-on-the-move-best-audio-modification-tools-for-smartphones/"><u>2024 Approved Voice Transformation on the Move Best Audio Modification Tools for Smartphones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/channel-name-genius-brainstorming-like-a-pro/"><u>Channel Name Genius Brainstorming Like a Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cost-effective-audio-equipment-for-newcomers-for-2024/"><u>Cost-Effective Audio Equipment for Newcomers for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-digital-dynamics-unveiling-the-secret-sauce-for-youtube-success-and-revenue/"><u>Decoding Digital Dynamics Unveiling the Secret Sauce for YouTube Success & Revenue</u></a></li>
+<li><a href="https://fox-that.techidaily.com/easy-tips-to-fix-iphones-location-service-failures-and-restart-accurate-positioning/"><u>Easy Tips to Fix iPhone's Location Service Failures and Restart Accurate Positioning</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-your-channel-identity-essential-youtube-naming-strategies-for-2024/"><u>Elevate Your Channel Identity Essential YouTube Naming Strategies for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/fearless-filming-mastering-your-first-10-clips/"><u>Fearless Filming Mastering Your First 10 Clips</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-honor-90-lite-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Honor 90 Lite without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/windows-11-gamers-guide-to-immaculate-game-recording/"><u>Windows 11 Gamers' Guide to Immaculate Game Recording</u></a></li>
+</ul></div>
 

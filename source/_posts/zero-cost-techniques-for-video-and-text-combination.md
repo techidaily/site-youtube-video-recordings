@@ -1,7 +1,7 @@
 ---
 title: "\"Zero-Cost Techniques for Video and Text Combination\""
-date: 2024-11-11T05:05:49.900Z
-updated: 2024-11-14T16:16:18.136Z
+date: 2024-11-27T11:59:03.543Z
+updated: 2024-12-02T19:57:16.679Z
 tags:
   - ai video
   - ai youtube
@@ -70,162 +70,9 @@ Now it’s time to add the text video and the background video to the project me
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
-Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
-
-Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
-
-**Conclusion**
-
-There are so many different ways to create visually striking content, and adding videos to text is just one among numerous techniques that enable you to make a PowerPoint presentation or an opening of a video more interesting to watch.
-
-Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-It may be challenging to capture the attention of your audience if the video openings or PowerPoint presentations contain too much text. Striking a perfect balance between the visual and textual elements isn’t always easy, especially if the text is the only way to convey essential information to the audience.
-
-Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
-
-## Part 1: How to Add Video to Text for Free with PowerPoint?
-
-An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
-
-Adding videos to titles or subtitles you include in a slideshow you’re creating in PowerPoint can help you create a presentation that is both informative and visually entertaining. The process of combining videos with text in PowerPoint isn’t overly complicated, but you will still need to go through it several times in order to become familiar with it.
-
-You should start by creating a new slide and adding a textbox to it. Proceed to type the word or phrase into the textbox and go on to format the text. Pick the font that matches the style of your presentation and make sure that the text size is large enough for the video to be visible.
-
-Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
-
-![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
-
-The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
-
-Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
-
-![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
-
-Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
-
-You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-## Part 2: Adding Video to Text in Filmora
-
-Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
-
-![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-
-Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
-
-![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
-
-Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
-
-![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
-
-Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
-
-**Conclusion**
-
-There are so many different ways to create visually striking content, and adding videos to text is just one among numerous techniques that enable you to make a PowerPoint presentation or an opening of a video more interesting to watch.
-
-Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-It may be challenging to capture the attention of your audience if the video openings or PowerPoint presentations contain too much text. Striking a perfect balance between the visual and textual elements isn’t always easy, especially if the text is the only way to convey essential information to the audience.
-
-Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
-
-## Part 1: How to Add Video to Text for Free with PowerPoint?
-
-An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
-
-Adding videos to titles or subtitles you include in a slideshow you’re creating in PowerPoint can help you create a presentation that is both informative and visually entertaining. The process of combining videos with text in PowerPoint isn’t overly complicated, but you will still need to go through it several times in order to become familiar with it.
-
-You should start by creating a new slide and adding a textbox to it. Proceed to type the word or phrase into the textbox and go on to format the text. Pick the font that matches the style of your presentation and make sure that the text size is large enough for the video to be visible.
-
-Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
-
-![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
-
-Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
-
-![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
-
-Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
-
-You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-## Part 2: Adding Video to Text in Filmora
-
-Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
-
-![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-
-Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
-
-![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
-
-Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
-
-Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
-
-![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -295,11 +142,156 @@ Now it’s time to add the text video and the background video to the project me
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
+Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
+
+Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
+
+**Conclusion**
+
+There are so many different ways to create visually striking content, and adding videos to text is just one among numerous techniques that enable you to make a PowerPoint presentation or an opening of a video more interesting to watch.
+
+Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+It may be challenging to capture the attention of your audience if the video openings or PowerPoint presentations contain too much text. Striking a perfect balance between the visual and textual elements isn’t always easy, especially if the text is the only way to convey essential information to the audience.
+
+Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
+
+## Part 1: How to Add Video to Text for Free with PowerPoint?
+
+An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
+
+Adding videos to titles or subtitles you include in a slideshow you’re creating in PowerPoint can help you create a presentation that is both informative and visually entertaining. The process of combining videos with text in PowerPoint isn’t overly complicated, but you will still need to go through it several times in order to become familiar with it.
+
+You should start by creating a new slide and adding a textbox to it. Proceed to type the word or phrase into the textbox and go on to format the text. Pick the font that matches the style of your presentation and make sure that the text size is large enough for the video to be visible.
+
+Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
+
+![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
+
+The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
+
+Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
+
+![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
+
+Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
+
+You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
+
+## Part 2: Adding Video to Text in Filmora
+
+Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
+
+![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
+
+![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
+
+Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
+
+![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
+
+Optionally you can enhance the colors in the background video or adjust the size of the text before exporting your project from Filmora.
+
+**Conclusion**
+
+There are so many different ways to create visually striking content, and adding videos to text is just one among numerous techniques that enable you to make a PowerPoint presentation or an opening of a video more interesting to watch.
+
+Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+It may be challenging to capture the attention of your audience if the video openings or PowerPoint presentations contain too much text. Striking a perfect balance between the visual and textual elements isn’t always easy, especially if the text is the only way to convey essential information to the audience.
+
+Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
+
+## Part 1: How to Add Video to Text for Free with PowerPoint?
+
+An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
+
+Adding videos to titles or subtitles you include in a slideshow you’re creating in PowerPoint can help you create a presentation that is both informative and visually entertaining. The process of combining videos with text in PowerPoint isn’t overly complicated, but you will still need to go through it several times in order to become familiar with it.
+
+You should start by creating a new slide and adding a textbox to it. Proceed to type the word or phrase into the textbox and go on to format the text. Pick the font that matches the style of your presentation and make sure that the text size is large enough for the video to be visible.
+
+Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
+
+![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
+
+The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
+
+Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
+
+![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
+
+Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
+
+You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 2: Adding Video to Text in Filmora
+
+Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
+
+![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
+
+![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
+
+Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
+
+![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -315,10 +307,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -369,20 +358,11 @@ YouTube’s search engine can be your best ally on the quest for great tags. Thi
 
 ![ Find YouTube Video Tag](https://images.wondershare.com/filmora/article-images/find-youtube-tag-by-searching.jpg)
 
-This method may not be too precise, but the idea is to quickly gather information and perhaps get some inspiration for more creative or complex tags. Most of the suggestions will be logical, but there can be a few unexpected combinations you’d never think of. Be very careful when translating the findings to your own situation, since the fact that some terms are popular doesn’t mean they are relevant for your video. Another problem is that slightly altered terminology can significantly change the effectiveness of the tag, so you should ideally use the suggested phrases in the exact form as you found them or not at all. If you do make adjustments, you should test the new tag through the same auto-complete tool and see how it fares.
-
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+This method may not be too precise, but the idea is to quickly gather information and perhaps get some inspiration for more creative or complex tags. Most of the suggestions will be logical, but there can be a few unexpected combinations you’d never think of. Be very careful when translating the findings to your own situation, since the fact that some terms are popular doesn’t mean they are relevant for your video. Another problem is that slightly altered terminology can significantly change the effectiveness of the tag, so you should ideally use the suggested phrases in the exact form as you found them or not at all. If you do make adjustments, you should test the new tag through the same auto-complete tool and see how it fares.
 
 ### 2.  Try YouTube Tag Generators
 
@@ -433,6 +413,10 @@ The short answer is Yes. Since Google is encouraging people to use tags to help 
 There are lots of filters, overlays and effects pre-programmed in [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/), you can improve YouTube videos without costing any extra fees if you’ve subscribed to Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -485,13 +469,6 @@ Want more tools to generate YouTube tags? Check our picks of the [best YouTube v
 #### #3\. [BetterWaytoWeb](http://www.betterwaytoweb.com/tag-generator-for-youtube)
 
 While this free-to-use tool has a very simple interface and won’t require any background knowledge to use, it still provides valuable information. It can suggest suitable tags for your new video based on the main keyword you provide, speeding up your research considerably. It can also analyze the tags placed on an existing YouTube video, which is important for deducing how other authors working in the same category are optimizing their content.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. Study Your YouTube Rivals' Tags
 
@@ -610,10 +587,7 @@ There are lots of filters, overlays and effects pre-programmed in [Wondershare F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -667,6 +641,10 @@ Want more tools to generate YouTube tags? Check our picks of the [best YouTube v
 #### #3\. [BetterWaytoWeb](http://www.betterwaytoweb.com/tag-generator-for-youtube)
 
 While this free-to-use tool has a very simple interface and won’t require any background knowledge to use, it still provides valuable information. It can suggest suitable tags for your new video based on the main keyword you provide, speeding up your research considerably. It can also analyze the tags placed on an existing YouTube video, which is important for deducing how other authors working in the same category are optimizing their content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. Study Your YouTube Rivals' Tags
 
@@ -723,20 +701,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-mastering-mov-to-mpeg-4-conversion-on-win-11/"><u>[New] 2024 Approved Mastering MOV to MPEG-4 Conversion on Win 11</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[New] 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>[New] Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-ace-the-art-of-online-fame-trending-on-youtube/"><u>[Updated] Ace the Art of Online Fame Trending on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-your-content-with-insightful-channel-descriptions/"><u>[Updated] Elevate Your Content with Insightful Channel Descriptions</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[Updated] In 2024, Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-sourav-joshis-financial-acumen-in-the-world-of-youtube-earnings/"><u>[Updated] In 2024, Sourav Joshi's Financial Acumen in the World of YouTube Earnings</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-carryminatis-income-evolution-with-ajey-nagar/"><u>2024 Approved CarryMinati's Income Evolution with Ajey Nagar</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-in-depth-strategies-for-organizing-your-windows-mov-collection/"><u>2024 Approved In-Depth Strategies for Organizing Your Windows .mov Collection</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/blueprints-to-masterful-valorant-thumbnail-designs-on-social-platforms/"><u>Blueprints to Masterful Valorant Thumbnail Designs on Social Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/harnessing-hobbies-for-hefty-helpings-on-digital-domains/"><u>Harnessing Hobbies for Hefty Helpings on Digital Domains</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-seamlessly-download-and-install-arduino-ninoo-driver-on-your-pc-windows/"><u>How to Seamlessly Download and Install Arduino Ninoo Driver on Your PC (Windows)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-stepwise-approach-to-unlinking-and-removing-youtube-content/"><u>In 2024, A Stepwise Approach to Unlinking and Removing YouTube Content</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/nvidia-rtx-2060-driver-update-free-download-for-windows-11-10-8-and-7-operating-systems/"><u>NVIDIA RTX 2060 Driver Update: Free Download for Windows 11, 10, 8 & 7 Operating Systems</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-your-content-game-studio-aptitude-essentials/"><u>[New] Elevate Your Content Game Studio Aptitude Essentials</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-fb-video-placement-which-way-wins/"><u>[Updated] 2024 Approved FB Video Placement - Which Way Wins?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-does-influencing-youtube-metrics-justify-costs/"><u>[Updated] Does Influencing Youtube Metrics Justify Costs?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-essential-strategies-for-profitable-youtube-videos/"><u>2024 Approved Essential Strategies for Profitable YouTube Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-nokia-g22-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Nokia G22 without App | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-balancing-consistency-and-quality-a-key-to-increasing-youtube-viewership/"><u>In 2024, Balancing Consistency & Quality A Key to Increasing YouTube Viewership</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-easy-to-navigate-top-10-youtube-downloader-tools/"><u>In 2024, Easy-to-Navigate Top 10 YouTube Downloader Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harvest-high-quality-pics-the-free-edition-guide/"><u>In 2024, Harvest High-Quality Pics The Free Edition Guide</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/introducing-neoml-abbyys-latest-open-source-ai-resource-for-developers/"><u>Introducing NeoML - ABBYY's Latest Open-Source AI Resource for Developers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/join-forces-in-melody-the-ultimate-way-to-share-your-favorite-songs-on-spotify-with-friends/"><u>Join Forces in Melody: The Ultimate Way to Share Your Favorite Songs on Spotify With Friends</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-youtube-earnings-a-monetization-checklist/"><u>Mastering YouTube Earnings A Monetization Checklist</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-nokia-c12-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Nokia C12 Phone? Unlock It Now</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726030246196-pc/"><u>PCやスマートフォンでウマ娘のコレクション動画作成ガイド</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-5-gaming-headsets-for-youtube/"><u>Top 5 Gaming Headsets for YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/virtual-realms-unveiled-gear-vs-lgcam-review-for-2024/"><u>Virtual Realms Unveiled Gear vs LGCam Review for 2024</u></a></li>
 </ul></div>
 
