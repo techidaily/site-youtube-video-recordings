@@ -1,7 +1,7 @@
 ---
 title: Is Being Polite to Intelligent Assistants Such as ChatGPT, Alexa by Amazon, and Siri by Apple a Must for Proper Interaction?
-date: 2024-11-25T23:44:57.869Z
-updated: 2024-12-02T21:14:15.647Z
+date: 2024-12-08T03:46:17.679Z
+updated: 2024-12-09T17:57:55.265Z
 tags:
   - chatgpt
   - open-ai
@@ -24,7 +24,7 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 ![man questions robot turing test example feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/man-questions-robot-turing-test-example-feature.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Jesus Sanz/[Shutterstock](https://www.shutterstock.com/image-vector/robot-scientist-facing-turing-test-artificial-1651840888)
@@ -45,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![A couple watching Netflix on TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/a-couple-watching-netflix-on-tv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Gary Marcus, a renowned cognitive scientist and AI researcher, proposed an alternative to the Turing test that was published in the[New Yorker](https://www.newyorker.com/tech/annals-of-technology/what-comes-after-the-turing-test) to identify the cognitive ability of an AI. The test is simple—you judge an AI model based on its ability to watch and understand YouTube videos and TV shows without subtitles or text. For the AI to pass the Marcus test, it should understand sarcasm, humor, irony, and the storyline when watching the videos and explain it like a human.
 
  At the moment,[GPT-4 can describe images](https://www.makeuseof.com/best-new-gpt4-features-explained/) , but so far, there is currently no AI model that can comprehend videos like a human.[Self-driving vehicles](https://www.makeuseof.com/self-driving-cars-explained/) come close, but they're not completely autonomous and require sensors since they can't make sense of everything in their surrounding environment.
@@ -53,29 +57,25 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![Various different AI-generated images made with DALL-E](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/dall-e-ai-generated-image-gallery.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  According to a research paper published on[PNAS](https://www.pnas.org/doi/10.1073/pnas.1422953112) , the visual Turing test can be used to identify if you're talking to a human or an AI using image questionaries. It works like the Turing test, but instead of answering questions using texts, participants are shown images and expected to answer simple questions while thinking like a human. However, the[visual Turing test is different from CAPTCHAs](https://www.makeuseof.com/tag/how-do-captchas-work/) since all the answers are correct—but to pass the test, the AI must process the images similarly to a human.
 
  Beyond that, if an AI and a human are shown multiple images side by side and asked to identify realistic images, the human would have the cognitive ability to pass the test. This is because AI models find it difficult to distinguish images that don't look like they were taken in the real world. In fact, that's the reason why you can[identify AI-generated images](https://www.makeuseof.com/how-to-identify-ai-generated-image/) using anomalies that don't make sense.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. The Lovelace 2.0 Test
 
 ![robot holding a pencil pointing to a book](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/robot-holding-pencil-pointing-to-book-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The theory that a computer can't create original ideas beyond what it was programmed to do was first conceptualized by Ada Lovelace before the Turing test. However, Alan Turing objected to that theory arguing that AI can still surprise humans. It wasn't until 2001 that the guidelines for the Lovelace test were developed to tell apart an AI from a human—and, as per the[thekurzweillibrary](http://www.thekurzweillibrary.com/georgia-tech-professor-proposes-another-alternative-to-the-turing-test) the rules were later revised in 2014.
 
  For an AI to pass the Lovelace test, it must demonstrate that it can generate original ideas that exceed its training. Current AI models like GPT-4 don't have the capability to come up with new inventions beyond our existing knowledge. However,[artificial general intelligence](https://www.makeuseof.com/what-is-artificial-general-intelligence-how-it-differs-generative-ai/) can achieve that capability and pass the Lovelace test.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Reverse Turing Test
 
@@ -91,13 +91,13 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![A man playing chess with an AI robot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/ai-chess.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to the AI classification framework developed by[Chris Saad](https://docsend.com/view/et7755yasfpj3iy6) , the Turing test is just one evaluation method to know if you're talking to an AI. More succinctly, the AI classification framework is based on the theory of multiple intelligence, which requires human intelligence to satisfy at least eight different criteria, which include: musical-rhythm, logical-mathematical intelligence, visual identification, emotional intelligence, self-reflective intelligence, existential thinking ability, and body movement.
 
  Since the AI is evaluated on eight different parameters, it's unlikely to pass for a human even if it performs better than average in certain benchmarks. For instance,[ChatGPT can solve math problems](https://www.makeuseof.com/can-chatgpt-solve-math-problems/) , describe images, and converse in a natural language like a human, but it would fail other categories defined in the AI classification framework.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Turing Test Is Not Conclusive
 
@@ -120,18 +120,24 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-amplify-your-channel-effortless-tactics-for-more-views/"><u>[New] Amplify Your Channel Effortless Tactics for More Views</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-everything-you-need-to-succeed-with-youtube-short-videos/"><u>[New] Everything You Need to Succeed with YouTube Short Videos</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-zte-nubia-z60-ultra-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your ZTE Nubia Z60 Ultra Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/asus-zenwifi-ax6600-mesh-network-router-comprehensive-review/"><u>ASUS ZenWifi AX6600 Mesh Network Router Comprehensive Review</u></a></li>
-<li><a href="https://win-community.techidaily.com/erweiterte-anleitung-zur-installation-von-command-prompt-in-windows-student-which-of-the-following-is-not-an-example-of-a-nonverbal-cue/"><u>Erweiterte Anleitung Zur Installation Von Command Prompt in Windows # Student: Which of the Following Is NOT an Example of a Nonverbal Cue?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-oppo-reno-10-proplus-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Oppo Reno 10 Pro+ 5G</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensively-understanding-manual-signal-recognition/"><u>In 2024, Comprehensively Understanding Manual Signal Recognition</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-enhancing-viewer-engagement-with-smart-end-screen-techniques/"><u>In 2024, Enhancing Viewer Engagement with Smart End Screen Techniques</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-utilizing-b-roll-for-enhanced-storytelling/"><u>In 2024, Utilizing B-Roll for Enhanced Storytelling</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/may-30th-new-york-times-connecting-insights-and-answers-uncover-the-secrets-of-354/"><u>May 30Th New York Times Connecting Insights & Answers: Uncover the Secrets of #354!</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/strategies-for-amplifying-your-yt-viewership-quickly/"><u>Strategies for Amplifying Your YT Viewership Quickly</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-guide-selecting-8-exquisite-weddings-vids/"><u>Ultimate Guide Selecting 8 Exquisite Weddings - Vids</u></a></li>
-<li><a href="https://win-able.techidaily.com/update-completed-getting-rid-of-the-outdated-drivers-alert-in-minecraft/"><u>Update Completed: Getting Rid of the 'Outdated Drivers' Alert in Minecraft</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-explore-visionary-typography-the-ultimate-list-of-9-websites-offering-intricate-3d-letters/"><u>[New] Explore Visionary Typography The Ultimate List of 9 Websites Offering Intricate 3D Letters</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-how-to-disable-instagrams-igtv-for-2024/"><u>[New] How to Disable Instagram's IGTV for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-club-vibes-best-dj-template-video-selections/"><u>[Updated] Club Vibes Best DJ Template Video Selections</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-download-youtube-videos-to-mp4-without-breaching-laws/"><u>[Updated] Download YouTube Videos to MP4 without Breaching Laws</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-assemble-a-personalized-youtube-music-list-for-2024/"><u>[Updated] How to Assemble a Personalized YouTube Music List for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-setting-up-facebook-live-your-roku-route/"><u>[Updated] Setting Up Facebook LIVE Your Roku Route</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-step-by-step-guide-to-youtube-to-igtv-conversion/"><u>2024 Approved A Step-by-Step Guide to YouTube to IGTV Conversion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-add-youtube-melodies-in-imovie-without-hurdles/"><u>2024 Approved Add YouTube Melodies in iMovie Without Hurdles</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv/"><u>2024 Approved Efficient Broadcast Techniques Incorporating YouTube Loops on TV</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/a-step-by-step-aspect-ratio-guide-for-youtube-creators-for-2024/"><u>A Step-by-Step Aspect Ratio Guide for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/awakening-with-animation-the-cutest-and-brightest-channels/"><u>Awakening with Animation The Cutest and Brightest Channels</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cutting-edge-immersion-selecting-the-top-10-vr-headsets-on-pc/"><u>Cutting-Edge Immersion Selecting the Top 10 VR Headsets on PC</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dance-dictates-selecting-perfect-audio-visuals-for-2024/"><u>Dance Dictates Selecting Perfect Audio-Visuals for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/discover-the-best-movies-on-youtube-no-pay-required/"><u>Discover the Best Movies on YouTube - No Pay Required</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-quest-for-video-perfection-debating-between-bandicam-and-camtasia/"><u>In 2024, The Quest for Video Perfection Debating Between Bandicam & Camtasia</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-uploading-maximum-length-videos-successfully-on-instagram/"><u>In 2024, Uploading Maximum-Length Videos Successfully on Instagram</u></a></li>
+<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Vivo V27e? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/smooth-cinematography-premium-stabilizer-recommendations/"><u>Smooth Cinematography Premium Stabilizer Recommendations</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unveiling-clearer-sounds-a-video-editing-guide-for-2024/"><u>Unveiling Clearer Sounds A Video Editing Guide for 2024</u></a></li>
 </ul></div>
 

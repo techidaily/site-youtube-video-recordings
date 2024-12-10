@@ -1,7 +1,7 @@
 ---
 title: "Designing News Outro Sequences"
-date: 2024-07-19T05:46:47.600Z
-updated: 2024-07-20T05:46:47.600Z
+date: 2024-12-05T01:55:09.753Z
+updated: 2024-12-10T04:16:05.003Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ A good outro will typically include a call to action, such as subscribing to a c
 
 Furthermore, it should include a brief summary of the video, and what viewers can expect for the things to come. You can find outros templates online or [make your own outstanding YouTube outros](https://tools.techidaily.com/wondershare/filmora/download/) in just a few clicks.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. Recommendation: Where Can You Find News Style Outro?
 
 Now that you've understood what a good YouTube outro is, you might wonder where you can find News Style outros for your videos/presentations to add a bit of flair.
@@ -59,9 +56,6 @@ An editable **news outro template** can provide a quick and easy way to create o
 
 Filmstock is a platform offering free and paid editable templates for content creators. With dozens of editable templates to choose from on [Filmstock](https://filmstock.wondershare.com/p/news-style-pack.html?af=6), you can find the perfect news style outro for your videos in just a few clicks. First, however, you need to install [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) on your PC to use the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/filmstock-news-outros-templates.jpg)
 
 Filmora is a popular video editor with a built-in filmstock library offering hundreds of non-copyright editable templates for every occasion. With the software, you can find and add your [news style outros](https://filmstock.wondershare.com/p/news-report-pack.html) to your videos with just a few clicks. The only disadvantage is that it isn't completely free. The paid version offers two options: A standard plan that costs **$9.99** per month and a Premium plan that will cost you **$49.99** per month.
@@ -94,14 +88,15 @@ The platform offers 3 paid plans starting at **$8.99/month.** The con here is th
 
 [Placeit](https://placeit.net/?search=news+outros) is an online editor giving you the ability to create and customize your video content in no time. The editor also includes a stock image library, giving you access to several customizable templates.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![placeit video editor](https://images.wondershare.com/filmora/article-images/2022/11/placeit-video-editor.jpg)
 
 Placeit is easy to use and offers a variety of templates for different purposes, including outros for news stories, video blogs, and even gaming videos. The platform offers an unlimited subscription plan starting from **$7.47 /month.**
 
 However, the design rendering process of the editor is slow, there is no AI tool, and you even cannot import fonts that are not available on the platform.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Non-Editable News Outro Template Websites
 
@@ -112,6 +107,10 @@ Some platforms offer non-editable high-resolution news outros that you can integ
 Searching for high-quality templates for your next project?[Storyblock](https://www.storyblocks.com/video/search/news+outros) is a website that comes with royalty-free, non-customizable news style outros.
 
 ![storyblock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/storyblock-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can use these templates to create high-quality news intros and outros for your podcast or videos. The platform offers two pricing plans for individual content creators, starting at **$15** per month. While businesses can customize their plans as per their requirements.
 
@@ -129,9 +128,6 @@ You can find templates for both commercial and non-commercial use, so whatever y
 
 [Videezy](https://www.videezy.com/free-video/news-outros) is a royalty-free video site that offers free and premium video templates. The website has a variety of options to choose from, including news style outros, all of which are geared towards creating engaging content.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![videezy news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videezy-news-outros-templates.jpg)
 
 The templates are all ready-made and royalty-free. You can download them for use in your own projects and attach them to your video using any video editing app/software.
@@ -142,9 +138,6 @@ The pricing of the platform starts at **$19/file**, which might be expensive for
 
 [Shutterstock](https://www.shutterstock.com/video/clip-1089743161-world-map-news-intro-blue-background-digital) has various affordable, royalty-free outro templates that you can use for your video/podcast. With a wide selection of styles and price points, this platform has the perfect content for your needs.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![shutterstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/shutterstock-news-outros-templates.jpg)
 
 On Shutterstock, the free trial only offers 10 images, and you will be charged **$0.22-$14.50/image** once the trial limit is over. On the other hand, the Extended license will cost you **$67.96-$99.50.** The downside is that you have to purchase the content pack separately.
@@ -157,9 +150,6 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. A Bonus Tip: How To Edit Your News Outro For Your YouTube Video?
 
 After knowing the websites providing News Style Outro, we hope you can find an ideal outro successfully. However, how to use the material you have found, integrate it into your YouTube video, and improve the quality of it?
@@ -168,9 +158,6 @@ Like mentioned before, we highly recommend Filmora to fulfill all your editing n
 
 Step1 Download **Filmora** software from the official website and install it on your PC. Launch the software and click **"New Project."**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![importing file to filmora](https://images.wondershare.com/filmora/article-images/2022/11/importing-file-to-filmora.jpg)
 
 Step2 Drag and drop your media file or import it using the **"Click Here to Import Media File"** option. Now, drag your file and drop it in the **Timeline.**
@@ -185,9 +172,6 @@ Step4 Next, adjust the template on your video, and once you are satisfied, click
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've provided a detailed guide on how to create **news outro templates** with simple and easy-to-follow instructions. We also discussed various platforms/editors where you can find customizable and non-customizable templates.
@@ -198,9 +182,6 @@ Hopefully, you find this guide informative and can now create strong news style 
 
 [Canva](https://www.canva.com/search/templates?q=News%20Style%20Outros) is a user-friendly graphic design free and paid tool that is quickly becoming a popular choice for businesses of all sizes. Canva offers a range of templates for creating professional-looking designs.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![canva news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/canva-news-outros-templates.jpg)
 
 With a wide range of templates to choose from, you can easily find one that fits your needs and style. Best of all, you can create your outro template in minutes without hiring a designer or spending hours learning complex design software.
@@ -227,6 +208,10 @@ Placeit is easy to use and offers a variety of templates for different purposes,
 
 However, the design rendering process of the editor is slow, there is no AI tool, and you even cannot import fonts that are not available on the platform.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Non-Editable News Outro Template Websites
 
 Some platforms offer non-editable high-resolution news outros that you can integrate into your videos using software programs like [Filmora (guidance in Part 3),](#%5FHow%5FTo%5FEdit) After Effects, etc.
@@ -245,19 +230,11 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 
 [Videvo](https://www.videvo.net/search/news%20outros/) is a great resource for anyone looking for royalty-free video templates. They have over 300,000 free and premium videos, which you can download in clips or full with 4K resolution. However, their stock library is not much vast. The platform comes with a two-tier subscription plan starting from **$14.99/month** or **$144/year.**
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
 
@@ -277,6 +254,10 @@ The pricing of the platform starts at **$19/file**, which might be expensive for
 
 ![shutterstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/shutterstock-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On Shutterstock, the free trial only offers 10 images, and you will be charged **$0.22-$14.50/image** once the trial limit is over. On the other hand, the Extended license will cost you **$67.96-$99.50.** The downside is that you have to purchase the content pack separately.
 
 ##### iStock
@@ -286,6 +267,10 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 ![istock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/istock-news-outros-templates.jpg)
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. A Bonus Tip: How To Edit Your News Outro For Your YouTube Video?
 
@@ -328,24 +313,13 @@ Hopefully, you find this guide informative and can now create strong news style 
      data-ad-slot="1223367746"></ins>
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Guides on Creating Cost-Free YouTube Beginnings & Conclusions
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -368,9 +342,6 @@ Hopefully, you find this guide informative and can now create strong news style 
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -397,10 +368,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -444,9 +416,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -501,9 +470,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -548,9 +514,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -605,9 +568,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -618,6 +578,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -652,9 +616,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -709,9 +670,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -757,6 +715,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -777,7 +739,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-windows-pc-broadcasting-manual-a-comprehensive-live-tv-recording-guide/"><u>[New] 2024 Approved Windows PC Broadcasting Manual A Comprehensive Live TV Recording Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-break-free-from-fee-free-youtube-start-at-500plus-subscriber-level/"><u>[New] Break Free From Fee-Free Youtube - Start at 500+ Subscriber Level</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-your-profit-with-these-top-10-simplified-youtube-business-channels/"><u>[New] Elevate Your Profit with These Top 10 Simplified YouTube Business Channels</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-get-paid-on-youtube-from-adsense-to-your-bank-account/"><u>[New] How To Get Paid on YouTube - From AdSense to Your Bank Account</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-achieve-financial-success-on-youtube-start-at-500-views/"><u>[Updated] Achieve Financial Success on YouTube Start at 500 Views</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-deciphering-youtubes-subscriber-code/"><u>[Updated] Deciphering YouTube's Subscriber Code</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-combining-youtube-and-imovie-for-professional-results/"><u>2024 Approved Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/choosing-creativitys-canvas-youtube-vs-tiktok-for-2024/"><u>Choosing Creativity's Canvas Youtube Vs. TikTok for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/delve-into-the-upcoming-tesla-robotaxi-latest-rumors-on-pricing-availability-and-features-unpacked/"><u>Delve Into the Upcoming Tesla Robotaxi – Latest Rumors on Pricing, Availability, and Features Unpacked</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/drives-unseen-in-win-1011-resolved-guide/"><u>Drives Unseen in Win 10/11 - Resolved Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tless-sound-transformation-from-youtube-to-wav-format/"><u>Effortless Sound Transformation From YouTube to WAV Format</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-decoding-the-core-contrasts-between-youtube-and-dailymention/"><u>In 2024, Decoding the Core Contrasts Between YouTube and DailyMention</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-diy-tripods-how-to-stabilize-your-camera-without-buying-a-tripod/"><u>In 2024, DIY Tripods| How to Stabilize Your Camera without Buying a Tripod</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/leaders-in-learning-top-15-online-science-hubs/"><u>Leaders in Learning Top 15 Online Science Hubs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tailored-touch-up-top-6-apps-to-exclude-unwanted-elements-from-photos-for-2024/"><u>Tailored Touch-Up Top 6 Apps to Exclude Unwanted Elements From Photos for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-hottest-youtube-to-mp3-software-picks-top-10/"><u>The Hottest YouTube-to-MP3 Software Picks (Top 10)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-choosing-the-perfect-google-pixel-e-assuming-it-was-meant-instead-of-pixel-7a-phone-case-today-expert-reviews-and-top-recommendations/"><u>Ultimate Guide to Choosing the Perfect Google Pixel E (Assuming It Was Meant Instead of 'Pixel 7A') Phone Case Today: Expert Reviews and Top Recommendations</u></a></li>
+</ul></div>
 

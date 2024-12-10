@@ -1,7 +1,7 @@
 ---
 title: "Top 23 Terrifying Terrors: The Ultimate List of Chilling Horror Movies"
-date: 2024-12-02T04:43:12.350Z
-updated: 2024-12-02T17:33:49.965Z
+date: 2024-12-03T23:29:04.687Z
+updated: 2024-12-10T11:39:33.483Z
 tags:
   - youtube-download
 categories:
@@ -32,15 +32,15 @@ Horror scary movies have many subgenres, and among them the most gut-wrenching a
 
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/anabelle-2-creation.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **No. 1 Best 2018 Scary Movie Blockbuster - Anabelle 2: Creation** 
 
 The doll horror movie is gaining its popularity again with the revivle of Anabelle. Directed by **Lights Out** director David F. Sandberg and produced by James Wan, this R-rated horror film will lead you back to the real origin of Anabelle and have the whole story completed. Why is Annabelle so hateful and evil? What cult exactally is behind these supernatural bloody events? You will find them out in this well-accepted horror movie 2018\. You can **free download David F. Sandberg's MyAnabellecreation** short films using 5KPlayer!
 
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/horror-film-it.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **No. 2 Another Stranger Thing Adventure - IT**
 
@@ -54,12 +54,20 @@ The second spin-off film after Annabelle in The Conjuring film series, this movi
 
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-1.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **No. 4 Most Popular 2016 Scary Movie with Ghost - The Conjuring 2**
 
 Scary movie of haunted house type is nothing unfarmiliar, but not a single movie of this type can surpass James Wan's authentic horror level, at leat for now. After directing **Saw, Insidious, The Conjuring 1**, Fast and Furious 4, James Wan's skill in seizing audiances' fear, timing, plotting, rendering horror atmosphere and storing up for a climax is proved to be unparalleled.  
 The Conjuring 2 is a must watch horror scary movie 2016! 
 
 ![Lights Out Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **No. 5 Best Horror Movie 2016 Directed by "Ponysmasher" - Lights Out** 
 
@@ -79,10 +87,6 @@ Another home-invasion horror movie 2016 that can stir quite a big scare. The sam
 
 ![Rings Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-5.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **No. 8 Best Big Name Supernatural Horror Movie Series Return - Rings (2018)**
 
 Another big name supernatural horror film returns - the Ring series, only that this chapter is named Rings rather than prequels The Ring and The Ring 2 and it combines supernatural with body horror - vomiting hair, molting, bleeding inside - all suggesting that Samara wants a rebirth rather than just revenge in the videotape. However, this horror film is rescheduled to 2018 rivaling **the Bye Bye Man**.
@@ -96,7 +100,7 @@ Another big name supernatural horror film returns - the Ring series, only that t
 ![Goodnight Mommy Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-7.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **No. 10 Psycho Art Horror Movie 2015 - Goodnight Mommy**
@@ -105,10 +109,6 @@ Perfect for extreme horror enthusiasts who are not in a rush for incessant jump 
 
 ![The Babadook Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **No. 11 Another Must Watch Psychological Horror Movie 2014 - The Babadook**
 
 This psychological horror movie 2012 is really a genuine horror more haunting than Conjuring and Sinister. Trapped in their own nightmare, the mom tries to overcome her boy's behavioral issues and her memories with the car accident losing her husband. The movie is more about living struggles than dealing with the whole supernatural threat. They're being tormented by life.
@@ -116,7 +116,7 @@ This psychological horror movie 2012 is really a genuine horror more haunting th
 ![Insidious Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-9.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **No. 12 Creepiest Horror Movie 2013 2010 2018 - Insidious Chapter 1/2/The Last Key** 
@@ -124,10 +124,6 @@ This psychological horror movie 2012 is really a genuine horror more haunting th
 If you are a fan of The Exorcist 1973 and Conjuring supernatural horror, then Insidious is the right place to get your nerves again. A haunted family tried to get rid of the evil spirits, finding and protecting their son and find back their real dad. Insidious Chapter 1 and 2 are decent with gripping storyline (they put a lot effort on plot design, bravo job!) while Insidious Chapter 3 is less qualified. Also, **Insidious: The Last Key** will be on screen in Jan 2018\. By viewing its trailer, the intense horror might be back on track!
 
 ![Sinister Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-10.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **No. 13 Best Horror Movie 2012 Scary Maze Game - Sinister** 
 
@@ -163,12 +159,16 @@ Now you can sit back and free **watch top scary movies** at home on computers, i
 
 ![Top Horror Scary Movies Free download](https://www.5kplayer.com/youtube-download/img/5kp-the-conjuring-2-zjy.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Wish i could have given a full review of all the above quality horror movies, but since we've got 5KPlayer here to recommend and don't forget downloading it, we will perfect this list as newer quality scary films pop up like _Insidious: The Last Key_.
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -186,20 +186,21 @@ Wish i could have given a full review of all the above quality horror movies, bu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-online-presence-mastering-youtube-edits-in-premiere/"><u>2024 Approved Elevate Your Online Presence Mastering YouTube Edits in Premiere</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-videos-with-youtube-studios-editing-mastery/"><u>2024 Approved Elevate Your Videos with YouTube Studio's Editing Mastery</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-inside-vidmas-tech-a-new-era-for-video-capture/"><u>2024 Approved Inside Vidma’s Tech A New Era for Video Capture?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-maximize-meeting-success-top-recording-tools/"><u>2024 Approved Maximize Meeting Success Top Recording Tools</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1728464950820-4/"><u>最高の4つの圧縮ソフトウェアツール 詳細と比較分析</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-escort-max-360-advanced-radar-detector-with-built-in-gps/"><u>Comprehensive Review of Escort Max 360: Advanced Radar Detector with Built-In GPS</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/demystifying-the-process-of-checking-subs/"><u>Demystifying The Process of Checking Subs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-robust-performance-of-beatit-bt-d11-boost-box-evaluation/"><u>Expert Insights on the Robust Performance of Beatit BT-D11 Boost Box Evaluation</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/gain-free-photo-footage-via-essential-4-youtube-picks/"><u>Gain Free Photo Footage via Essential 4 YouTube Picks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-cashflow-crusade-unleashing-earnings-with-youtube-studio/"><u>In 2024, Channel Cashflow Crusade Unleashing Earnings with Youtube Studio</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/secrets-of-soaring-wealth-joshis-youtube-path/"><u>Secrets of Soaring Wealth Joshi's Youtube Path</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/staying-within-the-limits-key-youtube-policies/"><u>Staying Within the Limits Key YouTube Policies</u></a></li>
-<li><a href="https://discover-able.techidaily.com/the-aftermath-unveiled-examining-the-lasting-impact-of-the-opium-conflicts-with-yl-software/"><u>The Aftermath Unveiled: Examining the Lasting Impact of the Opium Conflicts with YL Software</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-how-to-fix-chivalry-2-crashes-easily/"><u>Troubleshooting Guide: How to Fix Chivalry 2 Crashes Easily</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-premium-12-video-capture-apps-no-time-limit/"><u>[New] 2024 Approved Premium 12 Video Capture Apps, No Time Limit</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-the-complete-screenrec-manual-for-laptops/"><u>[New] In 2024, The Complete ScreenRec Manual for Laptops</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-the-musical-maze-copyright-rules-for-insta-users/"><u>[Updated] In 2024, Navigating the Musical Maze Copyright Rules for Insta Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-stealthy-techniques-to-skip-online-classroom-vids/"><u>[Updated] In 2024, Stealthy Techniques to Skip Online Classroom Vids</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-15-best-youtube-movies-channels-for-you-to-kill-time/"><u>2024 Approved 15 Best YouTube Movies Channels for You to Kill Time</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-discover-times-tales-top-10-historical-channels-to-study-with/"><u>2024 Approved Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dealing-with-youtubes-challenging-earnings-model-for-2024/"><u>Dealing with YouTube's Challenging Earnings Model for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-behind-the-camera-glory-spotlight-on-top-10-female-youtubers/"><u>In 2024, Behind-the-Camera Glory Spotlight on Top 10 Female YouTubers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-14-pro-max-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By Apple iPhone 14 Pro Max without the Previous Owner?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mind-blown-by-numbers-yearly-youtube-insights-in-2017/"><u>Mind Blown by Numbers Yearly YouTube Insights in 2017</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/navigating-the-link-between-youtube-and-tiktok-platforms/"><u>Navigating the Link Between YouTube & TikTok Platforms</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-the-no-audio-output-device-found-issue-on-your-windows-11-pc/"><u>Resolving the 'No Audio Output Device Found' Issue on Your Windows 11 PC</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-solutions-restoring-functionality-to-the-voice-chat-system-in-phasmophobia/"><u>Step-by-Step Solutions: Restoring Functionality to the Voice Chat System in Phasmophobia</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-new-age-of-income-generation-for-youtube-visionaries-for-2024/"><u>The New Age of Income Generation for YouTube Visionaries for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-studio-audit-earnings-review/"><u>YouTube Studio Audit Earnings Review</u></a></li>
 </ul></div>
 

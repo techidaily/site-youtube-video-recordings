@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2024-11-29T10:24:46.033Z
-updated: 2024-12-02T20:41:07.905Z
+date: 2024-12-05T17:36:24.191Z
+updated: 2024-12-09T18:49:48.065Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,20 +238,22 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-navigate-iphones-dual-task-capabilities-effortlessly/"><u>[New] 2024 Approved Navigate iPhone's Dual-Task Capabilities Effortlessly</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-access-unlimited-mcb-theme-images/"><u>[Updated] Access Unlimited MCB Theme Images</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-from-scenes-to-screenings-filming-across-os-ecosystems/"><u>[Updated] From Scenes to Screenings Filming Across OS Ecosystems</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-through-the-premier-10-image-stock-websites/"><u>[Updated] Navigating Through the Premier 10 Image Stock Websites</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-platform-power-playout-which-streams-better-obs-or-twitch-studio-for-2024/"><u>[Updated] Platform Power Playout Which Streams Better - OBS or Twitch Studio for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-the-ultimate-users-guide-for-navigating-durecorder-world/"><u>[Updated] The Ultimate User’s Guide for Navigating DuRecorder World</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/craft-the-perfect-stream-a-comprehensive-guide-to-youtubes-full-rotation-videos-for-2024/"><u>Craft the Perfect Stream A Comprehensive Guide to YouTube’s Full-Rotation Videos for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/decoding-the-modern-content-creators-dilemma/"><u>Decoding the Modern Content Creator's Dilemma</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/how-upgraded-drivers-have-eliminated-overwatchs-graphic-related-crashing-woes/"><u>How Upgraded Drivers Have Eliminated Overwatch's Graphic-Related Crashing Woes</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-tale-of-two-approaches-polite-vs-aggressive-asking/"><u>In 2024, A Tale of Two Approaches Polite vs Aggressive Asking</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-clear-and-steady-essential-youtube-camera-tech/"><u>In 2024, Clear and Steady Essential YouTube Camera Tech</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-animation-dynamic-bouncy-text-techniques/"><u>In 2024, Crafting Animation Dynamic, Bouncy Text Techniques</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-xfinity-vs-tivo-a-comprehensive-comparison-of-dvr-options/"><u>New Xfinity vs TiVo A Comprehensive Comparison of DVR Options</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/skyrocket-with-telegram-proven-marketing-techniques-unveiled-for-2024/"><u>Skyrocket with Telegram Proven Marketing Techniques Unveiled for 2024</u></a></li>
-<li><a href="https://solve-news.techidaily.com/top-alternatives-to-anydvd-find-the-ultimate-dvd-ripper-software/"><u>Top Alternatives to AnyDVD: Find the Ultimate DVD Ripper Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-aim-for-affluence-enroll-now-in-youtubes-partner-programme/"><u>[New] Aim for Affluence Enroll Now in YouTube's Partner Programme</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-channel-cashflow-crusade-unleashing-earnings-with-youtube-studio/"><u>[New] Channel Cashflow Crusade Unleashing Earnings with Youtube Studio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-efficient-hashtag-use-for-skyrocketing-youtube-audience/"><u>[New] Efficient Hashtag Use for Skyrocketing YouTube Audience</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-interface-interlink-bridging-ig-and-tiktok-worlds/"><u>[New] The Interface Interlink Bridging IG & TikTok Worlds</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-unable-to-connect-to-the-synaptics-pointing-device-driver/"><u>[Solved] Unable to Connect to the Synaptics Pointing Device Driver</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-conquer-youtubes-realms-a-step-by-step-video-uploading-guidebook/"><u>[Updated] Conquer YouTube's Realms A Step-by-Step Video Uploading Guidebook</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-economical-embellishments-free-youtube-template-packs/"><u>[Updated] Economical Embellishments FREE YouTube Template Packs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-building-sustainable-cities-innovation-in-environmental-design/"><u>2024 Approved Building Sustainable Cities Innovation in Environmental Design</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-filmmaking-essentials-windows-11s-leading-edits/"><u>2024 Approved Filmmaking Essentials Windows 11'S Leading Edits</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-financial-success-the-tale-of-ajey-carryminati-and-youtube-for-2024/"><u>Charting Financial Success The Tale of Ajey (CarryMinati) and YouTube for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-comfortable-cinematography-amidst-the-chill/"><u>In 2024, Crafting Comfortable Cinematography Amidst the Chill</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-end-vector-sites-ranked-1-to-10/"><u>In 2024, High-End Vector Sites Ranked 1 to 10</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-magic-5-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor Magic 5 Pro Device</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-gpt4all-the-revolutionary-tool-explained/"><u>Understanding GPT4All - The Revolutionary Tool Explained</u></a></li>
+<li><a href="https://win11.techidaily.com/unwrapping-the-solution-to-camera-error-a00f425d-on-windows-11/"><u>Unwrapping the Solution to Camera Error A00F425D on Windows 11</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-revenue-revolution-a-practical-guide-for-monetization/"><u>Youtube's Revenue Revolution A Practical Guide for Monetization</u></a></li>
 </ul></div>
 
