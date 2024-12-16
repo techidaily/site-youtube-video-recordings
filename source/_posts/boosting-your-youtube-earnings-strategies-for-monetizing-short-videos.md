@@ -1,7 +1,7 @@
 ---
 title: "\"Boosting Your YouTube Earnings  Strategies for Monetizing Short Videos\""
-date: 2024-07-19T05:36:47.544Z
-updated: 2024-07-20T05:36:47.544Z
+date: 2024-12-13T16:22:43.596Z
+updated: 2024-12-16T07:44:34.522Z
 tags:
   - ai video
   - ai youtube
@@ -22,9 +22,6 @@ YouTube Shorts have grown in popularity since the launch of the platform in 2021
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## **Part 1\. YouTube Shorts Monetization: Eligibility Criteria**
@@ -40,9 +37,6 @@ The easiest way to monetize Shorts on YouTube is to access the fan-funding progr
 * At least 3,000 public watch hours in the last 365 days, or
 * At least 3 million public Shorts views in the last 90 days
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube shorts fund](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-1.JPG)
 
 ### **Eligibility for Monetizing Shorts and Videos**
@@ -53,9 +47,6 @@ The other way you can monetize shorts is by accessing ad revenue and fan-funding
 * At least 4,000 public watch hours in the last 365 days, or
 * At least 10 million valid public Shorts views in the last 90 days
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Additional Guidelines for Creators**
 
 Once you meet the eligibility criteria, you will be required to follow certain guidelines or policies to continue earning. The additional guidelines include:
@@ -82,10 +73,11 @@ Can you monetize YouTube shorts? Yes, in more than one way. The easiest is throu
 
 In the top right of the YouTube page, click on your profile picture. From the pop-up menu that appears, select **YouTube Studio**.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-3.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 3In the left menu, Click on **Earn**
 
@@ -101,18 +93,16 @@ If you are eligible for the YPP, you will see an **Apply** Click on it to go to 
 
 Click **Start** to review and accept YouTube’s Base terms.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 6
 
 Link your existing AdSense account if you have one. If not. Click **Start** to set up a new one.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube link adsense](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-7.JPG)
 
 ##### Step 7
@@ -128,6 +118,10 @@ The money-making feature monetizes Shorts in exciting ways. To start monetizing 
 ## **Part 3\. YouTube Shorts Monetization: A Realistic Look at Earnings Potential**
 
 Monetizing YouTube Shorts has the potential to make decent earnings. Although the amount is not as much as a long-form videos, it is a great way of making money on YouTube quickly. Most YouTube Shorts creators agree that the revenue per thousand views (RPM) for short-form content is currently around $0.05 - $0.07\. This means that for a million Shorts views, you will make $50 - $70.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Factors** **That Influence Earnings**
 
@@ -165,26 +159,21 @@ Before uploading a short-form video on YouTube, you want to make sure it is of t
 
 Narration is an important aspect of YouTube Shorts. You can tell what is happening in the clip in the simplest way for your audience to understand. The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voice-over. This makes your Shorts video more entertaining and enriched with more elements.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. [**AI Portrait**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Just like other vertical social media videos, Shorts require some bit of personalization. You may want to add a bit of elements or filters. The AI Portrait feature automatically removes background with high accuracy to further enhance your videos. It also comes with over 70 portrait and sticker effects to bring out the mood you are going after. Automatically recognize the faces of your subjects and add AR stickers on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 YouTube Shorts have become immensely popular. They tend to have a higher ROI and receive more engagement compared to long-form video content. This makes vertical short-form videos more important and lucrative for content creators. When it comes to YouTube short video monetization, posting quality videos is the key ingredient. We recommend using Wondershare FIlmora to edit your videos. This will make sure they are more entertaining and keep more people engaged.
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1\. YouTube Shorts Monetization: Eligibility Criteria**
 
@@ -201,9 +190,6 @@ The easiest way to monetize Shorts on YouTube is to access the fan-funding progr
 
 ![youtube shorts fund](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Eligibility for Monetizing Shorts and Videos**
 
 The other way you can monetize shorts is by accessing ad revenue and fan-funding. With this option, you will generate income from ads that appear between Shorts in addition to interacting with viewers. This is a great option for creators who make long and short videos. The requirements for this include:
@@ -232,10 +218,11 @@ Can you monetize YouTube shorts? Yes, in more than one way. The easiest is throu
 
 ##### Step 1Sign in to YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube sign in](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-2.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 2Select YouTube Studio
 
@@ -245,9 +232,6 @@ In the top right of the YouTube page, click on your profile picture. From the po
 
 ##### Step 3In the left menu, Click on **Earn**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-4.JPG)
 
 ##### Step 4
@@ -272,9 +256,6 @@ Link your existing AdSense account if you have one. If not. Click **Start** to s
 
 Wait for YouTube to review and approve your application. The process will normally take a month. Once you are approved for the YPP, go to the Earn section in YouTube Studio. Then accept the Shorts Monetization Module. This will allow you to access ads and other money-making tools on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube monetization module](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-8.JPG)
 
 The instructions shared above are for applying for the YPP using a computer or desktop. You will still follow the same steps when using a mobile device, but you will do so using the YouTube Studio app.
@@ -303,9 +284,6 @@ The revenue-sharing program is the easiest way for creators to earn money on You
 * [James Seo](https://www.youtube.com/@JamesSeo/) (573,000 subscribers) - Earned $445.09 in ads from 10.3 million Shorts views
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) - Earned $163.73 in ads from 4.2 million Shorts views
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## **Part 4\. Editing YouTube Shorts with WonderShare to Boost Revenue Potential**
 
 The best way to reap big from Shorts YouTube monetization is to make quality videos that will go viral easily. Videos that generate more views will earn you more revenue and increase the number of subscribers within a short time. With Wondershare Filmora, making such videos is easy. The video editing software offers useful features for making your videos stand out. From jaw-dropping sports videos to cinema-like production, the choice of options is endless.
@@ -316,27 +294,26 @@ The best way to reap big from Shorts YouTube monetization is to make quality vid
 
 The choice of Filmora features you use on your editing projects will depend on your goals. Here are a few favorites to get you started:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **1\.** [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Before uploading a short-form video on YouTube, you want to make sure it is of the right resolution. The Auto Reframe feature on Filmora allows you to instantly resize your videos while keeping all the important details. You only need to record one video for all platforms, and edit to fit with auto reframe.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### **2\.** **[Text to Speech](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 Narration is an important aspect of YouTube Shorts. You can tell what is happening in the clip in the simplest way for your audience to understand. The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voice-over. This makes your Shorts video more entertaining and enriched with more elements.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### 3\. [**AI Portrait**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Just like other vertical social media videos, Shorts require some bit of personalization. You may want to add a bit of elements or filters. The AI Portrait feature automatically removes background with high accuracy to further enhance your videos. It also comes with over 70 portrait and sticker effects to bring out the mood you are going after. Automatically recognize the faces of your subjects and add AR stickers on the go.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Conclusion**
 
 YouTube Shorts have become immensely popular. They tend to have a higher ROI and receive more engagement compared to long-form video content. This makes vertical short-form videos more important and lucrative for content creators. When it comes to YouTube short video monetization, posting quality videos is the key ingredient. We recommend using Wondershare FIlmora to edit your videos. This will make sure they are more entertaining and keep more people engaged.
@@ -377,9 +354,6 @@ If you receive a strike, you will usually be able to get rid of it. This article
 
 [3. Community Guidelines Strikes](#community)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![YouTube Strike](https://images.wondershare.com/filmora/article-images/youtube-strike.jpg)
 
  There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
@@ -398,9 +372,6 @@ Deleting your video, especially if you do so without contacting the rights holde
 
 The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Wrongful Copyright Strikes
 
 YouTube’s system for detecting copyright infringement is automated. This means that you can get a copyright strike without actually breaking any rules. These strikes are generally easy to reverse.
@@ -435,17 +406,101 @@ Community Guidelines strikes expire after three months. As long as you only have
 
  Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Create Original Videos with Excellent Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Do you monetize your videos? Or, do you like to Livestream? These are two perks of having a YouTube account in good standing. You can lose these privileges, have your ability to post videos frozen, and even have your account terminated if you start accumulating strikes.
+
+If you receive a strike, you will usually be able to get rid of it. This article will show you how.
+
+**Table of Content:**
+
+[1\. Copyright Strikes](#strikes)
+
+[2. Wrongful Copyright Strikes](#wrong)
+
+[3. Community Guidelines Strikes](#community)
+
+![YouTube Strike](https://images.wondershare.com/filmora/article-images/youtube-strike.jpg)
+
+ There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
+
+## 1\. Copyright Strikes
+
+You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
+
+The most obvious way to earn a copyright strike is to repost content which you did not create, i.e. clips from a television show or a popular song. If you know that the content you got a strike for was not yours and did not fall under [‘fair use](https://tools.techidaily.com/wondershare/filmora/download/)’, then there are two ways you can resolve it.
+
+1\. You can complete YouTube’s simple course on copyright infringement ([Copyright School](https://www.youtube.com/copyright%5Fschool)) and wait three months. Copyright strikes expire in three months so long as you complete the course (they will not expire if you don’t take the course).
+
+2\. you can contact the holder of the copyright and ask them to retract their claim. You will probably have to offer to delete your video. Keep in mind that it is completely up to the rights holder whether you deleting your video is enough for them to retract their claim. They are allowed to say ‘no’.
+
+Deleting your video, especially if you do so without contacting the rights holder, will not automatically reverse your copyright strike.
+
+The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
+
+## 2\. Wrongful Copyright Strikes
+
+YouTube’s system for detecting copyright infringement is automated. This means that you can get a copyright strike without actually breaking any rules. These strikes are generally easy to reverse.
+
+For creators, the most common instance of this is being flagged for using copyrighted music. When you [download royalty-free music](https://tools.techidaily.com/wondershare/filmora/download/) – whether you download it for free or pay for it – you might not realize that that music is still copyrighted to someone else and can still be flagged by YouTube’s system.
+
+If this has happened to you, reversing it is simple.
+
+1\. Submit a counter-notification through the form provided and include either your licensing information or a link to where it can be found online.
+
+2\. After you submit your counter-notification, the copyright holder will have 10 business days to respond. Since in this scenario the rights holder will know they have allowed their content to be licensed out, there should be no conflict and your video will be reinstated.
+
+‘Fair use’ is another thing YouTube’s system has no way of detecting. ‘Fair use’ means that you are using content that you do not own, and which you do not have a license to use, but that you are using it in a way that is legally protected. Satire, criticism, education, and news reporting are areas that may be protected by fair use, although every situation is different.
+
+There is no situation in which crediting a rights holder, adding a disclaimer, or simply not monetizing your video will make it fair use.
+
+To reverse a copyright strike where you believe your video should be protected as ‘fair use’, submit a counter-notification through the web form YouTube provides. The rights holder will have 10 business days to provide YouTube with evidence that they have initiated a court action against your content. There is a chance that they will not agree with you about the ‘fair use’ status of your video. You could be in for a bit of a fight.
+
+If your account has been suspended for accumulating multiple strikes, you will no longer be able to access the online counter-notification form and will have to send a free-form counter-notification. [Information on that can be found here](https://support.google.com/youtube/answer/6005919).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## 3\. Community Guidelines Strikes
+
+Most video creators – people who post vlogs, travel videos, and various kinds of tutorials – will never receive this type of strike. Sexual content, hateful content, threats, and scams are among the things you could post which would result in a community guidelines strike. Creators, in general, are not interested in posting cruel or graphic content.
+
+The only thing some video creators might have to be careful of is **misleading metadata**. You can get community guidelines to strike for intentionally using the title, tags, and description of your video to build up an expectation of the content your video does not deliver on. For example, if you post a personal vlog and title it ‘Call of Duty Review’ to try and capitalize on people who might be searching for gaming videos then you might receive a strike.
+
+Blatantly using keywords that have nothing to do with your content is not something you can do accidentally, but it is possible to be misleading in your metadata without trying to be dishonest. YouTube is a very competitive place, and many creators are turning towards title strategies which could be considered ‘clickbait’. If you say in your title that you had a baby, but reveal in your actual video that ‘had a baby’ meant ‘wrote a new song’, will that get you a community guidelines strike? Probably not, but it can be a thin line.
+
+In general, just don’t mention anything in your title or tags which you do not talk about in your video.
+
+Community Guidelines strikes expire after three months. As long as you only have one strike, it will not affect your channel or what you can do on YouTube. If you receive a second strike within the three months of your first strike, you will lose the ability to post videos for two weeks. If you receive a third strike before either of your previous strikes has expired, your account will be terminated.
+
+ Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
+
+## Create Original Videos with Excellent Video Editor
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -489,18 +544,6 @@ Deleting your video, especially if you do so without contacting the rights holde
 
 The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Wrongful Copyright Strikes
 
 YouTube’s system for detecting copyright infringement is automated. This means that you can get a copyright strike without actually breaking any rules. These strikes are generally easy to reverse.
@@ -535,9 +578,6 @@ Community Guidelines strikes expire after three months. As long as you only have
 
  Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Create Original Videos with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -568,16 +608,14 @@ If you receive a strike, you will usually be able to get rid of it. This article
 
 [3. Community Guidelines Strikes](#community)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Strike](https://images.wondershare.com/filmora/article-images/youtube-strike.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Copyright Strikes
 
 You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
@@ -592,103 +630,6 @@ Deleting your video, especially if you do so without contacting the rights holde
 
 The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
 
-## 2\. Wrongful Copyright Strikes
-
-YouTube’s system for detecting copyright infringement is automated. This means that you can get a copyright strike without actually breaking any rules. These strikes are generally easy to reverse.
-
-For creators, the most common instance of this is being flagged for using copyrighted music. When you [download royalty-free music](https://tools.techidaily.com/wondershare/filmora/download/) – whether you download it for free or pay for it – you might not realize that that music is still copyrighted to someone else and can still be flagged by YouTube’s system.
-
-If this has happened to you, reversing it is simple.
-
-1\. Submit a counter-notification through the form provided and include either your licensing information or a link to where it can be found online.
-
-2\. After you submit your counter-notification, the copyright holder will have 10 business days to respond. Since in this scenario the rights holder will know they have allowed their content to be licensed out, there should be no conflict and your video will be reinstated.
-
-‘Fair use’ is another thing YouTube’s system has no way of detecting. ‘Fair use’ means that you are using content that you do not own, and which you do not have a license to use, but that you are using it in a way that is legally protected. Satire, criticism, education, and news reporting are areas that may be protected by fair use, although every situation is different.
-
-There is no situation in which crediting a rights holder, adding a disclaimer, or simply not monetizing your video will make it fair use.
-
-To reverse a copyright strike where you believe your video should be protected as ‘fair use’, submit a counter-notification through the web form YouTube provides. The rights holder will have 10 business days to provide YouTube with evidence that they have initiated a court action against your content. There is a chance that they will not agree with you about the ‘fair use’ status of your video. You could be in for a bit of a fight.
-
-If your account has been suspended for accumulating multiple strikes, you will no longer be able to access the online counter-notification form and will have to send a free-form counter-notification. [Information on that can be found here](https://support.google.com/youtube/answer/6005919).
-
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 3\. Community Guidelines Strikes
-
-Most video creators – people who post vlogs, travel videos, and various kinds of tutorials – will never receive this type of strike. Sexual content, hateful content, threats, and scams are among the things you could post which would result in a community guidelines strike. Creators, in general, are not interested in posting cruel or graphic content.
-
-The only thing some video creators might have to be careful of is **misleading metadata**. You can get community guidelines to strike for intentionally using the title, tags, and description of your video to build up an expectation of the content your video does not deliver on. For example, if you post a personal vlog and title it ‘Call of Duty Review’ to try and capitalize on people who might be searching for gaming videos then you might receive a strike.
-
-Blatantly using keywords that have nothing to do with your content is not something you can do accidentally, but it is possible to be misleading in your metadata without trying to be dishonest. YouTube is a very competitive place, and many creators are turning towards title strategies which could be considered ‘clickbait’. If you say in your title that you had a baby, but reveal in your actual video that ‘had a baby’ meant ‘wrote a new song’, will that get you a community guidelines strike? Probably not, but it can be a thin line.
-
-In general, just don’t mention anything in your title or tags which you do not talk about in your video.
-
-Community Guidelines strikes expire after three months. As long as you only have one strike, it will not affect your channel or what you can do on YouTube. If you receive a second strike within the three months of your first strike, you will lose the ability to post videos for two weeks. If you receive a third strike before either of your previous strikes has expired, your account will be terminated.
-
- Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
-
-## Create Original Videos with Excellent Video Editor
-
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Do you monetize your videos? Or, do you like to Livestream? These are two perks of having a YouTube account in good standing. You can lose these privileges, have your ability to post videos frozen, and even have your account terminated if you start accumulating strikes.
-
-If you receive a strike, you will usually be able to get rid of it. This article will show you how.
-
-**Table of Content:**
-
-[1\. Copyright Strikes](#strikes)
-
-[2. Wrongful Copyright Strikes](#wrong)
-
-[3. Community Guidelines Strikes](#community)
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![YouTube Strike](https://images.wondershare.com/filmora/article-images/youtube-strike.jpg)
-
- There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
-
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## 1\. Copyright Strikes
-
-You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
-
-The most obvious way to earn a copyright strike is to repost content which you did not create, i.e. clips from a television show or a popular song. If you know that the content you got a strike for was not yours and did not fall under [‘fair use](https://tools.techidaily.com/wondershare/filmora/download/)’, then there are two ways you can resolve it.
-
-1\. You can complete YouTube’s simple course on copyright infringement ([Copyright School](https://www.youtube.com/copyright%5Fschool)) and wait three months. Copyright strikes expire in three months so long as you complete the course (they will not expire if you don’t take the course).
-
-2\. you can contact the holder of the copyright and ask them to retract their claim. You will probably have to offer to delete your video. Keep in mind that it is completely up to the rights holder whether you deleting your video is enough for them to retract their claim. They are allowed to say ‘no’.
-
-Deleting your video, especially if you do so without contacting the rights holder, will not automatically reverse your copyright strike.
-
-The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Wrongful Copyright Strikes
 
 YouTube’s system for detecting copyright infringement is automated. This means that you can get a copyright strike without actually breaking any rules. These strikes are generally easy to reverse.
@@ -748,7 +689,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-2023s-finest-zero-cost-online-broadcast-software-roundup/"><u>[New] 2023'S Finest Zero-Cost Online Broadcast Software Roundup</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>[New] 2024 Approved Choosing the Best Camera for Filming Mirrorless or DSLR</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevating-your-video-content-for-a-fanbase-boom/"><u>[New] Elevating Your Video Content for a Fanbase Boom</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[New] Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-innovative-puzzles-await-in-leading-room-escape-experiences/"><u>[New] In 2024, Innovative Puzzles Await in Leading Room Escape Experiences</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-perfect-your-content-with-tiktoks-number-manipulation-tricks/"><u>[New] Perfect Your Content with TikTok's Number Manipulation Tricks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>[Updated] Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-image-banking-securing-premium-stock-graphics/"><u>[Updated] Image Banking Securing Premium Stock Graphics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-ensuring-copyright-compliance-in-youtube-to-mp4/"><u>2024 Approved Ensuring Copyright Compliance in Youtube-to-MP4</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-from-ideas-to-influence-an-insider-look-at-strategic-instagram-videos/"><u>2024 Approved From Ideas to Influence An Insider Look at Strategic Instagram Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/create-with-colors-youtube-banner-creation-guide-for-2024/"><u>Create with Colors YouTube Banner Creation Guide for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/customizing-youtube-viewing-policies-for-your-content-for-2024/"><u>Customizing YouTube Viewing Policies for Your Content for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-unlock-your-iphone-8-plus-learn-all-4-methods-by-drfone-ios/"><u>How Do You Unlock your iPhone 8 Plus? Learn All 4 Methods</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>In 2024, Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/max-power-reimagined-selecting-mac-and-wins-best-srt-converters-for-2024/"><u>Max Power Reimagined Selecting Mac & Win's Best SRT Converters for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/natural-vs-artificial-balancing-your-sets-illumination/"><u>Natural Vs. Artificial Balancing Your Set's Illumination</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/setting-your-pcs-clock-and-date-in-windows-control-panel-a-comprehensive-guide-yl-computing-solutions/"><u>Setting Your PC's Clock & Date in Windows Control Panel: A Comprehensive Guide - YL Computing Solutions</u></a></li>
+</ul></div>
 
