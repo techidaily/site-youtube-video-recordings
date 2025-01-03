@@ -1,7 +1,7 @@
 ---
 title: "Top 10 Greatest MLB Yankees Matchups in 201([[18]: Full HD (1080P) Game Downloads - Watch the Best of the Bronx!"
-date: 2024-12-24T04:34:31.589Z
-updated: 2024-12-25T02:38:43.992Z
+date: 2024-12-31T16:40:34.582Z
+updated: 2025-01-03T18:02:19.363Z
 tags:
   - youtube-download
 categories:
@@ -41,7 +41,7 @@ To make sure you don't miss a single Yankees games in the following season, you 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
@@ -73,7 +73,7 @@ Matchups: Yankees, W, 2-1
 [![2018 MLB Groups Logos](https://www.5kplayer.com/youtube-download/img/mlb-group-logos.jpg)](https://tools.techidaily.com/5kplayer/products/) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **NO. 7 Yankees Game vs Detroit Tigers 2018 Spring Training 23/02**  
@@ -104,7 +104,7 @@ Matchups: New York Yankees L: 4- 5
  It took only 2 years for Luis Severino to become one of the best New York Yankees best pitchers since he joined the team in 2015\. Yankees is the first and only team for Severino since his debut, unlike Chapman, he preferred the right hand for both bats and through in New York Yankees games. 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Download Yankees Games HD 1080p with 5KPlayer?
@@ -122,7 +122,7 @@ Matchups: New York Yankees L: 4- 5
 ![Download Yankees Games 1080p](https://www.5kplayer.com/youtube-download/img/yankees-game-download.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Playlist of Yankees Games in 5KPlayer?
@@ -136,7 +136,7 @@ Matchups: New York Yankees L: 4- 5
 ![Create Yankees Games Playlist](https://www.5kplayer.com/youtube-download/img/mlb-playlist.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The free 5KPlayer is a one-stop solution for users to not only download Yankees games free, also it helps download MLB games highlights, download best walk up songs for baseball, and download full match videos from sports streaming sites. If you'd like to download MLB Yankees games videos for offline watching, don't hesitate to download 5KPlayer for Windows and Mac for free now. 
@@ -158,22 +158,24 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-cut-costs-boost-creativity-learn-the-secrets-of-green-screen-artistry-from-4-leading-educators/"><u>[New] Cut Costs, Boost Creativity Learn the Secrets of Green Screen Artistry From 4 Leading Educators</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-diy-tips-for-affordable-youtube-introend-videos/"><u>[New] DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-a-tactical-approach-to-youtube-video-enhancement-with-imovie/"><u>[Updated] A Tactical Approach to YouTube Video Enhancement with iMovie</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-bringing-your-video-games-to-life-customizable-channel-headers/"><u>[Updated] Bringing Your Video Games to Life Customizable Channel Headers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-and-practicing-with-creative-commons-licenses/"><u>[Updated] Decoding and Practicing with Creative Commons Licenses</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-structured-writing-tactics-for-boosting-facebook-ad-performance-for-2024/"><u>[Updated] Structured Writing Tactics for Boosting Facebook Ad Performance for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-deciphering-the-divergent-aspects-of-youtubes-and-dailymentions/"><u>2024 Approved Deciphering the Divergent Aspects of YouTubes & DailyMentions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/android-and-ios-best-ps2-emulator-comparisons-for-2024/"><u>Android & iOS Best PS2 Emulator Comparisons for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/canon-pro-100-driver-for-windows-effortless-installation-guide-user-friendly/"><u>Canon PRO 100 Driver for Windows: Effortless Installation Guide [User-Friendly]</u></a></li>
-<li><a href="https://win-answers.techidaily.com/code-combatants-unite-defeating-dev-error-n-2024-mw-black-ops-cold-war-warzone-insights/"><u>Code Combatants Unite! Defeating Dev Error N 2024: MW (Black Ops Cold War) - Warzone Insights</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-closing-in-on-the-essence-of-cinematic-action/"><u>In 2024, Closing in on the Essence of Cinematic Action</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-comedic-craftsmanship-the-best-short-video-ideas-to-entertain-viewers/"><u>In 2024, Comedic Craftsmanship The Best Short Video Ideas to Entertain Viewers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-easy-steps-to-youtubing-prosperity-channel-size-not-a-barrier/"><u>In 2024, Easy Steps to Youtubing Prosperity Channel Size Not a Barrier</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-motorola-moto-g23-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Motorola Moto G23 Screen | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/online-vrijetijdige-m4a-naar-eenvoudig-3gp-omzetten-met-movavi-bevinden-jullie-het-toppakket/"><u>Online Vrijetijdige M4A Naar Eenvoudig 3GP Omzetten Met Movavi: Bevinden Jullie Het Toppakket?</u></a></li>
-<li><a href="https://win-bits.techidaily.com/une-explication-simple-comment-fonctionnent-les-logiciels-de-recuperation-de-donnees/"><u>Une Explication Simple : Comment Fonctionnent Les Logiciels De Récupération De Données?</u></a></li>
-<li><a href="https://common-error.techidaily.com/windows-10-reducing-system-overheads/"><u>Windows 10: Reducing System Overheads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-clearer-streams-youtube-video-borderless-adjustment/"><u>[New] Clearer Streams YouTube Video Borderless Adjustment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/xamining-the-economic-impact-of-mr-beast/"><u>[New] Examining the Economic Impact of Mr. Beast</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-excellence-in-text-editing-with-ae-presets/"><u>[New] Excellence in Text Editing with AE Presets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-smooth-insertion-of-videos-into-your-custom-youtube-shelves/"><u>[New] In 2024, Smooth Insertion of Videos Into Your Custom YouTube Shelves</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-best-yoga-series-online-stay-active-and-healthy/"><u>[Updated] Best Yoga Series Online - Stay Active & Healthy</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-ace-the-art-of-youtube-reactions-3-innovative-approaches-unveiled/"><u>2024 Approved Ace the Art of YouTube Reactions - 3 Innovative Approaches Unveiled</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-direction-and-intensity-in-video-lighting/"><u>2024 Approved Direction and Intensity in Video Lighting</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-diy-tips-for-affordable-youtube-introend-videos/"><u>2024 Approved DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-downloading-videos-directly-to-iphoneipad-youtubes-quick-guide/"><u>2024 Approved Downloading Videos Directly to iPhone/iPad - YouTube's Quick Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/asmr-viewers-essentials-explained/"><u>ASMR Viewers' Essentials Explained</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/collect-priceless-imagery-from-trusted-4-youtube-directories/"><u>Collect Priceless Imagery From Trusted 4 YouTube Directories</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-well-being-and-flexibility-with-these-outstanding-channels-for-2024/"><u>Enhance Well-Being & Flexibility with These Outstanding Channels for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improved-performance-of-dragon-age-origins-after-fixing-compatibility-with-windows-11/"><u>Improved Performance of Dragon Age: Origins After Fixing Compatibility with Windows 11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-tecno-camon-20-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Tecno Camon 20</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-infinix-hot-40-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Hot 40 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-xs-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone XS with iTunes | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-add-divine-chant-to-smartphone-notifications/"><u>In 2024, How to Add Divine Chant to Smartphone Notifications</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-future-speaks-inspirational-metaverse-quotes-with-arvr/"><u>The Future Speaks Inspirational Metaverse Quotes with AR/VR</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleash-the-power-of-split-window-on-netflix-platform-for-2024/"><u>Unleash the Power of Split Window on Netflix Platform for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting News End Credits  A Step-by-Step Guide\""
-date: 2024-07-19T05:22:45.030Z
-updated: 2024-07-20T05:22:45.030Z
+date: 2024-12-31T17:53:29.893Z
+updated: 2025-01-03T16:37:43.111Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ A good outro will typically include a call to action, such as subscribing to a c
 
 Furthermore, it should include a brief summary of the video, and what viewers can expect for the things to come. You can find outros templates online or [make your own outstanding YouTube outros](https://tools.techidaily.com/wondershare/filmora/download/) in just a few clicks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2\. Recommendation: Where Can You Find News Style Outro?
 
 Now that you've understood what a good YouTube outro is, you might wonder where you can find News Style outros for your videos/presentations to add a bit of flair.
@@ -60,6 +57,10 @@ An editable **news outro template** can provide a quick and easy way to create o
 Filmstock is a platform offering free and paid editable templates for content creators. With dozens of editable templates to choose from on [Filmstock](https://filmstock.wondershare.com/p/news-style-pack.html?af=6), you can find the perfect news style outro for your videos in just a few clicks. First, however, you need to install [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) on your PC to use the platform.
 
 ![filmstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/filmstock-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Filmora is a popular video editor with a built-in filmstock library offering hundreds of non-copyright editable templates for every occasion. With the software, you can find and add your [news style outros](https://filmstock.wondershare.com/p/news-report-pack.html) to your videos with just a few clicks. The only disadvantage is that it isn't completely free. The paid version offers two options: A standard plan that costs **$9.99** per month and a Premium plan that will cost you **$49.99** per month.
 
@@ -97,9 +98,6 @@ Placeit is easy to use and offers a variety of templates for different purposes,
 
 However, the design rendering process of the editor is slow, there is no AI tool, and you even cannot import fonts that are not available on the platform.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### Non-Editable News Outro Template Websites
 
 Some platforms offer non-editable high-resolution news outros that you can integrate into your videos using software programs like [Filmora (guidance in Part 3),](#%5FHow%5FTo%5FEdit) After Effects, etc.
@@ -108,9 +106,6 @@ Some platforms offer non-editable high-resolution news outros that you can integ
 
 Searching for high-quality templates for your next project?[Storyblock](https://www.storyblocks.com/video/search/news+outros) is a website that comes with royalty-free, non-customizable news style outros.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![storyblock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/storyblock-news-outros-templates.jpg)
 
 You can use these templates to create high-quality news intros and outros for your podcast or videos. The platform offers two pricing plans for individual content creators, starting at **$15** per month. While businesses can customize their plans as per their requirements.
@@ -121,9 +116,6 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 
 [Videvo](https://www.videvo.net/search/news%20outros/) is a great resource for anyone looking for royalty-free video templates. They have over 300,000 free and premium videos, which you can download in clips or full with 4K resolution. However, their stock library is not much vast. The platform comes with a two-tier subscription plan starting from **$14.99/month** or **$144/year.**
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
 
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
@@ -132,9 +124,6 @@ You can find templates for both commercial and non-commercial use, so whatever y
 
 [Videezy](https://www.videezy.com/free-video/news-outros) is a royalty-free video site that offers free and premium video templates. The website has a variety of options to choose from, including news style outros, all of which are geared towards creating engaging content.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![videezy news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videezy-news-outros-templates.jpg)
 
 The templates are all ready-made and royalty-free. You can download them for use in your own projects and attach them to your video using any video editing app/software.
@@ -147,6 +136,10 @@ The pricing of the platform starts at **$19/file**, which might be expensive for
 
 ![shutterstock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/shutterstock-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On Shutterstock, the free trial only offers 10 images, and you will be charged **$0.22-$14.50/image** once the trial limit is over. On the other hand, the Extended license will cost you **$67.96-$99.50.** The downside is that you have to purchase the content pack separately.
 
 ##### iStock
@@ -157,9 +150,6 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. A Bonus Tip: How To Edit Your News Outro For Your YouTube Video?
 
 After knowing the websites providing News Style Outro, we hope you can find an ideal outro successfully. However, how to use the material you have found, integrate it into your YouTube video, and improve the quality of it?
@@ -168,18 +158,12 @@ Like mentioned before, we highly recommend Filmora to fulfill all your editing n
 
 Step1 Download **Filmora** software from the official website and install it on your PC. Launch the software and click **"New Project."**
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![importing file to filmora](https://images.wondershare.com/filmora/article-images/2022/11/importing-file-to-filmora.jpg)
 
 Step2 Drag and drop your media file or import it using the **"Click Here to Import Media File"** option. Now, drag your file and drop it in the **Timeline.**
 
 Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** option. Search for **"News Outros,"** select the one you like, and add it to the **Timeline.**
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
@@ -199,6 +183,10 @@ Hopefully, you find this guide informative and can now create strong news style 
 [Canva](https://www.canva.com/search/templates?q=News%20Style%20Outros) is a user-friendly graphic design free and paid tool that is quickly becoming a popular choice for businesses of all sizes. Canva offers a range of templates for creating professional-looking designs.
 
 ![canva news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/canva-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With a wide range of templates to choose from, you can easily find one that fits your needs and style. Best of all, you can create your outro template in minutes without hiring a designer or spending hours learning complex design software.
 
@@ -232,9 +220,6 @@ Some platforms offer non-editable high-resolution news outros that you can integ
 
 Searching for high-quality templates for your next project?[Storyblock](https://www.storyblocks.com/video/search/news+outros) is a website that comes with royalty-free, non-customizable news style outros.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![storyblock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/storyblock-news-outros-templates.jpg)
 
 You can use these templates to create high-quality news intros and outros for your podcast or videos. The platform offers two pricing plans for individual content creators, starting at **$15** per month. While businesses can customize their plans as per their requirements.
@@ -245,10 +230,11 @@ Limitations of the Storyblock are that the footage quality is very poor in the f
 
 [Videvo](https://www.videvo.net/search/news%20outros/) is a great resource for anyone looking for royalty-free video templates. They have over 300,000 free and premium videos, which you can download in clips or full with 4K resolution. However, their stock library is not much vast. The platform comes with a two-tier subscription plan starting from **$14.99/month** or **$144/year.**
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![videvo news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/videvo-news-outros-templates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can find templates for both commercial and non-commercial use, so whatever your needs are, Videvo is likely to have a template that will work for you, i.e., news style. Some features of the platform include high-resolution download options, numerous music, sound effects, images and videos library, and a video compression option.
 
@@ -276,11 +262,12 @@ On Shutterstock, the free trial only offers 10 images, and you will be charged *
 
 ![istock news outros templates](https://images.wondershare.com/filmora/article-images/2022/11/istock-news-outros-templates.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The free trial on the platform is limited to 10 images, and after that, you will be charged **$0.22-$9.90/image**, while the Extended license will cost you **$144-$216.** The support system on the platform is slow and doesn't respond on time.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. A Bonus Tip: How To Edit Your News Outro For Your YouTube Video?
 
 After knowing the websites providing News Style Outro, we hope you can find an ideal outro successfully. However, how to use the material you have found, integrate it into your YouTube video, and improve the quality of it?
@@ -295,9 +282,6 @@ Step2 Drag and drop your media file or import it using the **"Click Here to Impo
 
 Step3 Adjust your clip in the **Timeline** and click the **"Stock Media"** option. Search for **"News Outros,"** select the one you like, and add it to the **Timeline.**
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![searching for news outro templates](https://images.wondershare.com/filmora/article-images/2022/11/searching-for-news-outro-templates.jpg)
 
 Step4 Next, adjust the template on your video, and once you are satisfied, click the "**Export"** option. Finally, do the necessary settings and click **"Export"** again or share your video directly to YouTube.
@@ -351,8 +335,9 @@ In this article, I’m going to help you figure that out.
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -369,9 +354,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -417,18 +399,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -438,8 +418,9 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 But do you even need a fast lens?
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -454,9 +435,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -497,9 +475,6 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -547,8 +522,9 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -564,14 +540,8 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -638,9 +608,6 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -657,14 +624,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -687,9 +646,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -713,21 +669,12 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -736,9 +683,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -765,9 +709,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -834,6 +775,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -842,9 +787,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -921,7 +863,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-best-8-platforms-for-professional-linux-editing/"><u>[New] Best 8 Platforms for Professional Linux Editing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-content-creators-earnings-timeline-on-youtube/"><u>[New] Content Creators’ Earnings Timeline on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-excellent-quality-hd-screen-recorders-for-2024/"><u>[New] Excellent Quality HD Screen Recorders for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-alternative-cinema-choices-for-every-fan/"><u>[Updated] Alternative Cinema Choices for Every Fan</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-complete-walkthrough-to-grab-youtube-playlists/"><u>2024 Approved Complete Walkthrough to Grab YouTube Playlists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/direct-conversion-convert-and-upload-mp3-songs-on-youtube/"><u>Direct Conversion Convert & Upload MP3 Songs on YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/dynamic-videos-that-keep-your-audience-spinning-around/"><u>Dynamic Videos That Keep Your Audience Spinning Around</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/exploring-available-configurations-an-in-depth-guide-to-control-panel-settings-by-yl-computing/"><u>Exploring Available Configurations: An In-Depth Guide to Control Panel Settings by YL Computing</u></a></li>
+<li><a href="https://win-updates.techidaily.com/exploring-everyday-applications-how-do-people-utilize-cryptocurrency-insights-by-yl-computing/"><u>Exploring Everyday Applications: How Do People Utilize Cryptocurrency? - Insights by YL Computing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-peek-into-the-heart-of-youtubes-video-operations/"><u>In 2024, A Peek Into the Heart of YouTube's Video Operations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-from-social-networks-to-personal-messages-twitchs-journey-through-whatsapp/"><u>In 2024, From Social Networks to Personal Messages Twitch's Journey Through WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-5-free-facebook-update-scheduling-techniques/"><u>Strategic Planning: 5 Free Facebook Update Scheduling Techniques</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-film-artist-fusion-of-footage-and-tunes/"><u>Top Film Artist Fusion of Footage & Tunes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/transform-your-snaps-the-complete-guide-to-snapchat-editing-for-2024/"><u>Transform Your Snaps The Complete Guide to Snapchat Editing for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-effortless-avi-file-trimming-learn-the-best-techniques-and-tools-2023-update/"><u>Updated In 2024, Effortless AVI File Trimming Learn the Best Techniques and Tools (2023 Update)</u></a></li>
+</ul></div>
 
