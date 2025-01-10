@@ -1,7 +1,7 @@
 ---
 title: "Evaluating the Apple iPhone SE (2020): An Affordable Alternative"
-date: 2024-12-03T08:31:00.965Z
-updated: 2024-12-10T01:29:35.322Z
+date: 2025-01-05T18:29:10.642Z
+updated: 2025-01-09T18:28:33.464Z
 categories:
   - BestProducts
 description: "This Article Describes Evaluating the Apple iPhone SE (2020): An Affordable Alternative"
@@ -37,10 +37,6 @@ Lifewire / Jordan Provost
 [View On Amazon](https://www.amazon.com/dp/B0883DGM5X/?tag=lifewire-onsite-prod-20&ascsubtag=4686097%7Cn75ebf34f23a54c469b9761158943aeec15%7CB0883DGM5X) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnokia-7-1-with-64gb-memory-cell-phone-unlocked-blue%2F6291898.p%3FskuId%3D6291898)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Nokia 7.1
 
@@ -78,6 +74,10 @@ Lifewire / Jordan Provost
 
 [Phone Reviews & Top Picks](https://www.lifewire.com/best-android-smartphones-577403)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A mid-range phone with high-end sensibilities**
 
  The Nokia 7.1 is a mid-range handset that could pass for a higher-end device if you squint. It features the same general design—a glass front and back separated by an aluminum body—that we’ve seen so many times before, but it has a few design tweaks that help it stand out. The matte aluminum body features chamfered edges that add a bit of visual flair, especially when they catch the light.
@@ -85,7 +85,7 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/1cMJEwjyd7B1WxBO7uBZOm0C2So=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_3-483bfb6a868848adaaf021846b9fb559.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -97,7 +97,7 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/NRHkz82CaIGpj9N3UQuqHzPSBas=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_4-2c6261afee9644848e68fbf1e73c3009.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -108,11 +108,11 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/LkCNBmkQjVwHH-SoT7i4QFOrSsk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_1-83b2f49a5f2c4443b2b7f30b502fd094.jpg)
 
- Lifewire / Jordan Provost
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jordan Provost
 
 ## **Performance: Great for a mid-range handset**
 
@@ -129,10 +129,6 @@ Lifewire / Jordan Provost
  In real-world conditions, the Nokia 7.1 is snappy enough that it won’t trip you up during regular daily tasks like web browsing, email, and streaming video. It’s also powerful enough to run some games, but you’ll have to stay away from the highest graphics settings.
 
  It’s important to note that when the Nokia 7.1 launched, it was plagued with complaints about slow operation, lag, and an unresponsive touchscreen. These appear to have been software-related issues that have since been fixed, as we experienced no such problems in our hands-on testing.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Data connection is slow**
 
@@ -151,7 +147,7 @@ Lifewire / Jordan Provost
 ![Nokia 7.1](https://www.lifewire.com/thmb/Z-CxaDLaus-Tzpvo30-F2j8i94o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_6-9eeeb5e2962c47e29b8a5335d69cc004.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
@@ -176,6 +172,10 @@ Lifewire / Jordan Provost
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/VI32Dr6kjQKlJti1W9Egtq7kb10=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_2-b7780c375da34f349ba0c037120ee3ff.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jordan Provost
 
 ![Nokia 7.1 rose photo](https://www.lifewire.com/thmb/4d-M-nqoc9xpcT44HdNVobPQU1U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gs9-photo9-7b35a0c91bd544ae89dab81238efdda2.jpg)
@@ -183,10 +183,6 @@ Lifewire / Jordan Provost
 Lifewire
 
 ![Nokia 7.1 cat photo](https://www.lifewire.com/thmb/hepqa5K_YkbwuC1_7lRbkLgxJVc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/cat-photo7-e1f061ad95324519a4cd85a39faeb1a7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire
 
@@ -196,6 +192,10 @@ Lifewire
 
  The hardware just isn’t there to challenge the best phone cameras found in flagship devices from the likes of Samsung, Apple, or Google, but the Nokia 7.1 doesn’t come with a flagship price tag either.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery: Enough to last through the work day**
 
  In our testing, we found the battery life to be somewhat lacking. We subjected the Nokia 7.1 to PCMark’s Work 2.0 battery test, which is designed to simulate constant web browsing and other tasks, and the battery petered out after about seven hours.
@@ -203,6 +203,10 @@ Lifewire
  In regular use, we found that the battery was able to stand up to a full day of phone calls, emails, and some light web browsing, video streaming, and playing music.
 
 ![Nokia 7.1](https://www.lifewire.com/thmb/cD8xK_vs2o2eQxdv-D11RS_1jhE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4045957-4_5-e19cf3cd1c1f41f69279dbbcf965caf3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Provost
 
@@ -217,10 +221,6 @@ Lifewire
  Since this handset is part of the Android One program, you can expect updates for at least 24 months from the date of release. Android One phones are also supposed to receive new operating system updates and access to new features before other phones.
 
  With Google ending their own mid-range line of phones with the Nexus 5X and 6P, Android One devices like the Nokia 7.1 are now the best way to keep up with the newest Android features without paying a premium.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Solidly mid-range**
 
@@ -243,7 +243,7 @@ Lifewire
  The Nokia 7.1 isn’t a high-end device, but it brings a lot of premium quality and features to the table. If you’re in the market for a solid mid-range handset, you won’t do much better than this.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -287,24 +287,15 @@ Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-break-through-bot-barriers-rising-from-the-crowd/"><u>[Updated] Break Through Bot Barriers Rising From the Crowd</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-comprehensive-guide-to-advanced-fcp-features-for-2024/"><u>[Updated] Comprehensive Guide to Advanced FCP Features for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-finest-free-and-paid-windows-drawing-software-ranked/"><u>[Updated] In 2024, Finest Free & Paid Windows Drawing Software Ranked</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-edits-the-beginners-insider-look-at-editing-techniques/"><u>2024 Approved Elevate Your Edits The Beginner's Insider Look at Editing Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-the-ultimate-list-of-bestiary-8-ios-drawing-software-winners/"><u>2024 Approved The Ultimate List of Bestiary 8 iOS Drawing Software Winners</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1725285631976-mp4/"><u>動画MP4への最新変換術：ダウンロード・書き込み・問い合せ解決方法完全手引き</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/an-exclusive-list-of-heartwarming-weddings-youtube-and-vimeo-edition-for-2024/"><u>An Exclusive List of Heartwarming Weddings - Youtube & Vimeo Edition for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/daytime-delights-the-most-inspiring-anime-streaming-channels/"><u>Daytime Delights The Most Inspiring Anime Streaming Channels</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/digital-dynamo-dames-the-next-generation-of-youtubes-powerhouses/"><u>Digital Dynamo Dames The Next Generation of YouTube's Powerhouses</u></a></li>
-<li><a href="https://win-dash.techidaily.com/hassle-free-windows-update-setup-and-management-tips/"><u>Hassle-Free Windows Update Setup and Management Tips</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-cascade-of-curiosity-concurrent-video-watching-made-easy/"><u>In 2024, A Cascade of Curiosity Concurrent Video Watching Made Easy</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-efface-thin-borders-for-a-seamless-youtube-experience/"><u>In 2024, Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/insight-into-the-t6-dslr-budget-friendly-model/"><u>Insight Into the T6 DSLR: Budget-Friendly Model</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/precision-and-artistry-the-ultimate-crossfade-playbook-with-audacity/"><u>Precision and Artistry The Ultimate Crossfade Playbook with Audacity</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/printer-connected-problems-resolved-quickly/"><u>Printer Connected, Problems Resolved Quickly</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/radiant-faces-mastering-makeup-and-lighting-together/"><u>Radiant Faces Mastering Makeup and Lighting Together</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/scripting-striking-film-epilogues/"><u>Scripting Striking Film Epilogues</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/studio-strategies-for-video-impact-and-growth/"><u>Studio Strategies for Video Impact and Growth</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-best-power-packs-for-black-gopro-hero5-cameras-authenticity-confirmed/"><u>[New] 2024 Approved Best Power Packs for Black GoPro Hero5 Cameras – Authenticity Confirmed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-discerning-divergence-360-video-vs-virtual-reality/"><u>[New] 2024 Approved Discerning Divergence 360° Video Vs. Virtual Reality</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-chart-topping-video-content-on-youtube-for-2024/"><u>[New] Chart-Topping Video Content on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-clipmaster-software/"><u>[New] ClipMaster Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-emotionally-enhanced-youtube-commentary/"><u>[New] Emotionally-Enhanced YouTube Commentary</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10-best-vr-videos-on-youtube-to-have-immersive-experience/"><u>2024 Approved 10 Best VR Videos on YouTube to Have Immersive Experience</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-wallet-effective-side-hustles-using-chatgpt-diy-pc-building-secrets-and-retro-handheld-gaming-collectibles/"><u>Boost Your Wallet: Effective Side Hustles Using ChatGPT, DIY PC Building Secrets & Retro Handheld Gaming Collectibles</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/effective-solutions-for-getting-your-unresponsive-bose-speakers-back-in-action/"><u>Effective Solutions for Getting Your Unresponsive Bose Speakers Back in Action</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/livestream-elite-top-equipment-for-youtube-content-creators/"><u>Livestream Elite Top Equipment For YouTube Content Creators</u></a></li>
 </ul></div>
 

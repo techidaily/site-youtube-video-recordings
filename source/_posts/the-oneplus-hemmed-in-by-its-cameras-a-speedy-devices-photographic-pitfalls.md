@@ -1,7 +1,7 @@
 ---
 title: The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
-date: 2024-12-06T09:53:34.542Z
-updated: 2024-12-10T02:11:57.129Z
+date: 2025-01-05T04:57:44.470Z
+updated: 2025-01-10T04:27:58.238Z
 categories:
   - BestProducts
 description: This Article Describes The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 4.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/uNOEoXtNzm8yuWudHDVzDNDutY8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -43,16 +43,12 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 4.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -86,6 +82,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Vallhalla 2](https://www.lifewire.com/thmb/pWujlWPf0ylYYpeoTEbp7X8U0yM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-4-07677871281c40a384f2df55f83e86a4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Perhaps more interesting than the main plot are the side quests sprinkled liberally about the world. These are typically informal, chance encounters and, though they do grant experience towards skill points, their primary point is to tell an intriguing story, which they accomplish with aplomb. The characters are almost invariably well-acted, and while short, these quests are remarkably well written and worth seeking out.
@@ -95,10 +95,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  In total, the game’s various open world areas cover a staggering 140 square kilometers, nearly ten times the size of the prologue area. By this rough estimate, there should be at least 120 hours worth of content in this game, including a roughly 60-hour main campaign. Missions, mysteries, and treasure in abundance ensure that the wilderness never grows stale.
 
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -118,6 +114,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  Combat is fast, brutal, and varied with deep customization and different potential approaches. There are many ways to approach each situation, and none of them are wrong. You can sneak in and pick the enemy off one by one, dumping their carcasses in bushes so as not to tip off their friends, or you can nail them from a distance with arrows. Alternatively, you can stride in, axes twirling, and cut a bloody swath through your foes.
@@ -132,19 +132,15 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC ship](https://www.lifewire.com/thmb/n9S5L4JClTiqP1vYa_7cTGw6o0c=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-7-d89d4a9941b8488ea6ef1aeba6486895.jpg)
 
- Lifewire / Andy Zahn
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Andy Zahn
 
 ## **Difficulty and Content Settings: Lots to customize**
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Minigames: Enjoyable diversions**
 
@@ -153,10 +149,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Orlog is an interesting dice game that I would honestly like to own in real life, and the drinking minigame is a highly enjoyable reflex-based challenge. A nice touch is that the results of imbibing huge amounts of mead persist for a period of time after the minigame is complete. After all, are you really a Viking warrior if you’re not completely drunk all the time?
 
 ![AC tattoos](https://www.lifewire.com/thmb/trRirIDsjFej03o-_HDCFsnnrzs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-6-5449cde060b441a499a5189fda9a7a0a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -174,6 +166,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
 ## **Setup Process and Performance: A rough start**
@@ -185,6 +181,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  When I first jumped into the game after the intro cutscene, I was greeted with the most horrendous graphics glitching I’ve ever experienced. Thinking this was because I had foolishly maxed the settings I restarted after tweaking down graphics, but upon restart, the glitches were appearing in the menu itself. I exited the game and the glitches persisted for about 10 seconds after Valhalla had closed. The built-in benchmarking tool in the game refused to run entirely. In the end, I decided not to push my luck with the laptop.
 
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -200,10 +200,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
  It’s interesting that Ubisoft decided to launch two third-person action games set in England within a span of a few weeks. Where Valhalla is set in the Middle Ages,[Watch Dogs: Legion](https://www.lifewire.com/watch-dogs-legion-review-a-new-setting-for-the-series-5085469) is set in a near-future sci-fi dystopia, though in both games you are battling against tyrannical rulers in England. Choose Watch Dogs if you want sci-fi focused on hackers and non-violent solutions, and Valhalla if you love bloody medieval fighting and exploration.
@@ -213,6 +209,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Final Verdict: Epic stories and exciting combat in a sprawling open world.
 
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -237,20 +237,18 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-deconstructing-the-legal-framework-of-youtube-and-cc-licenses/"><u>[New] Deconstructing the Legal Framework of Youtube & CC Licenses</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-echoes-of-entertainment-discovering-6-free-android-apps-for-your-youtube-playlists/"><u>[New] Echoes of Entertainment Discovering 6 Free Android Apps for Your YouTube Playlists</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-instantaneous-subscriber-tracking/"><u>[New] Instantaneous Subscriber Tracking</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-master-anonymous-instagram-story-browsing-on-pc-tablet-and-phones-for-2024/"><u>[Updated] Master Anonymous Instagram Story Browsing on PC, Tablet & Phones for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-time-travelers-guide-mastering-video-speed-adjustment/"><u>2024 Approved Time Traveler's Guide Mastering Video Speed Adjustment</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/assessing-free2x-recording-software-quality/"><u>Assessing Free2X Recording Software Quality</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/cinematic-dialogue-assembler/"><u>Cinematic Dialogue Assembler</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/from-startup-to-success-skyrocketing-youtube-subs/"><u>From Startup to Success Skyrocketing Youtube Subs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-blur-pictures-on-iphone-for-free-for-2024/"><u>How to Blur Pictures on iPhone for Free for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/musical-mentorship-series-top-15-youtube-wisdom-from-pros/"><u>Musical Mentorship Series - Top 15 YouTube Wisdom From Pros</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-troubleshooting-guide-for-minecraft-error-code-exit-0-explained/"><u>Resolved: Troubleshooting Guide for Minecraft Error - Code 'Exit 0' Explained</u></a></li>
-<li><a href="https://discover-help.techidaily.com/restore-lost-videos-from-your-dvrs-internal-storage-with-these-simple-steps/"><u>Restore Lost Videos From Your DVR's Internal Storage with These Simple Steps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-game-channel-branding-with-premade-banners/"><u>The Art of Game Channel Branding with Premade Banners</u></a></li>
-<li><a href="https://techidaily.com/your-complete-guide-to-reset-lava-blaze-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-a-deep-dive-into-apples-m1-processor-power/"><u>[Updated] A Deep Dive Into Apple's M1 Processor Power</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-addressing-iphone-lens-failures-a-step-by-step-approach/"><u>[Updated] Addressing iPhone Lens Failures A Step-by-Step Approach</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-brand-differentiation-with-powerful-youtube-names/"><u>[Updated] Brand Differentiation with Powerful YouTube Names</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-m54-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy M54 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/craft-visionary-videos-from-start-to-finish-using-youtube-studio-editor-for-2024/"><u>Craft Visionary Videos From Start to Finish Using YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevating-content-clarity-with-video-dates-and-times/"><u>Elevating Content Clarity with Video Dates and Times</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-content-reach-keeping-creative-commons-engagement-high/"><u>Enhancing Content Reach Keeping Creative Commons Engagement High</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-tips-to-repair-nonfunctional-dolby-atmos-audio-features-in-windows-devices/"><u>Expert Tips to Repair Nonfunctional Dolby Atmos Audio Features in Windows Devices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/logitech-k350-keyboard-and-mouse-drivers-fast-track-to-download-and-installation/"><u>Logitech K350 Keyboard & Mouse Drivers - Fast Track to Download and Installation</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/loves-cinematic-journey-youtube-and-vimeos-top-premium-marriage-videos/"><u>Love's Cinematic Journey YouTube & Vimeo's Top Premium Marriage Videos</u></a></li>
+<li><a href="https://games-able.techidaily.com/rating-roulette-why-game-judgments-matter-less/"><u>Rating Roulette: Why Game Judgments Matter Less</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlocking-the-past-essential-history-youtubes-for-educational-journey/"><u>Unlocking the Past Essential History YouTubes For Educational Journey</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-money-matters-how-to-understand-your-partner-payouts/"><u>YouTube Money Matters How to Understand Your Partner Payouts</u></a></li>
 </ul></div>
 

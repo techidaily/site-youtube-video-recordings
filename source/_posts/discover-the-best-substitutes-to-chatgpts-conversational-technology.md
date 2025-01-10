@@ -1,7 +1,7 @@
 ---
 title: Discover the Best Substitutes to ChatGPT's Conversational Technology
-date: 2024-12-05T08:20:34.684Z
-updated: 2024-12-10T09:26:10.544Z
+date: 2025-01-03T03:18:17.437Z
+updated: 2025-01-10T11:37:33.412Z
 tags:
   - chatgpt
   - open-ai
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 ---
 
 ## ChatGPT Evolved: Discover the Features That Matter Most
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -35,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 
  OpenAI's early May 2024 ChatGPT update was enormous, bringing heaps of new features to the world's leading generative AI chatbot. Most of the improvements center around enhancing user interaction, new functionalities, and improving overall performance, and there are heaps of reasons why you should give them a try.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Image Input and Output Capabilities
 
  ChatGPT is now capable of taking images as input and generating images as output! The new image input capability allows users to upload images directly into their chat interactions with ChatGPT. This feature expands the ways users can seek help and share information, making it possible to discuss visual content seamlessly.
@@ -48,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 ![Asking ChatGPT to identify and make recipes for ingredients based on an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/asking-chatgpt-for-recipes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It gave me some pretty accurate results in identifying items in the fridge and giving recipes I could make using the ingredients identified.
@@ -58,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 ![Asking ChatGPT to generate an image using text description](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/screenshot-2024-05-16-161949.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As you can see, ChatGPT provides some promising results, providing an image plus a description of the image. However, it still seems like you'll need to use [third-party solutions to save the image in JPG or PNG](https://www.makeuseof.com/how-convert-dalle-3-webp-images-jpg-or-png/) , since there isn't a way to save the image beside WebP.
 
@@ -76,10 +80,6 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
  ChatGPT provided sound advice by browsing the web for the weather and reviewing its memory of my schedule. It even gave me a list of activities I could do instead based on my past interactions with ChatGPT.
 
  The browsing capability feature is now available for both Plus and Free tier users, while ChatGPT Memory is only available to Plus users.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Multi-Modal Voice and Video Interactions
 
@@ -100,20 +100,20 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 ![Using-ChatGPT-Advanced-Data-Analysis](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-advanced-data-analysis.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  I already knew the numbers before running it using ADA on ChatGPT-4o, so I know the provided graph is accurate. However, running it on ChatGPT-4 continually gave me errors, was slow, and never really provided me with the graph. So, although ADA is not functionally different from the old code interpreter, running ADA right on ChatGPT-4o was certainly easier, faster, and smarter.
 
  OpenAI's demonstrations also showed live code debugging using voice commands, which is another enormous upgrade for ChatGPT. Instead of having to type commands and work bit by bit, live interactions with your code could speed up the process.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Temporary Chat
 
 ![ChatGPT's new temporary chat feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/chatgpt-s-temporary-chat-feature.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The new Temporary Chat feature in ChatGPT-4o is ideal for privacy-conscious users and those seeking quick interactions with ChatGPT. This feature enables users to engage in a temporary chat with ChatGPT without the conversation being saved in history or used by OpenAI to train their models.
 
@@ -136,18 +136,24 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-how-to-use-snap-camera-on-zoom/"><u>[New] 2024 Approved How to Use Snap Camera on Zoom?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-more-than-just-watch-time-understanding-youtube-views-calculation/"><u>[New] More than Just Watch Time Understanding YouTube Views Calculation</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-direct-pathway-transferring-youtube-content-to-dailymotion/"><u>[Updated] Direct Pathway Transferring YouTube Content to Dailymotion</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-engaging-listeners-respectfully-for-increased-sign-ups/"><u>[Updated] Engaging Listeners Respectfully for Increased Sign-Ups</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-maximize-your-screen-recording-experience-with-w8-tools/"><u>[Updated] Maximize Your Screen Recording Experience with W8 Tools</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-resource-for-advanced-periscope-techniques/"><u>2024 Approved The Ultimate Resource for Advanced Periscope Techniques</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/beat-boulevard-optimal-dj-video-downloads-for-2024/"><u>Beat Boulevard Optimal DJ Video Downloads for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/expert-advice-on-lighting-your-youtube-content-perfectly/"><u>Expert Advice on Lighting Your YouTube Content Perfectly</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-motorola-edge-2023-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Motorola Edge 2023.</u></a></li>
-<li><a href="https://win-forum.techidaily.com/mastering-social-media-a-guide-to-facebook-twitter-instagram-and-youtube-strategies/"><u>Mastering Social Media: A Guide to Facebook, Twitter, Instagram and YouTube Strategies</u></a></li>
-<li><a href="https://windows11.techidaily.com/resolving-xbox-mic-issues-on-windows-1111-pro/"><u>Resolving Xbox Mic Issues on Windows 11/11 Pro</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-newcomers-guide-to-youtube-channel-setup-and-money-making-tips/"><u>The Newcomer’s Guide to YouTube Channel Setup & Money-Making Tips</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/what-is-the-best-mp4-cutter-for-youtubers-on-mac/"><u>What Is the Best MP4 Cutter for YouTubers On Mac?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-aim-for-affluence-enroll-now-in-youtubes-partner-programme/"><u>[New] Aim for Affluence Enroll Now in YouTube's Partner Programme</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-efficient-hashtag-use-for-skyrocketing-youtube-audience/"><u>[New] Efficient Hashtag Use for Skyrocketing YouTube Audience</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-utilizing-b-roll-in-video-production-effectively/"><u>[Updated] 2024 Approved Utilizing B-Roll in Video Production Effectively</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-conquer-youtubes-realms-a-step-by-step-video-uploading-guidebook/"><u>[Updated] Conquer YouTube's Realms A Step-by-Step Video Uploading Guidebook</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-economical-embellishments-free-youtube-template-packs/"><u>[Updated] Economical Embellishments FREE YouTube Template Packs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-10-top-must-have-gear-items-for-youtubers/"><u>2024 Approved 10 Top Must-Have Gear Items for YouTubers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-expert-tips-for-changing-mac-screenshot-formats/"><u>2024 Approved Expert Tips for Changing Mac Screenshot Formats</u></a></li>
+<li><a href="https://windows11.techidaily.com/comparative-overview-of-installation-methods-exe-and-msi-files/"><u>Comparative Overview of Installation Methods: Exe & Msi Files</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-nokia-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Nokia FRP Locks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-comfortable-cinematography-amidst-the-chill/"><u>In 2024, Crafting Comfortable Cinematography Amidst the Chill</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>In 2024, Cutting Edge Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-oppo-reno-11-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Oppo Reno 11 5G Device</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 15 Plus?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/nostalgia-spin-off-the-goofy-movie-on-tape-for-2024/"><u>Nostalgia Spin-Off The Goofy Movie on Tape for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/powerpoint-tips-adding-automated-text-conversion-for-2024/"><u>PowerPoint Tips Adding Automated Text Conversion for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transform-your-revenue-with-youtube-shorts-tips/"><u>Transform Your Revenue with YouTube Shorts Tips</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-ultimate-guide-how-to-live-stream-on-facebook/"><u>Updated 2024 Approved Ultimate Guide How to Live Stream on Facebook?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-revenue-revolution-a-practical-guide-for-monetization/"><u>Youtube's Revenue Revolution A Practical Guide for Monetization</u></a></li>
 </ul></div>
 
