@@ -1,7 +1,7 @@
 ---
 title: "Top 23 Terrifying Terrors: The Ultimate List of Chilling Horror Movies"
-date: 2025-01-08T19:43:22.439Z
-updated: 2025-01-10T09:04:38.815Z
+date: 2025-01-08T21:53:18.488Z
+updated: 2025-01-15T20:50:08.512Z
 tags:
   - youtube-download
 categories:
@@ -33,7 +33,7 @@ Horror scary movies have many subgenres, and among them the most gut-wrenching a
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/anabelle-2-creation.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **No. 1 Best 2018 Scary Movie Blockbuster - Anabelle 2: Creation** 
@@ -41,10 +41,6 @@ Horror scary movies have many subgenres, and among them the most gut-wrenching a
 The doll horror movie is gaining its popularity again with the revivle of Anabelle. Directed by **Lights Out** director David F. Sandberg and produced by James Wan, this R-rated horror film will lead you back to the real origin of Anabelle and have the whole story completed. Why is Annabelle so hateful and evil? What cult exactally is behind these supernatural bloody events? You will find them out in this well-accepted horror movie 2018\. You can **free download David F. Sandberg's MyAnabellecreation** short films using 5KPlayer!
 
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/horror-film-it.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **No. 2 Another Stranger Thing Adventure - IT**
 
@@ -59,7 +55,7 @@ The second spin-off film after Annabelle in The Conjuring film series, this movi
 ![The Conjuring Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-1.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  **No. 4 Most Popular 2016 Scary Movie with Ghost - The Conjuring 2**
@@ -69,15 +65,15 @@ The Conjuring 2 is a must watch horror scary movie 2016!
 
 ![Lights Out Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **No. 5 Best Horror Movie 2016 Directed by "Ponysmasher" - Lights Out** 
 
 Another 2016 horror movie hit from producer James Wan. Only this time it was directed by David Sandberg who is renowned for [his short horror films](https://www.youtube.com/user/ponysmasher/videos) like Coffer, See You Soon, Pictured, Cam Closer, Attic Pnic, Closet Space, and will also helm the upcoming **2018 Annabelle 2** and **Lights Out 2**. Based on 2013 [David Sandberg's horror short of the same name](https://www.youtube.com/watch?v=-fDzdDfviLI), Lights Out will let you fall in the scare for darkness again but this time, it's not the mirror (in Conjuring 2) that will do the trick but the flickering of the light. Through the connection of their mom, an evil spirit is coming to slaughter. (5KPlayer helps you free download all shortfilms of "Ponysmasher".)
 
 ![Don't Breathe Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-3.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **No. 6 Best Horror Movie 2016 Home Invasion Thriller - Don't Breathe**
 
@@ -91,15 +87,15 @@ Another home-invasion horror movie 2016 that can stir quite a big scare. The sam
 
 ![Rings Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-5.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  **No. 8 Best Big Name Supernatural Horror Movie Series Return - Rings (2018)**
 
 Another big name supernatural horror film returns - the Ring series, only that this chapter is named Rings rather than prequels The Ring and The Ring 2 and it combines supernatural with body horror - vomiting hair, molting, bleeding inside - all suggesting that Samara wants a rebirth rather than just revenge in the videotape. However, this horror film is rescheduled to 2018 rivaling **the Bye Bye Man**.
 
 ![The Witch Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  **No. 9 Best Supernatural Religious Horror Movie 2016 - The Witch**
 
@@ -119,15 +115,15 @@ This psychological horror movie 2012 is really a genuine horror more haunting th
 
 ![Insidious Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-9.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **No. 12 Creepiest Horror Movie 2013 2010 2018 - Insidious Chapter 1/2/The Last Key** 
 
 If you are a fan of The Exorcist 1973 and Conjuring supernatural horror, then Insidious is the right place to get your nerves again. A haunted family tried to get rid of the evil spirits, finding and protecting their son and find back their real dad. Insidious Chapter 1 and 2 are decent with gripping storyline (they put a lot effort on plot design, bravo job!) while Insidious Chapter 3 is less qualified. Also, **Insidious: The Last Key** will be on screen in Jan 2018\. By viewing its trailer, the intense horror might be back on track!
 
 ![Sinister Movie Poster](https://www.5kplayer.com/youtube-download/img/horror-movie-10.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **No. 13 Best Horror Movie 2012 Scary Maze Game - Sinister** 
 
@@ -149,6 +145,10 @@ Like Conjuring, this movie has a fair share of jump scares as well as 'Saw' leve
 
 ![Top 6 Stop-Motion Animated Horror Movies of All Time](https://www.5kplayer.com/youtube-download/img/top-animated-horror-movies-zjy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##  How to Free Download Horror Scary Movies 2018 2016?
 
 **Step 1**: Free download the best [horror movie free downloader](https://tools.techidaily.com/5kplayer/youtube-download/) \- 5KPlayer on your Mac or PC and launch it. Click Download button to be at the horror scary movie free download UI.
@@ -163,13 +163,13 @@ Now you can sit back and free **watch top scary movies** at home on computers, i
 
 ![Top Horror Scary Movies Free download](https://www.5kplayer.com/youtube-download/img/5kp-the-conjuring-2-zjy.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Wish i could have given a full review of all the above quality horror movies, but since we've got 5KPlayer here to recommend and don't forget downloading it, we will perfect this list as newer quality scary films pop up like _Insidious: The Last Key_.
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -186,24 +186,18 @@ Wish i could have given a full review of all the above quality horror movies, bu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-the-art-of-youtube-closings-inclusive-guide/"><u>[New] In 2024, Mastering the Art of YouTube Closings [Inclusive Guide]</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-acceleratedecelerate-your-youtube-videos-a-step-by-step-guide/"><u>[Updated] Accelerate/Decelerate Your YouTube Videos A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-earn-on-youtube-beginners-path-to-profitability/"><u>[Updated] Earn on YouTube Beginner's Path to Profitability</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevate-the-visual-appeal-of-your-video-credits/"><u>[Updated] Elevate the Visual Appeal of Your Video Credits</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-step-beyond-reality-reviewing-lgs-virtual-vision-for-2024/"><u>[Updated] Step Beyond Reality Reviewing LG's Virtual Vision for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-8-premium-complimentary-streaming-media-processors/"><u>2024 Approved 8 Premium Complimentary Streaming Media Processors</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-efficiently-achieving-color-background-separation/"><u>2024 Approved Efficiently Achieving Color Background Separation</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/amd-radeon-video-card-software-update-compatible-with-windows-os-free-download/"><u>AMD Radeon Video Card Software Update – Compatible With Windows OS | Free Download</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/dual-dimensions-in-display-the-instagram-guide-to-effortless-image-turns-for-2024/"><u>Dual Dimensions in Display The Instagram Guide to Effortless Image Turns for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/examining-the-income-mechanics-of-tseries-on-youtube/"><u>Examining the Income Mechanics of TSeries on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/gear-up-yourself-selecting-prime-lenses-for-successful-vlogging/"><u>Gear Up Yourself Selecting Prime Lenses for Successful Vlogging</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-resolve-warzone-20-not-starting-on-your-computer-key-fixes/"><u>How to Resolve Warzone 2.0 Not Starting on Your Computer - Key Fixes</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-demystifying-instagram-story-sections/"><u>In 2024, Demystifying Instagram Story Sections</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-endless-entertainment-loop-youtube-videos-for-continuous-tv-viewing/"><u>In 2024, Endless Entertainment Loop YouTube Videos for Continuous TV Viewing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722977442547-qualcomm-atheros-ar938x-quick-and-easy-access-to-your-free-drivers/"><u>Qualcomm Atheros AR938X: Quick & Easy Access to Your Free Drivers!</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reducing-ntoskrnlexes-heavy-cpu-footprint/"><u>Reducing Ntoskrnl.exe's Heavy CPU Footprint</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/securing-your-income-with-youtube-learnings-from-sourav-joshi-by-2024/"><u>Securing Your Income with YouTube Learnings From Sourav Joshi by 2024</u></a></li>
-<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-12-mini-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone 12 mini failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/teaching-techniques-with-youtube-a-practical-approach/"><u>Teaching Techniques with YouTube A Practical Approach</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-finding-the-ideal-format-for-your-youtube-videos/"><u>[New] In 2024, Finding the Ideal Format for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-decoding-youtubes-5-second-tales/"><u>[Updated] Decoding YouTube's 5-Second Tales</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>[Updated] Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-one-shot-screenshot-instruction/"><u>[Updated] One-Shot Screenshot Instruction</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-channeling-changes-transition-to-youtubes-updated-membership-model/"><u>2024 Approved Channeling Changes Transition to YouTube's Updated Membership Model</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/acer-predator-helios-300-new-driver-version-to-elevate-your-gaming-experience/"><u>Acer Predator Helios 300 - New Driver Version to Elevate Your Gaming Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/channel-conversion-guide-yt-to-igtv-strategies/"><u>Channel Conversion Guide YT to IGTV Strategies</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-upgrade-surface-book-drivers-with-simplicity-get-started-now/"><u>Download and Upgrade Surface Book Drivers with Simplicity - Get Started Now!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-poco-m6-pro-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Poco M6 Pro 5G Data? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-resolving-issues-with-bose-speakers-that-wont-work/"><u>Step-by-Step Guide: Resolving Issues with Bose Speakers That Won't Work</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-10-youtube-video-trimmers-online-for-2024/"><u>Top 10 YouTube Video Trimmers Online for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-playlist-rearrangement-made-simple/"><u>YouTube Playlist Rearrangement Made Simple</u></a></li>
 </ul></div>
 

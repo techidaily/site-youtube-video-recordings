@@ -1,7 +1,7 @@
 ---
 title: "Top 10 Greatest MLB Yankees Matchups in 201([[18]: Full HD (1080P) Game Downloads - Watch the Best of the Bronx!"
-date: 2025-01-06T03:38:19.327Z
-updated: 2025-01-10T06:01:50.166Z
+date: 2025-01-12T04:24:19.090Z
+updated: 2025-01-15T16:14:25.778Z
 tags:
   - youtube-download
 categories:
@@ -41,7 +41,7 @@ To make sure you don't miss a single Yankees games in the following season, you 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
@@ -72,6 +72,10 @@ Matchups: Yankees, W, 2-1
 
 [![2018 MLB Groups Logos](https://www.5kplayer.com/youtube-download/img/mlb-group-logos.jpg)](https://tools.techidaily.com/5kplayer/products/) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **NO. 7 Yankees Game vs Detroit Tigers 2018 Spring Training 23/02**  
 Source:https://youtu.be/r0hErB17XzY  
 Matchups:Yankees, W, 3-1
@@ -89,7 +93,7 @@ Source: https://youtu.be/7pL\_RRDudzY
 Matchups: New York Yankees L: 4- 5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best Yankees Pitchers 2018
@@ -102,10 +106,6 @@ Matchups: New York Yankees L: 4- 5
 
 **Luis Severino** 
  It took only 2 years for Luis Severino to become one of the best New York Yankees best pitchers since he joined the team in 2015\. Yankees is the first and only team for Severino since his debut, unlike Chapman, he preferred the right hand for both bats and through in New York Yankees games. 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Download Yankees Games HD 1080p with 5KPlayer?
 
@@ -122,7 +122,7 @@ Matchups: New York Yankees L: 4- 5
 ![Download Yankees Games 1080p](https://www.5kplayer.com/youtube-download/img/yankees-game-download.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Playlist of Yankees Games in 5KPlayer?
@@ -135,13 +135,13 @@ Matchups: New York Yankees L: 4- 5
 
 ![Create Yankees Games Playlist](https://www.5kplayer.com/youtube-download/img/mlb-playlist.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The free 5KPlayer is a one-stop solution for users to not only download Yankees games free, also it helps download MLB games highlights, download best walk up songs for baseball, and download full match videos from sports streaming sites. If you'd like to download MLB Yankees games videos for offline watching, don't hesitate to download 5KPlayer for Windows and Mac for free now. 
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,20 +158,17 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-intellieditors-ai-transform-photos-effortlessly/"><u>[New] 2024 Approved IntelliEditors AI Transform Photos Effortlessly</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-chromes-fullscreen-mode-a-complete-guide-to-pip-usage/"><u>[New] Chrome's Fullscreen Mode A Complete Guide to PIP Usage</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-blending-past-and-present-film-aesthetics/"><u>[New] In 2024, Blending Past and Present Film Aesthetics</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-path-to-profitable-videography-starting-strong/"><u>[New] In 2024, The Path to Profitable Videography Starting Strong</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-the-ultimate-blueprint-for-sourcing-top-tier-instagram-ringtones-and-crafting-standout-alarms/"><u>[Updated] 2024 Approved The Ultimate Blueprint for Sourcing Top-Tier Instagram Ringtones and Crafting Standout Alarms</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-talking-the-talk-mastering-viewer-communication/"><u>[Updated] Talking the Talk Mastering Viewer Communication</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/best-free-1080p720p-hd-anime-of-2018-for-teens-a-comprehensive-list/"><u>Best Free 1080P/720p HD Anime of 2018 for Teens: A Comprehensive List</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/download-nbas-greatest-free-hd-clips-of-stephen-currys-top-basketball-moments/"><u>Download NBA's Greatest: Free HD Clips of Stephen Curry's Top Basketball Moments</u></a></li>
-<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
-<li><a href="https://media-tips.techidaily.com/five-expert-techniques-for-efficient-audio-editing-across-macwindowsmobile-platforms-and-online-services/"><u>Five Expert Techniques for Efficient Audio Editing Across MAC/Windows/Mobile Platforms & Online Services</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/free-methods-for-changing-mkv-files-into-mp4-format-easily/"><u>Free Methods for Changing MKV Files Into MP4 Format Easily</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/latest-high-definition-hindi-music-videos-of-2021-available-for-complimentary-download/"><u>Latest High-Definition Hindi Music Videos of 2021 Available for Complimentary Download</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-guide-adding-your-favorite-tracks-from-pcmac-to-your-iphone-11/"><u>Step-by-Step Guide: Adding Your Favorite Tracks From PC/Mac to Your iPhone 11</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/top-37-stunning-films-available-in-ultra-hd-on-netflix/"><u>Top 37 Stunning Films Available in Ultra HD on Netflix</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-collection-of-netflixs-3d-movies-201/"><u>Ultimate Collection of Netflix's 3D Movies (201</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-viewsplit-diagnostics/"><u>[New] 2024 Approved ViewSplit Diagnostics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-crafting-gifs-from-youtube-detailed-step-by-step-guide-for-pcmobile/"><u>[New] Crafting GIFs From YouTube Detailed Step-by-Step Guide for PC/Mobile</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-comprehensive-guide-to-dji-phantom-3-testing/"><u>[New] The Comprehensive Guide to DJI Phantom 3 Testing</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-top-ten-frame-enhancers-for-visual-artistry/"><u>[Updated] 2024 Approved Top Ten Frame Enhancers for Visual Artistry</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/connect-amazon-fire-stick-to-projector-easy-instructions-for-users/"><u>Connect Amazon Fire Stick to Projector – Easy Instructions for Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/leading-8-channels-accelerating-video-views/"><u>Leading 8 Channels Accelerating Video Views</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/migrate-pictures-with-ease-mastering-the-move-from-google-photos-to-icloud-in-a-step-by-step-process/"><u>Migrate Pictures with Ease: Mastering the Move From Google Photos to iCloud in a Step-by-Step Process</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/nailing-the-desktopmobile-youtube-speed-control/"><u>Nailing the Desktop/Mobile YouTube Speed Control</u></a></li>
+<li><a href="https://fox-info.techidaily.com/resonating-with-your-device-a-comprehensive-guide-for-customizing-auditory-experience-on-android/"><u>Resonating With Your Device A Comprehensive Guide for Customizing Auditory Experience on Android</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-avatar-frontiers-of-pandora-performance-issues-fixes-for-low-fps-and-stuttering/"><u>Solving 'Avatar: Frontiers of Pandora' Performance Issues - Fixes for Low FPS & Stuttering</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-to-keep-your-xbox-controller-charged-longer/"><u>Strategies to Keep Your Xbox Controller Charged Longer</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/thumbnail-tailoring-for-youtube-a-practical-guide-to-image-resizing-and-customization/"><u>Thumbnail Tailoring for YouTube A Practical Guide to Image Resizing and Customization</u></a></li>
 </ul></div>
 

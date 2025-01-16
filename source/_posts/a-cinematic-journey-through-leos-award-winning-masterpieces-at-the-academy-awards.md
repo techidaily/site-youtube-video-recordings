@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2025-01-05T00:14:34.326Z
-updated: 2025-01-10T07:53:54.930Z
+date: 2025-01-14T05:47:39.099Z
+updated: 2025-01-15T16:52:49.477Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,15 +238,14 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-novice-networking-affordable-channel-buy-options/"><u>[New] 2024 Approved Novice Networking Affordable Channel Buy Options</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-demystifying-color-grading-with-powerful-luts/"><u>[New] Demystifying Color Grading with Powerful LUTs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-experience-the-pinnacle-of-free-fb-image-and-vfx-crafting/"><u>[Updated] Experience the Pinnacle of Free FB Image and VFX Crafting</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-a-comprehensible-breakdown-for-youtube-annotation-and-card-implementation/"><u>2024 Approved A Comprehensible Breakdown for YouTube Annotation and Card Implementation</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-seconds-in-a-20mb-hd-video-file/"><u>2024 Approved Seconds in a 20MB HD Video File</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/extract-translate-and-save-youtube-subtitles-for-free/"><u>Extract, Translate & Save YouTube Subtitles for FREE</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-amassing-audiences-and-assets-launching-a-livestream-business/"><u>In 2024, Amassing Audiences and Assets Launching a Livestream Business</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/transform-your-videography-using-youtube-to-boost-visual-clarity/"><u>Transform Your Videography Using YouTube to Boost Visual Clarity</u></a></li>
-<li><a href="https://fox-that.techidaily.com/trouble-with-ios-notifications-here-are-7-fixes-for-you/"><u>Trouble with iOS Notifications? Here Are 7 Fixes for You</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-final-cut-pro-x-hack-add-a-countdown-timer-in-3-easy-steps/"><u>Updated In 2024, Final Cut Pro X Hack Add a Countdown Timer in 3 Easy Steps</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-elevating-video-popularity-on-youtube/"><u>[New] Elevating Video Popularity on YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-djis-edge-shifted-the-ultimate-mavic-air-vs-spark-showdown/"><u>[Updated] 2024 Approved DJI's Edge Shifted The Ultimate Mavic Air Vs. Spark Showdown</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-best-practices-for-youtube-thumbnail-dimensions/"><u>[Updated] Best Practices for YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-boost-traffic-critical-youtube-seo-instruments-for-video-success/"><u>[Updated] Boost Traffic Critical YouTube SEO Instruments for Video Success</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-detailed-visuals-in-ms-teams-video-calls/"><u>[Updated] In 2024, Detailed Visuals in MS Teams Video Calls</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unraveling-youtubes-ranks-the-deciding-elements/"><u>[Updated] In 2024, Unraveling YouTube's Ranks The Deciding Elements</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/two-effective-techniques-transforming-dts-tracks-into-ac3-format/"><u>Two Effective Techniques: Transforming DTS Tracks Into AC3 Format</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/1716465331321-youtube-style-essentials-download-for-free/"><u>YouTube Style Essentials - Download for FREE!</u></a></li>
 </ul></div>
 

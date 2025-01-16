@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2025-01-08T11:39:58.618Z
-updated: 2025-01-09T16:08:43.669Z
+date: 2025-01-09T01:43:34.512Z
+updated: 2025-01-16T05:35:07.779Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,24 +238,15 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-amazons-social-stardom-liking-and-viewing-leaderships-for-2024/"><u>[New] Amazon's Social Stardom Liking and Viewing Leaderships for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-to-finding-the-right-youtube-keywords/"><u>[New] The Ultimate Guide to Finding the Right YouTube Keywords</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-art-of-sound-in-visual-storytelling-on-instagram/"><u>[Updated] 2024 Approved The Art of Sound in Visual Storytelling on Instagram</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-ensuring-thumbnails-show-shorts-video-troubleshooting/"><u>[Updated] Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-dominate-search-results-essential-tips-for-optimizing-youtube-videos/"><u>2024 Approved Dominate Search Results Essential Tips for Optimizing YouTube Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-engage-enchant-excel-the-quintessential-5-strategies-for-youtube-marketing/"><u>2024 Approved Engage, Enchant, Excel The Quintessential 5 Strategies for YouTube Marketing</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-enhance-and-clean-up-youtube-footage-borderless-tutorial/"><u>2024 Approved Enhance and Clean Up YouTube Footage Borderless Tutorial</u></a></li>
-<li><a href="https://discover-best.techidaily.com/avancez-au-dela-de-la-business-intelligence-et-du-processus-dextraction-des-connaissances-e-book-dabbyy/"><u>Avancez Au-Delà De La Business Intelligence Et Du Processus D'Extraction Des Connaissances : E-Book D’ABBYY</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-xiaomi-redmi-12-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Xiaomi Redmi 12 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/breakdown-of-popular-elements-in-youtube-shorts/"><u>Breakdown of Popular Elements in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/bridging-soundscapes-and-visuals-essentials-for-innovative-asmr-videos/"><u>Bridging Soundscapes & Visuals – Essentials for Innovative ASMR Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/freedom-from-popups-discover-the-top-7-android-adblock-apps/"><u>Freedom From Popups? Discover the Top 7 Android AdBlock Apps</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-audio-recording-101-from-youtube-playback-to-files/"><u>In 2024, Audio Recording 101 From YouTube Playback To Files</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-your-videos-auditory-experience-on-youtube/"><u>In 2024, Elevate Your Video's Auditory Experience on YouTube</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/innovative-mac-screen-recorders-top-picks-and-features-explored/"><u>Innovative Mac Screen Recorders Top Picks & Features Explored</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-deal-for-students-final-cut-pro-at-a-discounted-rate/"><u>New The Ultimate Deal for Students Final Cut Pro at a Discounted Rate</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ere-guide-uploading-vids-for-youtube/"><u>Premiere Guide Uploading Vids for YouTube</u></a></li>
-<li><a href="https://windows11.techidaily.com/strategies-for-accurate-interpretation-of-task-manager-writings/"><u>Strategies for Accurate Interpretation of Task Manager' Writings</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-eagle-eye-expedition-the-ultimate-guide-to-fps-game-selection-for-2024/"><u>[New] Eagle-Eye Expedition - The Ultimate Guide to FPS Game Selection for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pushing-boundaries-with-yuneecs-typhoon-h-drone/"><u>[Updated] Pushing Boundaries with Yuneec's Typhoon H Drone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-achieve-more-engagement-on-youtube-learn-the-best-thumbnail-size/"><u>2024 Approved Achieve More Engagement on YouTube Learn the Best Thumbnail Size</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-compelling-end-screens-in-youtube-videos/"><u>2024 Approved Crafting Compelling End Screens in YouTube Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-expertise-for-changing-meet-usernames-laptopmobile/"><u>2024 Approved Expertise for Changing Meet Usernames (Laptop/Mobile)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-mobile-media-creation-tools-iphone-vs-android-review-for-2024/"><u>Essential Mobile Media Creation Tools IPhone vs Android Review for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ideal-ringtones-picks-high-quality-destinations/"><u>Ideal Ringtones Picks High-Quality Destinations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-demystifying-the-powerhouse-behind-youtube-creator-hub/"><u>In 2024, Demystifying the Powerhouse Behind YouTube Creator Hub</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-unreliability-of-zerogpt-in-ai-authenticity-tests-what-you-should-know/"><u>The Unreliability of ZeroGPT in AI Authenticity Tests: What You Should Know</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-itel-p55t-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Itel P55T to Other Android Devices | Dr.fone</u></a></li>
 </ul></div>
 
