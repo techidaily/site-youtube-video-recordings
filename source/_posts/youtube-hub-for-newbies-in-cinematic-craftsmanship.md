@@ -1,7 +1,7 @@
 ---
 title: "YouTube Hub for Newbies in Cinematic Craftsmanship"
-date: 2025-01-08T21:30:35.192Z
-updated: 2025-01-10T13:16:52.190Z
+date: 2025-01-17T10:17:09.439Z
+updated: 2025-01-22T04:46:07.275Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,6 @@ Aside from simply creating your own film to put in your YouTube channel, one of 
 If you want to make a video and share it on YouTube, I recommend you to try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora is available on both Windows and Mac computer, which is easy to use yet provides powerful features to create stunning Hollywood style videos, you can add titles, texts, filters, overlays, elements, transitions and edit audio and do color correction, use the built-in free music and sound effects. After editing, you can export and share the video to YouTube directly.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -274,6 +270,10 @@ Follow @Richard Bennett
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -287,6 +287,10 @@ Whether you’re an industry professional or an avid YouTuber, you know how impo
 The quality of the videos you create will depend on your creativity, the editing software you use, and the hardware that software is installed on. And as you probably know, it can be tough to work fast and get good results when your hardware or laptop isn’t strong enough to power your software properly and allow you to work at the pace you want.
 
 The best laptops for video editing in 2018 have three things in common. First, they have top-of-the-line display technology for color accuracy, color depth, and clarity. Next, they have discrete (dedicated) Graphic Processing Units (GPUs) with accompanying RAM to enable them to handle video processing fast without compromising other system functions. And finally, they have Intel core i7 CPU processors and Solid-State Drives (SSD) for faster overall performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## THE TOP 3 LAPTOPS FOR EDITING VIDEO IN 2018
 
@@ -369,167 +373,9 @@ The Dell XPS 15 is certainly more affordable, while still delivering excellent g
 
 The biggest downside to the Dell XPS 15 laptop is its oddly positioned webcam. It feels awkward and can be an inconvenience to use since you’ll have to adjust your position significantly while making video calls or recording for your YouTube channel.
 
-### 3\. MICROSOFT SURFACE BOOK 2
-
-![Microsoft Surface Book](https://images.wondershare.com/filmora/article-images/microsoft-surface-book.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-**PRICE:** $1499 - $2499
-
-**SYSTEM SPECS:**
-
-CPU: Intel Core i7 Processor
-
-GRAPHICS: Intel HD 620 or Nvidia GTX 1050 / GTX 1060
-
-RAM: 16GB
-
-SCREEN: 15.0”
-
-RES: 3240 x 2160px
-
-STORAGE: 256GB, 512GB – 1TB SSD
-
-**PROS**
-
-1. Detachable screen
-2. Has multiple input ports (USB Type-A, USB Type-C, SD card reader)
-3. Works with a Stylus
-
- **CONS:**
-
-1. Expensive
-2. Fulcrum hinge
-
-The Microsoft Surface Book 2 is a laptop and a tablet thanks to its detachable screen. At a resolution of 3240 x 2160px, its screen is nearly 4k and can handle Full HD and HD footage with ease. Add to this its capacity to show a considerable portion of the sRGB gamut and its easy-to-use stylus and you can see why this 2-in-1 combo from Microsoft is one of the top 3 laptops for video editing in 2018.
-
-Surface Book 2 also has the right combination of power and storage capacity that video editing requires. It boasts a state-of-the-art NVIDIA graphics processor and an Intel i7 processor for a smooth workflow no matter the size or level of detail involved in your video editing project.
-
-On the downside, this laptop is undoubtedly very expensive. Compared to the function and power you can get from the DELL XPS 15, it’s hard to justify paying nearly $2500 for the Surface Book 2\. Its detachable screen, supported by a fulcrum hinge, also comes at a price. It makes the laptop a bit bulky at one end when it’s folded. This in turn can make day-to-day handling a bit more tricky than it has to be.
-
-## CONCLUSION
-
-If you’re searching for a good laptop to help you improve the quality of your videos in 2018, look no further than these 3\. They have all the power, function, and storage capacity you need to handle any project with ease. Just be mindful of your budget and consider which extras are worth the expense. Go for the MacBook Pro with Touch Bar if customizing your workflow is a priority. Opt for the Dell XPS 15 if you want the best combination of display quality and graphics processing. Finally, consider the Surface Book 2 if you need the flexibility of a 2-in-1 device.
-
- What do you think is the best laptop for video editing?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Equip Your Laptop with the Best Video Editing Software
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-This article lists the 3 [best laptops for video editing](https://tools.techidaily.com/wondershare/filmora/download/) in 2018.
-
-Whether you’re an industry professional or an avid YouTuber, you know how important it is to produce quality videos consistently.
-
-The quality of the videos you create will depend on your creativity, the editing software you use, and the hardware that software is installed on. And as you probably know, it can be tough to work fast and get good results when your hardware or laptop isn’t strong enough to power your software properly and allow you to work at the pace you want.
-
-The best laptops for video editing in 2018 have three things in common. First, they have top-of-the-line display technology for color accuracy, color depth, and clarity. Next, they have discrete (dedicated) Graphic Processing Units (GPUs) with accompanying RAM to enable them to handle video processing fast without compromising other system functions. And finally, they have Intel core i7 CPU processors and Solid-State Drives (SSD) for faster overall performance.
-
-## THE TOP 3 LAPTOPS FOR EDITING VIDEO IN 2018
-
-The top 3 laptops below are quite impressive. They have the right mix of power and function that video editing requires.
-
-1. [MacBook Pro With Touch Bar](#macbook)
-2. [Dell XPS 15](#dell)
-3. [Microsoft Surface Book 2](#microsoft)
-
-### 1.MACBOOK PRO WITH TOUCH BAR
-
-![Macbook pro touch bar](https://images.wondershare.com/filmora/article-images/macbook-pro-touch-bar.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-**PRICE:** $1500 - $1800
-
-**SYSTEM SPECS:**
-
-CPU: Intel Core i7 Processor
-
-GRAPHICS: Radeon Pro 555 with 2GB memory – 560 with 4GB memory
-
-RAM: 16GB
-
-SCREEN: 15.4” Retina Display
-
-RES: 2880 x 1800px
-
-STORAGE: 128 – 256GB SSD
-
-**PROS**
-
-1. OLED Touch Bar
-2. Thunderbolt 3 ports
-3. Large Trackpad
-
- **CONS:**
-
-1. No other input ports available besides Thunderbolt 3
-2. Expensive
-
- The MacBook Pro with Touch Bar is the best video editing laptop produced by Apple. It has a wide 15.4” screen with thin bezels, and its proprietary OLED Touch bar amps up its flexibility and functionality considerably. The Touch Bar is set-up to show different shortcuts for different apps. It works quite well with Photoshop and will show thumbnails, filter options, a color picker, and more while you’re editing videos or stills.
-
-Working with large 4K video files is much easier with the MacBook Pro. It’s fitted with Thunderbolt 3 Ports which have the highest data and video bandwidth available for USB-C connections. With these Thunderbolt ports, you can also use high-speed and high-power peripherals without a hitch. This laptop also has an extra-wide touchpad or Trackpad (as Apple calls it) which expands your physical working surface while also making it easier to do detailed video editing.
-
-Unfortunately, if you need a variety of ports like most videographers, working with the MacBook Pro could be a challenge as it only has Thunderbolt 3 ports. If this is the laptop you prefer, you’ll need to buy additional connection hardware to work with different input devices. And while this laptop impresses in many ways, it’s also quite expensive. There are certainly other laptops on the market which can give you similar performance at a lower cost.
-
-### 2\. DELL XPS 15
-
-![Dell XPS 15](https://images.wondershare.com/filmora/article-images/dell-xps-15.jpg)
-
-**PRICE:** $999 - $1300
-
-**SYSTEM SPECS:**
-
-CPU: Intel Core i7 Processor
-
-GRAPHICS: NVIDIA GeForce GTX 1050
-
-RAM: 8 - 16GB
-
-SCREEN: 15.6”
-
-RES: FHD - 4k UHD 3840 x 2160px
-
-STORAGE: 256GB – 1TB SSD
-
-**PROS**
-
-1. 4k InfinityEdge display
-2. Good battery life
-3. Has multiple input ports
-
- **CONS:**
-
-1. Webcam is oddly positioned
-
-The Dell XPS 15 is one laptop that hits the sweet spot for many videographers. It’s considered the closest competitor to the MacBook Pro reviewed above. In fact, many would argue that it tops the MacBook Pro when it comes to speed, color accuracy, and color depth. Its 15.6” screen has very thin bezels for minimal distraction and immersive work experience. At 4K resolution and displaying a wide range of the sRGB gamut, video editing with the Dell XPS 15 promises to be both smooth and enjoyable.
-
-The Dell XPS 15 is certainly more affordable, while still delivering excellent graphics performance. It features an Intel i7 processor and the NVIDIA GeForce GTX 1050 graphics processor. This makes it remarkably fast for video editing, as well as energy-efficient. People who work with different input devices will also like that this laptop has legacy adapters (USB, HDMI, ethernet) alongside a USB type C port.
-
-The biggest downside to the Dell XPS 15 laptop is its oddly positioned webcam. It feels awkward and can be an inconvenience to use since you’ll have to adjust your position significantly while making video calls or recording for your YouTube channel.
 
 ### 3\. MICROSOFT SURFACE BOOK 2
 
@@ -577,6 +423,10 @@ If you’re searching for a good laptop to help you improve the quality of your 
 ## Equip Your Laptop with the Best Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -649,6 +499,10 @@ Unfortunately, if you need a variety of ports like most videographers, working w
 
 ![Dell XPS 15](https://images.wondershare.com/filmora/article-images/dell-xps-15.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PRICE:** $999 - $1300
 
 **SYSTEM SPECS:**
@@ -685,10 +539,6 @@ The biggest downside to the Dell XPS 15 laptop is its oddly positioned webcam. I
 
 ![Microsoft Surface Book](https://images.wondershare.com/filmora/article-images/microsoft-surface-book.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **PRICE:** $1499 - $2499
 
 **SYSTEM SPECS:**
@@ -722,10 +572,6 @@ Surface Book 2 also has the right combination of power and storage capacity that
 
 On the downside, this laptop is undoubtedly very expensive. Compared to the function and power you can get from the DELL XPS 15, it’s hard to justify paying nearly $2500 for the Surface Book 2\. Its detachable screen, supported by a fulcrum hinge, also comes at a price. It makes the laptop a bit bulky at one end when it’s folded. This in turn can make day-to-day handling a bit more tricky than it has to be.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## CONCLUSION
 
 If you’re searching for a good laptop to help you improve the quality of your videos in 2018, look no further than these 3\. They have all the power, function, and storage capacity you need to handle any project with ease. Just be mindful of your budget and consider which extras are worth the expense. Go for the MacBook Pro with Touch Bar if customizing your workflow is a priority. Opt for the Dell XPS 15 if you want the best combination of display quality and graphics processing. Finally, consider the Surface Book 2 if you need the flexibility of a 2-in-1 device.
@@ -735,6 +581,10 @@ If you’re searching for a good laptop to help you improve the quality of your 
 ## Equip Your Laptop with the Best Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -758,10 +608,6 @@ The quality of the videos you create will depend on your creativity, the editing
 
 The best laptops for video editing in 2018 have three things in common. First, they have top-of-the-line display technology for color accuracy, color depth, and clarity. Next, they have discrete (dedicated) Graphic Processing Units (GPUs) with accompanying RAM to enable them to handle video processing fast without compromising other system functions. And finally, they have Intel core i7 CPU processors and Solid-State Drives (SSD) for faster overall performance.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## THE TOP 3 LAPTOPS FOR EDITING VIDEO IN 2018
 
 The top 3 laptops below are quite impressive. They have the right mix of power and function that video editing requires.
@@ -769,10 +615,6 @@ The top 3 laptops below are quite impressive. They have the right mix of power a
 1. [MacBook Pro With Touch Bar](#macbook)
 2. [Dell XPS 15](#dell)
 3. [Microsoft Surface Book 2](#microsoft)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1.MACBOOK PRO WITH TOUCH BAR
 
@@ -812,8 +654,166 @@ Working with large 4K video files is much easier with the MacBook Pro. It’s fi
 Unfortunately, if you need a variety of ports like most videographers, working with the MacBook Pro could be a challenge as it only has Thunderbolt 3 ports. If this is the laptop you prefer, you’ll need to buy additional connection hardware to work with different input devices. And while this laptop impresses in many ways, it’s also quite expensive. There are certainly other laptops on the market which can give you similar performance at a lower cost.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### 2\. DELL XPS 15
+
+![Dell XPS 15](https://images.wondershare.com/filmora/article-images/dell-xps-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**PRICE:** $999 - $1300
+
+**SYSTEM SPECS:**
+
+CPU: Intel Core i7 Processor
+
+GRAPHICS: NVIDIA GeForce GTX 1050
+
+RAM: 8 - 16GB
+
+SCREEN: 15.6”
+
+RES: FHD - 4k UHD 3840 x 2160px
+
+STORAGE: 256GB – 1TB SSD
+
+**PROS**
+
+1. 4k InfinityEdge display
+2. Good battery life
+3. Has multiple input ports
+
+ **CONS:**
+
+1. Webcam is oddly positioned
+
+The Dell XPS 15 is one laptop that hits the sweet spot for many videographers. It’s considered the closest competitor to the MacBook Pro reviewed above. In fact, many would argue that it tops the MacBook Pro when it comes to speed, color accuracy, and color depth. Its 15.6” screen has very thin bezels for minimal distraction and immersive work experience. At 4K resolution and displaying a wide range of the sRGB gamut, video editing with the Dell XPS 15 promises to be both smooth and enjoyable.
+
+The Dell XPS 15 is certainly more affordable, while still delivering excellent graphics performance. It features an Intel i7 processor and the NVIDIA GeForce GTX 1050 graphics processor. This makes it remarkably fast for video editing, as well as energy-efficient. People who work with different input devices will also like that this laptop has legacy adapters (USB, HDMI, ethernet) alongside a USB type C port.
+
+The biggest downside to the Dell XPS 15 laptop is its oddly positioned webcam. It feels awkward and can be an inconvenience to use since you’ll have to adjust your position significantly while making video calls or recording for your YouTube channel.
+
+### 3\. MICROSOFT SURFACE BOOK 2
+
+![Microsoft Surface Book](https://images.wondershare.com/filmora/article-images/microsoft-surface-book.jpg)
+
+**PRICE:** $1499 - $2499
+
+**SYSTEM SPECS:**
+
+CPU: Intel Core i7 Processor
+
+GRAPHICS: Intel HD 620 or Nvidia GTX 1050 / GTX 1060
+
+RAM: 16GB
+
+SCREEN: 15.0”
+
+RES: 3240 x 2160px
+
+STORAGE: 256GB, 512GB – 1TB SSD
+
+**PROS**
+
+1. Detachable screen
+2. Has multiple input ports (USB Type-A, USB Type-C, SD card reader)
+3. Works with a Stylus
+
+ **CONS:**
+
+1. Expensive
+2. Fulcrum hinge
+
+The Microsoft Surface Book 2 is a laptop and a tablet thanks to its detachable screen. At a resolution of 3240 x 2160px, its screen is nearly 4k and can handle Full HD and HD footage with ease. Add to this its capacity to show a considerable portion of the sRGB gamut and its easy-to-use stylus and you can see why this 2-in-1 combo from Microsoft is one of the top 3 laptops for video editing in 2018.
+
+Surface Book 2 also has the right combination of power and storage capacity that video editing requires. It boasts a state-of-the-art NVIDIA graphics processor and an Intel i7 processor for a smooth workflow no matter the size or level of detail involved in your video editing project.
+
+On the downside, this laptop is undoubtedly very expensive. Compared to the function and power you can get from the DELL XPS 15, it’s hard to justify paying nearly $2500 for the Surface Book 2\. Its detachable screen, supported by a fulcrum hinge, also comes at a price. It makes the laptop a bit bulky at one end when it’s folded. This in turn can make day-to-day handling a bit more tricky than it has to be.
+
+## CONCLUSION
+
+If you’re searching for a good laptop to help you improve the quality of your videos in 2018, look no further than these 3\. They have all the power, function, and storage capacity you need to handle any project with ease. Just be mindful of your budget and consider which extras are worth the expense. Go for the MacBook Pro with Touch Bar if customizing your workflow is a priority. Opt for the Dell XPS 15 if you want the best combination of display quality and graphics processing. Finally, consider the Surface Book 2 if you need the flexibility of a 2-in-1 device.
+
+ What do you think is the best laptop for video editing?
+
+## Equip Your Laptop with the Best Video Editing Software
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+This article lists the 3 [best laptops for video editing](https://tools.techidaily.com/wondershare/filmora/download/) in 2018.
+
+Whether you’re an industry professional or an avid YouTuber, you know how important it is to produce quality videos consistently.
+
+The quality of the videos you create will depend on your creativity, the editing software you use, and the hardware that software is installed on. And as you probably know, it can be tough to work fast and get good results when your hardware or laptop isn’t strong enough to power your software properly and allow you to work at the pace you want.
+
+The best laptops for video editing in 2018 have three things in common. First, they have top-of-the-line display technology for color accuracy, color depth, and clarity. Next, they have discrete (dedicated) Graphic Processing Units (GPUs) with accompanying RAM to enable them to handle video processing fast without compromising other system functions. And finally, they have Intel core i7 CPU processors and Solid-State Drives (SSD) for faster overall performance.
+
+## THE TOP 3 LAPTOPS FOR EDITING VIDEO IN 2018
+
+The top 3 laptops below are quite impressive. They have the right mix of power and function that video editing requires.
+
+1. [MacBook Pro With Touch Bar](#macbook)
+2. [Dell XPS 15](#dell)
+3. [Microsoft Surface Book 2](#microsoft)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 1.MACBOOK PRO WITH TOUCH BAR
+
+![Macbook pro touch bar](https://images.wondershare.com/filmora/article-images/macbook-pro-touch-bar.jpg)
+
+**PRICE:** $1500 - $1800
+
+**SYSTEM SPECS:**
+
+CPU: Intel Core i7 Processor
+
+GRAPHICS: Radeon Pro 555 with 2GB memory – 560 with 4GB memory
+
+RAM: 16GB
+
+SCREEN: 15.4” Retina Display
+
+RES: 2880 x 1800px
+
+STORAGE: 128 – 256GB SSD
+
+**PROS**
+
+1. OLED Touch Bar
+2. Thunderbolt 3 ports
+3. Large Trackpad
+
+ **CONS:**
+
+1. No other input ports available besides Thunderbolt 3
+2. Expensive
+
+ The MacBook Pro with Touch Bar is the best video editing laptop produced by Apple. It has a wide 15.4” screen with thin bezels, and its proprietary OLED Touch bar amps up its flexibility and functionality considerably. The Touch Bar is set-up to show different shortcuts for different apps. It works quite well with Photoshop and will show thumbnails, filter options, a color picker, and more while you’re editing videos or stills.
+
+Working with large 4K video files is much easier with the MacBook Pro. It’s fitted with Thunderbolt 3 Ports which have the highest data and video bandwidth available for USB-C connections. With these Thunderbolt ports, you can also use high-speed and high-power peripherals without a hitch. This laptop also has an extra-wide touchpad or Trackpad (as Apple calls it) which expands your physical working surface while also making it easier to do detailed video editing.
+
+Unfortunately, if you need a variety of ports like most videographers, working with the MacBook Pro could be a challenge as it only has Thunderbolt 3 ports. If this is the laptop you prefer, you’ll need to buy additional connection hardware to work with different input devices. And while this laptop impresses in many ways, it’s also quite expensive. There are certainly other laptops on the market which can give you similar performance at a lower cost.
 
 ### 2\. DELL XPS 15
 
@@ -855,6 +855,10 @@ The biggest downside to the Dell XPS 15 laptop is its oddly positioned webcam. I
 
 ![Microsoft Surface Book](https://images.wondershare.com/filmora/article-images/microsoft-surface-book.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PRICE:** $1499 - $2499
 
 **SYSTEM SPECS:**
@@ -893,10 +897,6 @@ On the downside, this laptop is undoubtedly very expensive. Compared to the func
 If you’re searching for a good laptop to help you improve the quality of your videos in 2018, look no further than these 3\. They have all the power, function, and storage capacity you need to handle any project with ease. Just be mindful of your budget and consider which extras are worth the expense. Go for the MacBook Pro with Touch Bar if customizing your workflow is a priority. Opt for the Dell XPS 15 if you want the best combination of display quality and graphics processing. Finally, consider the Surface Book 2 if you need the flexibility of a 2-in-1 device.
 
  What do you think is the best laptop for video editing?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Equip Your Laptop with the Best Video Editing Software
 
@@ -925,18 +925,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-vids-excellence-the-top-20-techniques/"><u>[New] 2024 Approved Facebook Vids Excellence The Top 20 Techniques</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-countdown-in-forward-the-counterintuitive-playlist-method/"><u>[New] Countdown in Forward The Counterintuitive Playlist Method</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-mirth-makers-zombie-shadowbenders-for-2024/"><u>[New] Mirth Makers Zombie Shadowbenders for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/beat-the-heat-without-breaking-the-bank-secure-your-pcs-temperature-below-45-using-deepcools-as500-plus-at-amazon/"><u>Beat the Heat without Breaking the Bank: Secure Your PC's Temperature Below $45 Using DeepCool's AS500 Plus at Amazon</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/creative-vlog-ideas-for-daily-use-for-2024/"><u>Creative Vlog Ideas for Daily Use for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/dailymovement-vs-youtube-income-comparison-for-2024/"><u>DailyMovement vs Youtube Income Comparison for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/delving-into-active-presenters-record-capabilities/"><u>Delving Into Active Presenter's Record Capabilities</u></a></li>
-<li><a href="https://win11.techidaily.com/exclusive-access-to-recently-opened-files-on-windows/"><u>Exclusive Access to Recently Opened Files on Windows</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-boosting-engagement-customizing-your-shorts-first-impressions/"><u>In 2024, Boosting Engagement Customizing Your Shorts' First Impressions</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/lenovos-lightweight-laptop-unveiled-secret-features-including-a-concealed-trackpoint-revealed-tech-analysis/"><u>Lenovo's Lightweight Laptop Unveiled: Secret Features Including a Concealed TrackPoint Revealed | Tech Analysis</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-your-device-with-an-in-depth-look-at-each-ipados-update/"><u>Mastering Your Device with an In-Depth Look at Each iPadOS Update</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/quick-fixes-how-to-screen-record-your-google-chats-for-2024/"><u>Quick Fixes How to Screen Record Your GooGle Chats for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-star-citizen-stability-issues-on-windows-platforms/"><u>Resolved: Star Citizen Stability Issues on Windows Platforms</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-citizens-guide-to-c-span-video-downloads/"><u>[Updated] A Citizen's Guide to C-Span Video Downloads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/1-unveiling-the-scariest-freshly-released-halloween-thrillers-of-2023-stream-now/"><u>1. Unveiling the Scariest: Freshly Released Halloween Thrillers of 2023 - Stream Now!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-archive-all-your-images-flawlessly-infinite-no-charge-and-elite-paid-storage/"><u>2024 Approved Archive All Your Images Flawlessly Infinite, No-Charge & Elite Paid Storage</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-20-free-mp3-gradulation-anthems-a-comprehensive-playlist/"><u>Best 20 Free MP3 Gradulation Anthems: A Comprehensive Playlist</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/discover-these-5-exceptional-free-tools-that-outshine-freemake-video-downloader-get-them-now/"><u>Discover These 5 Exceptional Free Tools That Outshine Freemake Video Downloader: Get Them Now</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-14-plus-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/free-downloads-the-ultimate-selection-of-top-10-sites-streaming-3d-movies-your-complete-guide/"><u>Free Downloads: The Ultimate Selection of Top 10 Sites Streaming 3D Movies - Your Complete Guide!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-beyond-basics-why-hdr-dominates-in-video-editing-workflows/"><u>In 2024, Beyond Basics Why HDR Dominates in Video Editing Workflows</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-windows-task-sequence-failure-error-0x8007000f/"><u>Navigating Through Windows' Task Sequence Failure (Error 0X8007000f)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-learning-video-resources-for-little-ones-free-downloads-and-viewing/"><u>Top Learning Video Resources for Little Ones: Free Downloads & Viewing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-guide-the-most-efficient-tools-to-download-4k-videos-in-mp4-or-mkv-format-online/"><u>Ultimate Guide: The Most Efficient Tools to Download 4K Videos in MP4 or MKV Format Online</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-mystery-of-ai-a-beginners-simple-explanation/"><u>Unveiling the Mystery of AI: A Beginner's Simple Explanation</u></a></li>
 </ul></div>
 

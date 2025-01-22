@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2025-01-14T05:47:39.099Z
-updated: 2025-01-15T16:52:49.477Z
+date: 2025-01-19T19:50:02.330Z
+updated: 2025-01-21T22:58:26.556Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,14 +238,17 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-elevating-video-popularity-on-youtube/"><u>[New] Elevating Video Popularity on YouTube</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-djis-edge-shifted-the-ultimate-mavic-air-vs-spark-showdown/"><u>[Updated] 2024 Approved DJI's Edge Shifted The Ultimate Mavic Air Vs. Spark Showdown</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-best-practices-for-youtube-thumbnail-dimensions/"><u>[Updated] Best Practices for YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-boost-traffic-critical-youtube-seo-instruments-for-video-success/"><u>[Updated] Boost Traffic Critical YouTube SEO Instruments for Video Success</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-detailed-visuals-in-ms-teams-video-calls/"><u>[Updated] In 2024, Detailed Visuals in MS Teams Video Calls</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unraveling-youtubes-ranks-the-deciding-elements/"><u>[Updated] In 2024, Unraveling YouTube's Ranks The Deciding Elements</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/two-effective-techniques-transforming-dts-tracks-into-ac3-format/"><u>Two Effective Techniques: Transforming DTS Tracks Into AC3 Format</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/1716465331321-youtube-style-essentials-download-for-free/"><u>YouTube Style Essentials - Download for FREE!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-linkedin-profile-video-introduction-scope-dimensions-minutes/"><u>[New] 2024 Approved LinkedIn Profile Video Introduction Scope, Dimensions, Minutes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-success-leading-business-channels-for-professionals/"><u>2024 Approved Crafting Success Leading Business Channels for Professionals</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-learning-to-let-go-of-hurtful-comments/"><u>2024 Approved Learning to Let Go of Hurtful Comments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlock-creative-potential-adding-text-to-windowsmac-images/"><u>2024 Approved Unlock Creative Potential Adding Text to Windows/Mac Images</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/cursor-awakening-post-blackout-win11/"><u>Cursor Awakening Post-Blackout Win11</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/digital-dollars-earn-from-youtubers-in-8-ways/"><u>Digital Dollars Earn From YouTubers in 8 Ways</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-isolated-viewers-to-shared-experiences-online/"><u>From Isolated Viewers to Shared Experiences Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-honor-v-purse-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Honor V Purse For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/imageslice-cutter/"><u>ImageSlice Cutter</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-jokeframe-creations-punpicture-studio/"><u>In 2024, JokeFrame Creations PunPicture Studio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/influence-of-seo-on-youtube-video-popularity/"><u>Influence of SEO on YouTube Video Popularity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unearthing-the-hidden-an-orderly-guide-to-covert-youtube-videos/"><u>Unearthing the Hidden An Orderly Guide to Covert YouTube Videos</u></a></li>
 </ul></div>
 

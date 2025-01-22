@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2025-01-09T01:43:34.512Z
-updated: 2025-01-16T05:35:07.779Z
+date: 2025-01-16T04:41:35.254Z
+updated: 2025-01-22T05:37:51.871Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,15 +238,22 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-eagle-eye-expedition-the-ultimate-guide-to-fps-game-selection-for-2024/"><u>[New] Eagle-Eye Expedition - The Ultimate Guide to FPS Game Selection for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pushing-boundaries-with-yuneecs-typhoon-h-drone/"><u>[Updated] Pushing Boundaries with Yuneec's Typhoon H Drone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-achieve-more-engagement-on-youtube-learn-the-best-thumbnail-size/"><u>2024 Approved Achieve More Engagement on YouTube Learn the Best Thumbnail Size</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-compelling-end-screens-in-youtube-videos/"><u>2024 Approved Crafting Compelling End Screens in YouTube Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-expertise-for-changing-meet-usernames-laptopmobile/"><u>2024 Approved Expertise for Changing Meet Usernames (Laptop/Mobile)</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/essential-mobile-media-creation-tools-iphone-vs-android-review-for-2024/"><u>Essential Mobile Media Creation Tools IPhone vs Android Review for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/ideal-ringtones-picks-high-quality-destinations/"><u>Ideal Ringtones Picks High-Quality Destinations</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-demystifying-the-powerhouse-behind-youtube-creator-hub/"><u>In 2024, Demystifying the Powerhouse Behind YouTube Creator Hub</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-unreliability-of-zerogpt-in-ai-authenticity-tests-what-you-should-know/"><u>The Unreliability of ZeroGPT in AI Authenticity Tests: What You Should Know</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-itel-p55t-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Itel P55T to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-content-creation-hacks-for-rapid-youtubers-growth/"><u>[New] Content Creation Hacks for Rapid Youtubers' Growth</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-dissecting-mr-beasts-fortune-portfolio/"><u>[New] Dissecting Mr. Beast's Fortune Portfolio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-captivating-crafting-writing-intriguing-youtube-descriptions-with-templates/"><u>[Updated] Captivating Crafting Writing Intriguing Youtube Descriptions with Templates</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-perfected-pixelated-photos-follow-the-10-key-composition-guidelines/"><u>[Updated] Perfected Pixelated Photos Follow the 10 Key Composition Guidelines</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-discover-how-to-design-dynamic-youtube-music-playlists/"><u>2024 Approved Discover How to Design Dynamic YouTube Music Playlists</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-easy-path-to-popularity-two-tactics-for-youtube-fame/"><u>2024 Approved Easy Path to Popularity Two Tactics for YouTube Fame</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/acquire-no-cost-sounds-for-videos-and-podcasts-for-2024/"><u>Acquire No-Cost Sounds for Videos & Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/channel-elevation-reach-youtube-affiliate-level-with-10k-views-for-2024/"><u>Channel Elevation Reach YouTube Affiliate Level with 10K Views for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/chuckle-factory-designing-7-video-ideas-for-humorists-for-2024/"><u>Chuckle Factory Designing 7 Video Ideas for Humorists for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/demystifying-the-world-of-youtube-shorts/"><u>Demystifying the World of YouTube Shorts</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-your-laptops-failing-charge-simple-solutions-for-a-full-battery/"><u>Fix Your Laptop's Failing Charge: Simple Solutions for a Full Battery!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475365984-struggling-with-disappearing-iphone-push-messages-try-these-7-hacks/"><u>Struggling with Disappearing iPhone Push Messages? Try These 7 Hacks!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ling-the-quintessential-five-strategic-moves-for-youtube-marketing-success-for-2024/"><u>Unveiling the Quintessential Five Strategic Moves for YouTube Marketing Success for 2024</u></a></li>
+<li><a href="https://techidaily.com/why-stellar-data-recovery-for-iphone-7-plus-takes-time-in-scanning-my-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why Stellar Data Recovery for iPhone 7 Plus takes time in scanning my iPhone? | Stellar</u></a></li>
 </ul></div>
 
