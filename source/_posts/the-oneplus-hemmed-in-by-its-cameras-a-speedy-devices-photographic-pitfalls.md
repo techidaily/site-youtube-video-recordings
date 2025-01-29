@@ -1,7 +1,7 @@
 ---
 title: The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
-date: 2025-01-15T22:35:13.618Z
-updated: 2025-01-22T02:21:28.267Z
+date: 2025-01-22T19:20:28.359Z
+updated: 2025-01-29T17:18:08.475Z
 categories:
   - BestProducts
 description: This Article Describes The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 ## 'Assassin's Creed: Valhalla' - Navigating Through an Epic Norse Saga in the Medieval Era
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
 
@@ -38,13 +42,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 4.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Assassin's Creed Valhalla (PC)
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -89,7 +93,7 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -130,10 +134,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Minigames: Enjoyable diversions**
 
  There’s more to do than fighting and exploring; in Valhalla there are a number of intriguing minigames to divert you from quests. I particularly enjoyed Flyting, which is a battle of words These are timed, competitive poetry contests where you must quickly select the most appropriate verse from a list of options. It’s both amusing and character building.
@@ -144,11 +144,19 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Customization: Lots of stuff to tweak**
 
  As in Odyssey, the game allows you to play as either male or female, and offers a range of cosmetic options, mainly by way of tattoos and hairstyles. New tattoo patterns are acquired through parkour challenges. What’s more interesting is the gameplay affecting clothing and weapons that alter your appearance—I particularly appreciated that upgrading those items affects their looks. You can choose from different ravens and horses, and change the appearance of your longship. Eventually, you will also be able to customize the appearance of your settlement.
 
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: Epic good looks**
 
@@ -160,10 +168,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process and Performance: A rough start**
 
  Assassin’s Creed: Valhalla is typical of modern AAA titles in that it requires a big download and a considerable amount of storage space to house on your PC or console. With the day one update to consider, you’re looking at around 50GB.
@@ -174,15 +178,15 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
 
  On a[gaming PC](https://www.lifewire.com/best-gaming-pcs-4045451) with a more powerful processor, more RAM, and an RTX 2070[GPU](https://www.lifewire.com/best-graphics-cards-4692676) , I didn’t encounter any glitches. However, the game is extremely power-hungry, and I was only able to run it at max settings with 60fps at 1080p. Ubisoft titles are known for being poorly optimized at launch, so this game should perform better after a few patches. Still, it’s clearly designed for next-gen consoles and the latest PC hardware. If you are playing on PC, be sure to utilize the benchmarking tool to find the ideal settings for your system.
 
  Of course, if you’re playing on[console](https://www.lifewire.com/best-gaming-consoles-4154610) you don’t have to worry about performance issues since the game is better optimized. It’s currently available for Xbox One and PlayStation 4, and will be available for the Xbox Series X and PlayStation 5 at launch. You can also get it on[Google Stadia](https://www.lifewire.com/google-stadia-review-4788032) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Typical AAA**
 
@@ -191,13 +195,13 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
@@ -209,10 +213,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Final Verdict: Epic stories and exciting combat in a sprawling open world.
 
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -237,22 +237,18 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-ace-ios-selection-of-best-psp-emulators/"><u>[Updated] 2024 Approved Ace iOS Selection of Best PSP Emulators</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-dissecting-ajey-nagars-2023-youtube-economic-landscape/"><u>[Updated] Dissecting Ajey Nagar's 2023 YouTube Economic Landscape</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-harnessing-potential-how-to-excel-on-spotify-ads/"><u>[Updated] Harnessing Potential How to Excel on Spotify Ads</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-videoleap-zoom-hacks-for-detailed-video-insight/"><u>[Updated] In 2024, Videoleap Zoom Hacks for Detailed Video Insight</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-detailed-guidance-on-crafting-dynamic-yt-profiles/"><u>2024 Approved Detailed Guidance on Crafting Dynamic YT Profiles</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-earnings-demystified-youtube-shorts-revenue-split-explained/"><u>2024 Approved Earnings Demystified YouTube Shorts Revenue Split Explained</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-you-watch-mov-movies-on-galaxy-f14-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can you watch MOV movies on Galaxy F14 5G ?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-y200e-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Vivo Y200e 5G</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/create-memorable-videos-with-the-right-thumbnail-font-for-2024/"><u>Create Memorable Videos with the Right Thumbnail Font for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-year-in-the-market-top-15-finance-videos/"><u>In 2024, A Year in the Market Top 15 Finance Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-constructing-attention-grabbing-trailers-for-youtube/"><u>In 2024, Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless/"><u>In 2024, Deciding on the Best Videography Camera Type DSLR or Mirrorless?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-soundstage-excellence-critical-interface-tips-for-podcasters/"><u>In 2024, Soundstage Excellence Critical Interface Tips for Podcasters</u></a></li>
-<li><a href="https://games-able.techidaily.com/master-class-on-resolving-common-graphics-card-problems/"><u>Master Class on Resolving Common Graphics Card Problems</u></a></li>
-<li><a href="https://program-issues.techidaily.com/master-gaming-performance-eradicate-stutters-and-boost-high-fps/"><u>Master Gaming Performance: Eradicate Stutters and Boost High FPS</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-solutions-stop-speaker-buzzing-with-these-simple-steps/"><u>Quick Solutions: Stop Speaker Buzzing with These Simple Steps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-guide-to-securing-your-youtube-videos/"><u>Step-by-Step Guide to Securing Your YouTube Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-elite-mobile-filming-tech-for-iphones/"><u>[New] In 2024, Elite Mobile Filming Tech for iPhones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-captivating-content-the-power-of-hashtagging-in-gaming-yt/"><u>[Updated] Crafting Captivating Content The Power of Hashtagging in Gaming YT</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-10-free-youtube-subtitle-extractors-and-downloaders/"><u>2024 Approved Best 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creating-a-prime-business-channel-top-picks-and-simple-steps/"><u>2024 Approved Creating a Prime Business Channel Top Picks & Simple Steps</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/direct-link-between-spotify-and-youtube-the-top-tools-for-music-sharing/"><u>Direct Link Between Spotify and YouTube The Top Tools for Music Sharing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-video-previews-a-compreayer-approach-for-youtube/"><u>Elevating Video Previews A Compreayer Approach for YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-ravenhill-resonance-essential-websites-to-download-hearing-heroes-tones/"><u>In 2024, Ravenhill Resonance Essential Websites to Download Hearing Heroes' Tones</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/key-principles-to-uphold-youtube-civility/"><u>Key Principles to Uphold YouTube Civility</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-vn-video-editor-pc-review-a-quick-overview/"><u>New VN Video Editor PC Review A Quick Overview</u></a></li>
+<li><a href="https://discover-best.techidaily.com/revolutionizing-logistics-through-automated-document-handling-the-key-to-digital-supply-chain-success/"><u>Revolutionizing Logistics Through Automated Document Handling - The Key to Digital Supply Chain Success</u></a></li>
+<li><a href="https://discover-help.techidaily.com/schritt-fur-schritt-leitfaden-zum-sicherung-von-gmail-postfachern-als-pst-dateien/"><u>Schritt-Für-Schritt-Leitfaden Zum Sicherung Von Gmail-Postfächern Als PST-Dateien</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/step-by-step-guide-recording-twitter-spaces-as-a-listenerhost-using-your-mobile-device/"><u>Step-by-Step Guide: Recording Twitter Spaces as a Listener/Host Using Your Mobile Device</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On ZTE Blade A73 5G? | Dr.fone</u></a></li>
 </ul></div>
 

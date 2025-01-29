@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2025-01-19T19:50:02.330Z
-updated: 2025-01-21T22:58:26.556Z
+date: 2025-01-22T18:02:38.553Z
+updated: 2025-01-29T20:07:52.398Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,17 +238,24 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-linkedin-profile-video-introduction-scope-dimensions-minutes/"><u>[New] 2024 Approved LinkedIn Profile Video Introduction Scope, Dimensions, Minutes</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-success-leading-business-channels-for-professionals/"><u>2024 Approved Crafting Success Leading Business Channels for Professionals</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-learning-to-let-go-of-hurtful-comments/"><u>2024 Approved Learning to Let Go of Hurtful Comments</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlock-creative-potential-adding-text-to-windowsmac-images/"><u>2024 Approved Unlock Creative Potential Adding Text to Windows/Mac Images</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/cursor-awakening-post-blackout-win11/"><u>Cursor Awakening Post-Blackout Win11</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/digital-dollars-earn-from-youtubers-in-8-ways/"><u>Digital Dollars Earn From YouTubers in 8 Ways</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/from-isolated-viewers-to-shared-experiences-online/"><u>From Isolated Viewers to Shared Experiences Online</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-honor-v-purse-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Honor V Purse For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/imageslice-cutter/"><u>ImageSlice Cutter</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-jokeframe-creations-punpicture-studio/"><u>In 2024, JokeFrame Creations PunPicture Studio</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/influence-of-seo-on-youtube-video-popularity/"><u>Influence of SEO on YouTube Video Popularity</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unearthing-the-hidden-an-orderly-guide-to-covert-youtube-videos/"><u>Unearthing the Hidden An Orderly Guide to Covert YouTube Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-evaluating-spend-on-youtube-campaigns/"><u>[New] Evaluating Spend on YouTube Campaigns</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-best-kid-approved-drones-for-beginning-pilots/"><u>[New] In 2024, Best Kid-Approved Drones for Beginning Pilots</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-charismatic-videos-with-diy-camera-setups/"><u>[Updated] Crafting Charismatic Videos with DIY Camera Setups</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-heavy-hovering-heroes-drone-innovations-of-today/"><u>[Updated] Heavy Hovering Heroes Drone Innovations of Today</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-leading-top-5-agile-and-lightweight-cameras-list/"><u>[Updated] In 2024, Leading Top 5 Agile and Lightweight Cameras List</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-continuous-viewing-setup-your-youtube-clips-for-tv-repetition/"><u>2024 Approved Continuous Viewing Setup Your YouTube Clips for TV Repetition</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/achieve-seamless-transitions-premiere-videos-on-youtube-for-2024/"><u>Achieve Seamless Transitions Premiere Videos on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/break-it-down-free-techniques-to-go-frame-by-frame-on-youtube-for-2024/"><u>Break It Down Free Techniques to Go Frame by Frame on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/composing-correspondents-curtains-for-2024/"><u>Composing Correspondents' Curtains for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/efficiently-edit-your-youtube-videos-using-sony-vegas-for-2024/"><u>Efficiently Edit Your YouTube Videos Using Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/event-harmony-sourcing-perfect-dj-video-templates/"><u>Event Harmony Sourcing Perfect DJ Video Templates</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/gateways-to-googles-advertising-on-youtube-platforms/"><u>Gateways to Google's Advertising on YouTube Platforms</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-render-and-upload-your-youtube-video-faster/"><u>How to Render and Upload Your YouTube Video Faster?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-prime-chrome-drawing-programs-the-ultimate-list/"><u>In 2024, Prime Chrome Drawing Programs The Ultimate List</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/inspirational-themes-for-regular-vlogs/"><u>Inspirational Themes for Regular Vlogs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneering-youtube-visibility-through-strategic-thumbnails/"><u>Pioneering YouTube Visibility Through Strategic Thumbnails</u></a></li>
+<li><a href="https://extra-information.techidaily.com/proven-steps-to-convert-webp-to-high-quality-jpeg/"><u>Proven Steps to Convert WebP to High-Quality JPEG</u></a></li>
+<li><a href="https://win-blog.techidaily.com/revolutionary-solutions-effectively-overcome-dreamlight-valleys-pc-malfunctions/"><u>Revolutionary Solutions: Effectively Overcome Dreamlight Valley's PC Malfunctions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/strategies-for-securely-amassing-one-million-video-watches/"><u>Strategies for Securely Amassing One Million Video Watches</u></a></li>
 </ul></div>
 
