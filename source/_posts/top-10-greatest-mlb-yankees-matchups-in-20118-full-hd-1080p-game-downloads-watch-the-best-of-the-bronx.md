@@ -1,7 +1,7 @@
 ---
 title: "Top 10 Greatest MLB Yankees Matchups in 201([[18]: Full HD (1080P) Game Downloads - Watch the Best of the Bronx!"
-date: 2025-01-24T22:03:52.190Z
-updated: 2025-01-29T20:57:13.621Z
+date: 2025-02-05T20:29:43.541Z
+updated: 2025-02-09T16:15:13.726Z
 tags:
   - youtube-download
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/f8d47de4a877c211227285c8800b3d072256df0cc
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Top 10 New York Yankees Games Download Free 2018 in 1080p
 
@@ -39,10 +43,6 @@ Now that it's still in the 2018 MLB regular seasons period, you may continue to 
 To make sure you don't miss a single Yankees games in the following season, you can bookmark this article & share it with friends as a reminder. 
 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
 
@@ -73,7 +73,7 @@ Matchups: Yankees, W, 2-1
 [![2018 MLB Groups Logos](https://www.5kplayer.com/youtube-download/img/mlb-group-logos.jpg)](https://tools.techidaily.com/5kplayer/products/) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **NO. 7 Yankees Game vs Detroit Tigers 2018 Spring Training 23/02**  
@@ -92,10 +92,6 @@ Matchups: NYY W, 4-2
 Source: https://youtu.be/7pL\_RRDudzY  
 Matchups: New York Yankees L: 4- 5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best Yankees Pitchers 2018
 
 **Luis Cessa** 
@@ -108,7 +104,7 @@ Matchups: New York Yankees L: 4- 5
  It took only 2 years for Luis Severino to become one of the best New York Yankees best pitchers since he joined the team in 2015\. Yankees is the first and only team for Severino since his debut, unlike Chapman, he preferred the right hand for both bats and through in New York Yankees games. 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Download Yankees Games HD 1080p with 5KPlayer?
@@ -126,7 +122,7 @@ Matchups: New York Yankees L: 4- 5
 ![Download Yankees Games 1080p](https://www.5kplayer.com/youtube-download/img/yankees-game-download.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Playlist of Yankees Games in 5KPlayer?
@@ -143,6 +139,10 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -158,20 +158,20 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-delving-into-mr-beasts-economic-dominance/"><u>[Updated] Delving Into Mr. Beast's Economic Dominance</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/4-ways-to-unlock-apple-iphone-11-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>4 Ways to Unlock Apple iPhone 11 to Use USB Accessories Without Passcode</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/creating-time-lapse-from-single-photographs/"><u>Creating Time-Lapse From Single Photographs</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/discover-the-best-copilotplus-laptop-picks-from-ifa-2er-2024-including-gaming-models-reviewed-by-tech-experts/"><u>Discover the Best Copilot+ Laptop Picks From IFA 2Er 2024 Including Gaming Models Reviewed by Tech Experts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/enhancing-video-quality-editing-tips-for-published-content/"><u>Enhancing Video Quality Editing Tips for Published Content</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ensuring-profit-tracking-on-your-channel/"><u>Ensuring Profit Tracking on Your Channel</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-assessing-the-best-platform-for-individual-use-tiktok-vs-shorts/"><u>In 2024, Assessing the Best Platform for Individual Use TikTok vs Shorts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-diy-youtube-thumbnails-on-smartphones/"><u>In 2024, DIY YouTube Thumbnails on Smartphones</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-lenovo-thinkphone-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Lenovo ThinkPhone to Mac? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-itel-p55-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Itel P55 5G to Another | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-the-art-of-anime-adaptation-jujutsu-kaisens-tiktok-success/"><u>In 2024, The Art of Anime Adaptation Jujutsu Kaisen's TikTok Success</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ions-innovation-showcased-action-camera-review-of-pro-3-model/"><u>ION's Innovation Showcased Action Camera Review of Pro 3 Model</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/resolve-your-amazon-prime-showmovie-subtitle-issues-with-these-easy-steps/"><u>Resolve Your Amazon Prime Show/Movie Subtitle Issues with These Easy Steps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/squashing-social-media-smears-with-grace/"><u>Squashing Social Media Smears with Grace</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/youtubes-monetization-value-per-million-views/"><u>Youtube's Monetization Value per Million Views</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-creating-memorable-beginnings-imovie-tips-for-youtube-videos/"><u>[New] Creating Memorable Beginnings IMovie Tips for YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-unknown-to-social-superstar-master-these-15-insta-growth-strategies-for-fast-results/"><u>[New] From Unknown to Social Superstar Master These 15 Insta Growth Strategies for Fast Results</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-prime-routines-for-documenting-live-sports-events/"><u>[New] In 2024, Prime Routines for Documenting Live Sports Events</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-artisans-crafting-marvel-fantasy-landscapes/"><u>[Updated] Artisans Crafting Marvel Fantasy Landscapes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-video-to-audio-quickly-create-mp3-from-youtube-on-mac/"><u>[Updated] From Video to Audio Quickly Create MP3 From YouTube on Mac</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-accelerate-mac-youtube-video-matching-aspect-ratio/"><u>2024 Approved Accelerate Mac Youtube Video Matching Aspect Ratio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-video-magic-with-imovie-directed-to-youtube/"><u>2024 Approved Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-truth-behind-the-illusion-buying-non-existent-youtube-backers/"><u>2024 Approved Truth Behind the Illusion Buying Non-Existent YouTube Backers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-understanding-your-earning-potential-youtubes-latest-rules/"><u>2024 Approved Understanding Your Earning Potential - YouTube's Latest Rules</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/editing-essentials-your-go-to-guide-for-beginner-vloggers/"><u>Editing Essentials Your Go-To Guide for Beginner Vloggers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/fake-following-fiasco-avoiding-illusory-supporters-in-social-media-space/"><u>Fake Following Fiasco Avoiding Illusory Supporters in Social Media Space</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/scripts-that-shaped-cinema-for-2024/"><u>Scripts That Shaped Cinema for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/social-media-snipping-an-easy-method-for-capturing-twitters-gifs-for-2024/"><u>Social Media Snipping An Easy Method for Capturing Twitter’s GIFs for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211360137--the-buddhas-gift-to-the-world/"><u>The Buddha's Gift to the World | Free Book</u></a></li>
+<li><a href="https://win-web.techidaily.com/troubleshooting-guide-resolving-issues-with-your-graphics-card-insights-from-yl-computing/"><u>Troubleshooting Guide: Resolving Issues with Your Graphics Card - Insights From YL Computing</u></a></li>
 </ul></div>
 

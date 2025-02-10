@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2025-01-27T16:26:58.134Z
-updated: 2025-01-29T17:02:11.848Z
+date: 2025-02-08T16:30:19.894Z
+updated: 2025-02-10T05:32:21.423Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,18 +238,24 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-delving-into-popular-discussion-threads-on-youtube/"><u>[New] Delving Into Popular Discussion Threads on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-top-video-formats-for-maximum-youtube-engagement/"><u>[New] In 2024, Top Video Formats for Maximum YouTube Engagement</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-in-pursuit-of-professional-clarity-unveiling-benqs-bl2711u-screen-tech/"><u>[New] In Pursuit of Professional Clarity Unveiling BenQ's BL2711U Screen Tech</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-premium-guide-capturing-and-storing-tweets-jokes-on-pc/"><u>[New] Premium Guide Capturing and Storing Tweets Jokes on PC</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-transform-your-images-erase-backdrops-with-canva-skills/"><u>[New] Transform Your Images Erase Backdrops with Canva Skills</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-seo-enhanced-title-builder-for-peak-video-visibility/"><u>[Updated] SEO-Enhanced Title Builder for Peak Video Visibility</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>2024 Approved Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-empower-your-video-creation-blending-youtube-and-imovie-for-impressive-results/"><u>2024 Approved Empower Your Video Creation Blending YouTube and iMovie for Impressive Results</u></a></li>
-<li><a href="https://fox-info.techidaily.com/discover-10-superior-online-photo-background-swappers/"><u>Discover 10 Superior Online Photo Background Swappers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/efficient-thumbnail-generation-with-your-phone-for-video-content/"><u>Efficient Thumbnail Generation with Your Phone for Video Content</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-charting-the-unknown-visual-facts-from-2017s-youtube-world/"><u>In 2024, Charting the Unknown Visual Facts From 2017'S Youtube World</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-explore-the-finest-free-luts-of-the-year/"><u>In 2024, Explore the Finest FREE LUTs of the Year</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-leading-list-the-best-10-apps-for-live-racing-and-rugby-streaming-for-2024/"><u>[New] Leading List The Best 10 Apps for Live Racing & Rugby Streaming for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-securing-your-zoom-conference-room-audio-and-video-considerations-for-2024/"><u>[New] Securing Your Zoom Conference Room Audio & Video Considerations for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-discovering-the-top-8-truly-efficient-advancement-services/"><u>[Updated] Discovering the Top 8 Truly Efficient Advancement Services</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-enhancing-engagement-imovie-techniques-for-youtube-intros/"><u>[Updated] Enhancing Engagement IMovie Techniques for YouTube Intros</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essentials-to-skyrocketing-video-views-on-youtube/"><u>[Updated] Essentials to Skyrocketing Video Views on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-essentials-of-simple-straightforward-hdr-techniques-for-2024/"><u>[Updated] The Essentials of Simple, Straightforward HDR Techniques for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-avoid-draft-overload-on-tiktok-by-mastering-edit-techniques/"><u>2024 Approved Avoid Draft Overload on TikTok by Mastering Edit Techniques</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/achieving-audiovisual-excellence-with-srt-and-mp4-the-ultimate-guide/"><u>Achieving Audiovisual Excellence with SRT and MP4 - The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/conveniently-connect-with-others-via-your-playlist-for-2024/"><u>Conveniently Connect with Others via Your Playlist for 2024</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/exploring-the-concept-of-index-or-homepage-your-guide-to-browsers-main-file/"><u>Exploring the Concept of 'Index' Or Homepage: Your Guide to Browser's Main File</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-s17-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo S17 Pro</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-live-broadcasts-a-step-by-step-guide-for-fb-users/"><u>In 2024, Mastering Live Broadcasts A Step-by-Step Guide for FB Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/layout-layers-a-guide-to-organizing-online-videos/"><u>Layout Layers A Guide to Organizing Online Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximize-your-income-through-strategic-use-of-youtube-shorts/"><u>Maximize Your Income Through Strategic Use of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/smart-strategies-for-entrepreneurial-video-marketing/"><u>SMART Strategies for Entrepreneurial Video Marketing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-17-unbeatable-cyber-monday-offers-save-big-on-televisions-earbuds-and-sound-systems-exclusive-picks/"><u>Top 17 Unbeatable Cyber Monday Offers: Save Big on Televisions, Earbuds & Sound Systems - Exclusive Picks !</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-compatibility-chart-updating-razer-drivers-on-various-windows-platforms/"><u>Ultimate Compatibility Chart: Updating Razer Drivers on Various Windows Platforms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-playbook-navigating-youtube-etiquette/"><u>Ultimate Playbook Navigating YouTube Etiquette</u></a></li>
 </ul></div>
 

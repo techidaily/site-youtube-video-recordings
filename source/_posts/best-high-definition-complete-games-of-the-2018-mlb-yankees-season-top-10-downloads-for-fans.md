@@ -1,7 +1,7 @@
 ---
 title: "Best High-Definition Complete Games of the 2018 MLB Yankees Season: Top 10 Downloads for Fans"
-date: 2025-01-25T20:54:19.514Z
-updated: 2025-01-29T21:38:44.691Z
+date: 2025-02-04T19:41:56.175Z
+updated: 2025-02-09T19:55:34.491Z
 tags:
   - youtube-download
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/75afd5a2790c3528915ac28a66faf57312a6eb60a
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Top 10 New York Yankees Games Download Free 2018 in 1080p
 
@@ -34,7 +38,7 @@ As probably the most popular baseball team in the American League East division,
 [4\. How to Download Yankees Games 1080p with 5KPlayer?](https://tools.techidaily.com/5kplayer/youtube-download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New York Yankees Games Schedule July 24 – August 15
@@ -45,7 +49,7 @@ To make sure you don't miss a single Yankees games in the following season, you 
 Now you may directly watch the following top 10 2018 Yankees games download in 1080p, or you can jump to the end of the article for the schedule of Yankees games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2018 Top 10 Yankees Games
@@ -92,10 +96,6 @@ Matchups: NYY W, 4-2
 Source: https://youtu.be/7pL\_RRDudzY  
 Matchups: New York Yankees L: 4- 5
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Best Yankees Pitchers 2018
 
 **Luis Cessa** 
@@ -122,7 +122,7 @@ Matchups: New York Yankees L: 4- 5
 ![Download Yankees Games 1080p](https://www.5kplayer.com/youtube-download/img/yankees-game-download.jpg) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Playlist of Yankees Games in 5KPlayer?
@@ -135,13 +135,13 @@ Matchups: New York Yankees L: 4- 5
 
 ![Create Yankees Games Playlist](https://www.5kplayer.com/youtube-download/img/mlb-playlist.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The free 5KPlayer is a one-stop solution for users to not only download Yankees games free, also it helps download MLB games highlights, download best walk up songs for baseball, and download full match videos from sports streaming sites. If you'd like to download MLB Yankees games videos for offline watching, don't hesitate to download 5KPlayer for Windows and Mac for free now. 
 
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,22 +158,21 @@ The free 5KPlayer is a one-stop solution for users to not only download Yankees 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-enhancing-youtube-presence-creating-professional-thumbnails-from-smartphones/"><u>[New] Enhancing YouTube Presence Creating Professional Thumbnails From Smartphones</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-common-issues-with-youtube-shorts-thumbnails/"><u>[Updated] Common Issues with YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-5-eco-conscious-filmmaking-advances/"><u>[Updated] In 2024, Top 5 Eco-Conscious Filmmaking Advances</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-privacy-centric-explore-instagram-stories-anon-on-your-devices/"><u>[Updated] Privacy-Centric Explore Instagram Stories Anon on Your Devices</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/9-crucial-aspects-you-shouldnt-overlook-before-investing-in-a-dash-cam/"><u>9 Crucial Aspects You Shouldn't Overlook Before Investing in a Dash Cam</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/avoid-piracy-safe-youtube-to-mp4-conversion-tips-for-2024/"><u>Avoid Piracy Safe YouTube to MP4 Conversion Tips for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/decoding-your-youtubes-view-zero-dilemma-10-insights/"><u>Decoding Your YouTube's View-Zero Dilemma 10 Insights</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dive-into-hardware-with-tom-expert-tips-and-advice/"><u>Dive Into Hardware with Tom - Expert Tips & Advice</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/experts-rank-and-review-the-most-exceptional-travel-friendly-computers-ideal-for-remote-work-s-picks/"><u>Experts Rank and Review the Most Exceptional Travel-Friendly Computers Ideal for Remote Work 'S Picks</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-15-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 15 to the Latest iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-boosting-your-yt-subs-a-complete-strategy-guide/"><u>In 2024, Boosting Your YT Subs A Complete Strategy Guide</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-6s-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone 6s</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-lava-blaze-pro-5gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Lava Blaze Pro 5GFRP Lock</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/recording-youtube-videos-effortlessly-the-free-way-to-screencasts/"><u>Recording YouTube Videos Effortlessly - The Free Way to Screencasts</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/steps-to-fade-audio-in-premier-pro/"><u>Steps To Fade Audio In Premier Pro</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-novices-route-to-revenue-in-the-youtube-realm/"><u>The Novice's Route to Revenue in the YouTube Realm</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-deciphering-user-insights-in-youtube-comments/"><u>[Updated] Deciphering User Insights in YouTube Comments</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-anime-for-your-lifes-highlights-todays-most-captivating-streaming-channels-2023-new/"><u>2024 Approved Anime for Your Life’s Highlights Today's Most Captivating Streaming Channels [2023 New]</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creating-captivating-life-enriching-video-content/"><u>2024 Approved Creating Captivating Life-Enriching Video Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-content-game-with-these-5-proven-youtube-marketing-hacks/"><u>2024 Approved Elevate Your Content Game with These 5 Proven YouTube Marketing Hacks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/commanding-the-screen-top-10-women-gamers-yt-for-2024/"><u>Commanding the Screen Top 10 Women Gamers YT for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719380036891-dual-virus-defense-think-again-windows-users/"><u>Dual Virus Defense? Think Again, Windows Users</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-infinix-smart-7-hd-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Infinix Smart 7 HD?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-realme-narzo-60-pro-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Realme Narzo 60 Pro 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://win-net.techidaily.com/insights-into-the-sociopolitical-impact-of-chinas-great-proletarian-cultural-revolution-an-expert-analysis/"><u>Insights Into The Sociopolitical Impact of China's Great Proletarian Cultural Revolution - An Expert Analysis</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/integrating-instant-video-playback-within-the-social-media-webspace-for-2024/"><u>Integrating Instant Video Playback Within the Social Media Webspace for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/m4v-naar-wav-konvertieren-vrije-onlinelastkundige-movavi/"><u>M4V Naar WAV Konvertieren Vrije Onlinelastkundige - Movavi</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/navigate-effortlessly-how-to-clear-your-browsers-youtube-cache/"><u>Navigate Effortlessly How to Clear Your Browser's YouTube Cache</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-rich-tapestry-of-african-linguistics/"><u>The Rich Tapestry of African Linguistics</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-the-black-startup-error-in-rainbow-six-siege-for-windows-computers/"><u>Troubleshooting the Black Startup Error in Rainbow Six Siege for Windows Computers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-itel-p40-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
 </ul></div>
 

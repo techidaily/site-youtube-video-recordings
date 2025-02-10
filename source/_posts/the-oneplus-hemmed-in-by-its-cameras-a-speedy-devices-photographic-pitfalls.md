@@ -1,7 +1,7 @@
 ---
 title: The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
-date: 2025-01-22T19:20:28.359Z
-updated: 2025-01-29T17:18:08.475Z
+date: 2025-02-08T01:40:56.536Z
+updated: 2025-02-10T07:03:15.415Z
 categories:
   - BestProducts
 description: This Article Describes The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls
@@ -14,7 +14,7 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 4.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Assassin's Creed Valhalla (PC)
@@ -46,10 +46,6 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC Vallhalla](https://www.lifewire.com/thmb/1uTfLpDv2WlYuf-Ekg6qBUTQqP4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Assassins-Creed-Valhalla-1-b7cabc5b5656439bbb47518048f57aa5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
 
 [View On Ubi.com](https://store.ubi.com/us/assassins-creed-valhalla/5e849c6c5cdf9a21c0b4e731.html)
@@ -74,6 +70,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  I played the game on PC for several days, but it’s also available on all other major platforms including the upcoming[Xbox Series X](https://www.lifewire.com/price-release-date-specs-xbox-series-x-5077092) , Xbox One, upcoming[PlayStation 5](https://www.lifewire.com/playstation-5-4778089) , and PlayStation 4\.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Story: A lot going on, and none of it to be spoiled**
 
  There’s a lot to say here, but not much that can be said without spoilers. Given how engaging I found the plot, it would be a shame to spoil it in any way. Suffice it to say that, though it begins as a typical revenge story, it soon becomes more complex and interesting. You play as Eivor, a male or female warrior who raids England during the reign of Alfred the Great.
@@ -92,11 +92,11 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC sneak](https://www.lifewire.com/thmb/Vk4XvoE4lJwcjde1C_tJUVBc0Ac=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-9-a5e8ef2a5bef455d8cbaa9e749167f53.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Easy to pick up, challenging to master**
 
@@ -113,6 +113,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Ubisoft has truly mastered the mechanics of boats, and sailing is just pure joy with your loyal crew singing their way down the fjords as the wind whistles in the rigging, your ship riding the realistic swells. Alternatively, your bard may accompany your seafaring with diverting tales. If there’s one downside is that unlike Odyssey, there’s no ship-to-ship naval combat, but perhaps that makes sense because the Vikings were more land raiders despite their extensive use of longboats to travel.
 
 ![AC Valhalla 3](https://www.lifewire.com/thmb/giaP-JV9QK6uFcdU_di4iWkvszw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-5-56a01de51a2a4540ae8650bece502873.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -134,6 +138,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Valhalla gives you plenty of ways to customize your experience. You can adjust the difficulty of stealth, combat, and exploration separately, so you can choose which gameplay elements are difficult and which you’d rather not get in the way. Additionally, mature elements in the game such as blood and gore can be toggled on and off, which will be a[relief to parents](https://www.lifewire.com/best-pc-games-4147292) and a boon to anyone who doesn’t fancy seeing severed heads flying through the air.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Minigames: Enjoyable diversions**
 
  There’s more to do than fighting and exploring; in Valhalla there are a number of intriguing minigames to divert you from quests. I particularly enjoyed Flyting, which is a battle of words These are timed, competitive poetry contests where you must quickly select the most appropriate verse from a list of options. It’s both amusing and character building.
@@ -144,19 +152,11 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Customization: Lots of stuff to tweak**
 
  As in Odyssey, the game allows you to play as either male or female, and offers a range of cosmetic options, mainly by way of tattoos and hairstyles. New tattoo patterns are acquired through parkour challenges. What’s more interesting is the gameplay affecting clothing and weapons that alter your appearance—I particularly appreciated that upgrading those items affects their looks. You can choose from different ravens and horses, and change the appearance of your longship. Eventually, you will also be able to customize the appearance of your settlement.
 
  I was particularly struck by the amber rays of the setting sun that slanted through the rigging of my longboat as I returned from a mountain climbing excursion.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Graphics: Epic good looks**
 
@@ -165,6 +165,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Towns and cities are richly detailed, with people going about their daily business in this muddy and gritty medieval setting. The wilderness is also magnificent, with wild natural beauty and towering ruins in equal measure. Wildlife and farm animals are both present in this world, adding vibrancy to the countryside.
 
 ![AC Mountain](https://www.lifewire.com/thmb/YazM4IIiw6qfR_cd-AfR8Cek9pg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-10-b813058de14c4b92978d22f84715ab98.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -179,7 +183,7 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 ![AC ruins](https://www.lifewire.com/thmb/R1pb8_CqlpJqAmK9Ka9-pgyOyJk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-3-ea07cee8afaa4cc89c4e2bb286b894a0.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
@@ -194,15 +198,7 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 ![AC horse](https://www.lifewire.com/thmb/teY5MG-6xAT5sxNurIFy_iYPPvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Assassins-Creed-Valhalla-2-58ab82ef1f624e01b1c1c6dab8bca06b.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Assassin’s Creed: Valhalla vs. Watch Dogs: Legion**
 
@@ -213,6 +209,10 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
  Final Verdict: Epic stories and exciting combat in a sprawling open world.
 
  Assassin’s Creed: Valhalla exceeds, as Assassin’s Creed games so often do, in creating the most painstakingly detailed virtual recreation of a place and period possible. It’s got exploration, intense combat, and enthralling stories by the bucket full, and it’s easy to get lost in its sheer scope and scale. Just beware if you’re playing on a PC that will test the limits of your gaming rig.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -237,18 +237,22 @@ thumbnail: https://www.lifewire.com/thmb/qWmgWoUD3MnDCB22yGL0FMG_rdg=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-elite-mobile-filming-tech-for-iphones/"><u>[New] In 2024, Elite Mobile Filming Tech for iPhones</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-captivating-content-the-power-of-hashtagging-in-gaming-yt/"><u>[Updated] Crafting Captivating Content The Power of Hashtagging in Gaming YT</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-best-10-free-youtube-subtitle-extractors-and-downloaders/"><u>2024 Approved Best 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-creating-a-prime-business-channel-top-picks-and-simple-steps/"><u>2024 Approved Creating a Prime Business Channel Top Picks & Simple Steps</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/direct-link-between-spotify-and-youtube-the-top-tools-for-music-sharing/"><u>Direct Link Between Spotify and YouTube The Top Tools for Music Sharing</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/elevating-video-previews-a-compreayer-approach-for-youtube/"><u>Elevating Video Previews A Compreayer Approach for YouTube</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-ravenhill-resonance-essential-websites-to-download-hearing-heroes-tones/"><u>In 2024, Ravenhill Resonance Essential Websites to Download Hearing Heroes' Tones</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/key-principles-to-uphold-youtube-civility/"><u>Key Principles to Uphold YouTube Civility</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-vn-video-editor-pc-review-a-quick-overview/"><u>New VN Video Editor PC Review A Quick Overview</u></a></li>
-<li><a href="https://discover-best.techidaily.com/revolutionizing-logistics-through-automated-document-handling-the-key-to-digital-supply-chain-success/"><u>Revolutionizing Logistics Through Automated Document Handling - The Key to Digital Supply Chain Success</u></a></li>
-<li><a href="https://discover-help.techidaily.com/schritt-fur-schritt-leitfaden-zum-sicherung-von-gmail-postfachern-als-pst-dateien/"><u>Schritt-Für-Schritt-Leitfaden Zum Sicherung Von Gmail-Postfächern Als PST-Dateien</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/step-by-step-guide-recording-twitter-spaces-as-a-listenerhost-using-your-mobile-device/"><u>Step-by-Step Guide: Recording Twitter Spaces as a Listener/Host Using Your Mobile Device</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-designing-engaging-podcast-teasers-for-2024/"><u>[New] Designing Engaging Podcast Teasers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-social-scoop-twitters-trending-talks/"><u>[Updated] Social Scoop Twitter’s Trending Talks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-decoding-the-revised-youtube-earnings-criteria/"><u>2024 Approved Decoding the Revised YouTube Earnings Criteria</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beginners-guide-to-budget-friendly-webinars-using-youtube/"><u>Beginner's Guide to Budget-Friendly Webinars Using YouTube</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/dissecting-the-financial-strategy-of-t-series-in-video-platforms-for-2024/"><u>Dissecting the Financial Strategy of T-Series in Video Platforms for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ensuring-thumbnails-show-shorts-video-troubleshooting-for-2024/"><u>Ensuring Thumbnails Show Shorts Video Troubleshooting for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/grandview-media-mastering-the-art-of-selecting-a-cms/"><u>Grandview Media Mastering the Art of Selecting a CMS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-motorola-edge-40-pro-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Motorola Edge 40 Pro Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-tecno-spark-10-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Tecno Spark 10 Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-achieving-1k-subs-in-a-weekend-a-plan-of-action/"><u>In 2024, Achieving 1K Subs in a Weekend A Plan of Action</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-plus-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 7 Plus Passcode Screen?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-vivo-y100-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Vivo Y100 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/incredible-trend-trackers-monitor-highest-youtube-spots/"><u>Incredible Trend Trackers Monitor Highest YouTube Spots</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/master-your-memories-stellar-imaging-recovery-for-windows-8-pro-and-home/"><u>Master Your Memories: Stellar Imaging Recovery for Windows 8 Pro & Home</u></a></li>
+<li><a href="https://solve-news.techidaily.com/revolutionizing-the-ap-process-enhancing-efficiency-through-ai-insights-from-abbyy/"><u>Revolutionizing the AP Process: Enhancing Efficiency Through AI - Insights From ABBYY</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/understanding-and-mastering-youtube-live-visuals-for-engagement/"><u>Understanding and Mastering YouTube Live Visuals for Engagement</u></a></li>
 </ul></div>
 
