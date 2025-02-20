@@ -1,7 +1,7 @@
 ---
 title: Discover the Best Substitutes to ChatGPT's Conversational Technology
-date: 2025-02-05T04:09:35.710Z
-updated: 2025-02-10T02:59:25.798Z
+date: 2025-02-14T09:24:07.970Z
+updated: 2025-02-20T09:21:10.626Z
 tags:
   - chatgpt
   - open-ai
@@ -24,7 +24,7 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 * [Temporary Chat](https://copa.sjv.io/6eoowq)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Key Takeaways
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
  OpenAI's early May 2024 ChatGPT update was enormous, bringing heaps of new features to the world's leading generative AI chatbot. Most of the improvements center around enhancing user interaction, new functionalities, and improving overall performance, and there are heaps of reasons why you should give them a try.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Image Input and Output Capabilities
@@ -52,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/b993525d5116d4df453998a70a05051f652313974
 ![Asking ChatGPT to identify and make recipes for ingredients based on an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/asking-chatgpt-for-recipes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It gave me some pretty accurate results in identifying items in the fridge and giving recipes I could make using the ingredients identified.
@@ -77,12 +77,16 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 ![Using ChatGPT as an AI assistant using memory and web browsing features](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-as-assistant-using-expanded-knowledge-base-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ChatGPT provided sound advice by browsing the web for the weather and reviewing its memory of my schedule. It even gave me a list of activities I could do instead based on my past interactions with ChatGPT.
 
  The browsing capability feature is now available for both Plus and Free tier users, while ChatGPT Memory is only available to Plus users.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Multi-Modal Voice and Video Interactions
@@ -102,10 +106,6 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
  Here, I’ve given ChatGPT-4o an SQL file containing a database from an e-commerce project and asked it to analyze and graph the top products commonly ordered.
 
 ![Using-ChatGPT-Advanced-Data-Analysis](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/using-chatgpt-advanced-data-analysis.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  I already knew the numbers before running it using ADA on ChatGPT-4o, so I know the provided graph is accurate. However, running it on ChatGPT-4 continually gave me errors, was slow, and never really provided me with the graph. So, although ADA is not functionally different from the old code interpreter, running ADA right on ChatGPT-4o was certainly easier, faster, and smarter.
 
@@ -136,19 +136,20 @@ I asked ChatGPT what MakeUseOf would look like if it were a robot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-essential-tips-for-mov-saving-on-windows-10/"><u>[New] In 2024, Essential Tips for MOV Saving on Windows 10</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-platform-prowess-at-play-twitch-vs-youtube-clash/"><u>[New] Platform Prowess at Play Twitch vs YouTube Clash</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-best-10-spotify-recorders/"><u>[Updated] 2024 Approved Best 10 Spotify Recorders</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-focus-on-clarity-the-best-zooming-video-editors-list/"><u>[Updated] Focus on Clarity - The Best Zooming Video Editors List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-best-practices-for-free-clipart-use-in-projects/"><u>[Updated] In 2024, Best Practices for Free Clipart Use in Projects</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-xiaomi-redmi-12-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Xiaomi Redmi 12 Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/decoding-cryptic-dx-hurdle-from-lol-gameplay/"><u>Decoding Cryptic DX Hurdle From LoL Gameplay</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/mastering-ps4-camera-position-a-step-by-step-guide/"><u>Mastering PS4 Camera Position: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/overcoming-roblox-performance-problems-with-limited-memory-on-iphone/"><u>Overcoming Roblox Performance Problems with Limited Memory on iPhone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/reviewing-the-asus-rog-rapture-gt-ax11000-unleashing-lightning-fast-internet-for-gamers/"><u>Reviewing the Asus ROG Rapture GT-AX11000: Unleashing Lightning Fast Internet for Gamers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-oneplus-hemmed-in-by-its-cameras-a-speedy-devices-photographic-pitfalls/"><u>The OnePlus Hemmed in by Its Cameras - A Speedy Device's Photographic Pitfalls</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-guide-to-the-best-large-screen-laptops/"><u>Ultimate Guide to the Best Large Screen Laptops</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/unmasking-the-dangerous-monsters-in-monster-hunter-world-an-expert-review/"><u>Unmasking the Dangerous Monsters in 'Monster Hunter: World' – An Expert Review</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-s-top-free-divx-video-editors-for-cutting-and-trimming/"><u>Updated 2024 Approved S Top Free Divx Video Editors for Cutting and Trimming</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-beyond-the-basics-advanced-techniques-for-improved-recordings/"><u>[New] Beyond the Basics Advanced Techniques for Improved Recordings</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-engage-viewers-from-the-start-mobile-film-techniques-for-thumbnails/"><u>[New] Engage Viewers From the Start Mobile Film Techniques for Thumbnails</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-advanced-strategies-for-screen-recording-on-ipad/"><u>[New] In 2024, Advanced Strategies for Screen Recording on iPad</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sci-fis-virtual-quest-the-best-movies-to-discover-alien-universes-for-2024/"><u>[New] Sci-Fi's Virtual Quest The Best Movies to Discover Alien Universes for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transforming-webp-images-into-jpegs-effortlessly/"><u>[New] Transforming WebP Images Into JPEGs Effortlessly</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-boosting-engagement-customizing-your-shorts-first-impressions/"><u>2024 Approved Boosting Engagement Customizing Your Shorts' First Impressions</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722987437454-ark-survival-ascended-keeps-crashing-on-pc-9-fixes/"><u>ARK: Survival Ascended Keeps Crashing on PC – 9 Fixes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/brief-overview-of-the-quickest-chroma-key-tricks/"><u>Brief Overview of the Quickest Chroma Key Tricks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-nokia-g42-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Nokia G42 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-demystifying-the-advanced-features-in-vlc/"><u>In 2024, Demystifying the Advanced Features in VLC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fleet-footed-fun-prime-pc-and-mobile-game-picks/"><u>In 2024, Fleet-Footed Fun Prime PC and Mobile Game Picks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/seamless-music-integration-transform-your-favorite-tunes-into-youtube-content/"><u>Seamless Music Integration Transform Your Favorite Tunes Into YouTube Content</u></a></li>
+<li><a href="https://app-tips.techidaily.com/top-4-innovative-loop-video-creators-best-apps-for-android-and-ios/"><u>Top 4 Innovative Loop Video Creators: Best Apps for Android and iOS</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-the-move-windows-11-focuses-on-microsoft-store-limiting-traditional-desktop-app-support-win32/"><u>Understanding the Move: Windows 11 Focuses on Microsoft Store, Limiting Traditional Desktop App Support (Win32)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/youtube-banner-blueprints-a-gamers-design-handbook/"><u>YouTube Banner Blueprints A Gamers' Design Handbook</u></a></li>
 </ul></div>
 

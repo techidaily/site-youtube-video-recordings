@@ -1,7 +1,7 @@
 ---
 title: A Cinematic Journey Through Leo’s Award-Winning Masterpieces at the Academy Awards
-date: 2025-02-06T06:53:42.857Z
-updated: 2025-02-09T23:33:12.437Z
+date: 2025-02-12T20:55:18.721Z
+updated: 2025-02-20T11:46:39.469Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,22 +238,16 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-bring-your-vision-to-life-youtube-trailers-using-filmoras-magic/"><u>[New] Bring Your Vision to Life YouTube Trailers Using Filmora's Magic</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-two-easy-steps-for-altering-snapchats-audio-effects-for-2024/"><u>[New] Two Easy Steps for Altering Snapchat's Audio Effects for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-achieving-excellent-illumination-on-youtube-videos/"><u>[Updated] Achieving Excellent Illumination on YouTube Videos</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-unveiling-the-secrets-of-smooth-telegram-web-use/"><u>[Updated] In 2024, Unveiling the Secrets of Smooth Telegram Web Use</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-snapit-share-it-in-order-on-ig-for-2024/"><u>[Updated] SnapIt, Share It in Order on IG for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-data-deluge-infographics-on-youtubes-intriguing-insights/"><u>2024 Approved Data Deluge Infographics on YouTube's Intriguing Insights</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-end-credits-designed-for-you-free-top-6-suggestions/"><u>2024 Approved End Credits Designed for You Free Top 6 Suggestions</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/audiovisual-excellence-the-premier-video-formats-for-youtube/"><u>Audiovisual Excellence The Premier Video Formats for YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/fundacion-danny-en-colombia-solidaridad-con-pobres/"><u>Fundacion Danny en Colombia: Solidaridad Con Pobres</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-xcover-6-pro-tactical-edition-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy XCover 6 Pro Tactical Edition Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-boost-your-revenue-yielding-earnings-from-youtube-at-500-followers/"><u>In 2024, Boost Your Revenue Yielding Earnings From YouTube at 500 Followers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-enhancing-youtube-experience-with-a-structured-watch-later-plan/"><u>In 2024, Enhancing YouTube Experience with a Structured Watch Later Plan</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/lift-mood-and-performance-20-fitness-playlists-ranked-right/"><u>Lift Mood & Performance 20 Fitness Playlists Ranked Right</u></a></li>
-<li><a href="https://extra-support.techidaily.com/master-your-wit-kapwing-meme-creator-guide-for-2024/"><u>Master Your Wit Kapwing Meme Creator Guide for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/optimizing-profits-on-youtube-studio-for-all-device-users/"><u>Optimizing Profits on YouTube Studio for All-Device Users</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-future-of-tech-with-siri-understanding-artificial-intelligence-integration-in-upcoming-iphone-mac-and-ipad-models/"><u>The Future of Tech with Siri: Understanding Artificial Intelligence Integration in Upcoming iPhone, Mac, and iPad Models</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/understanding-the-right-to-repair-movement-impacts-and-importance-for-consumers-an-in-depth-exploration-by-zdnet/"><u>Understanding the Right-to-Repair Movement: Impacts & Importance for Consumers - An In-Depth Exploration by ZDNET</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhancing-igtv-with-translation-captions/"><u>[New] 2024 Approved Enhancing IGTV with Translation Captions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oosting-sales-through-effective-strategies-for-channel-trailer-creation/"><u>[New] Boosting Sales Through Effective Strategies for Channel Trailer Creation</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/comic-crafting-mastering-7-cheeky-content-strategies/"><u>Comic Crafting Mastering 7 Cheeky Content Strategies</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diy-setup-enjoy-films-with-fandango-through-your-apple-tv-from-the-comfort-of-home/"><u>DIY Setup: Enjoy Films with Fandango Through Your Apple TV From the Comfort of Home</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-branding-the-ultimate-guide-to-custom-urls-for-youtube-for-2024/"><u>Enhance Branding The Ultimate Guide to Custom URLs for YouTube for 2024</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/how-safe-are-digital-wallet-balance-verifiers-insights-from-yl-computings-expertise/"><u>How Safe Are Digital Wallet Balance Verifiers: Insights From YL Computing's Expertise</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nubia-z50s-pro-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nubia Z50S Pro</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-break-through-boundaries-15plus-best-free-video-starters/"><u>In 2024, Break Through Boundaries 15+ Best Free Video Starters</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-links-for-acquiring-youtube-preview-templates-online/"><u>In 2024, Essential Links for Acquiring YouTube Preview Templates Online</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/turboupload-the-ultimate-guide-to-fast-youtube-video-rendering/"><u>TurboUpload The Ultimate Guide to Fast YouTube Video Rendering</u></a></li>
+<li><a href="https://games-able.techidaily.com/unravel-virtual-crimes-with-artificial-intelligence-games/"><u>Unravel Virtual Crimes with Artificial Intelligence Games</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Is Being Polite to Intelligent Assistants Such as ChatGPT, Alexa by Amazon, and Siri by Apple a Must for Proper Interaction?
-date: 2025-02-06T22:44:17.269Z
-updated: 2025-02-10T01:06:23.808Z
+date: 2025-02-16T23:38:49.914Z
+updated: 2025-02-20T10:46:48.205Z
 tags:
   - chatgpt
   - open-ai
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
  However, with the introduction of advanced AI chatbots like ChatGPT and Google Bard, it's becoming more difficult to tell if you're talking to an AI. It begs the question; is the Turing test outdated? And if it is, what are the alternatives?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is the Turing Test Outdated?
 
 ![man questions robot turing test example feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/man-questions-robot-turing-test-example-feature.jpg)
@@ -37,13 +33,13 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
  However, the current AI models like ChatGPT-4 and Google Bard haven't yet advanced to a point they can consistently pass the Turing test. In fact, if you're familiar with AI, you can[spot AI-generated text](https://www.makeuseof.com/dangers-ai-writing-how-spot-ai-generated-text/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The 5 Best Turing Test Alternatives
 
  It's possible that[future AI models like ChatGPT-5](https://www.makeuseof.com/when-will-gpt5-launch/) could pass the Turing test. If that happens, we would need different tests combined with the Turing test to identify if we're talking to an AI or a human. Here are the best Turing test alternatives:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. The Marcus Test
 
@@ -57,17 +53,21 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![Various different AI-generated images made with DALL-E](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/dall-e-ai-generated-image-gallery.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to a research paper published on[PNAS](https://www.pnas.org/doi/10.1073/pnas.1422953112) , the visual Turing test can be used to identify if you're talking to a human or an AI using image questionaries. It works like the Turing test, but instead of answering questions using texts, participants are shown images and expected to answer simple questions while thinking like a human. However, the[visual Turing test is different from CAPTCHAs](https://www.makeuseof.com/tag/how-do-captchas-work/) since all the answers are correct—but to pass the test, the AI must process the images similarly to a human.
 
  Beyond that, if an AI and a human are shown multiple images side by side and asked to identify realistic images, the human would have the cognitive ability to pass the test. This is because AI models find it difficult to distinguish images that don't look like they were taken in the real world. In fact, that's the reason why you can[identify AI-generated images](https://www.makeuseof.com/how-to-identify-ai-generated-image/) using anomalies that don't make sense.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. The Lovelace 2.0 Test
 
 ![robot holding a pencil pointing to a book](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/robot-holding-pencil-pointing-to-book-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The theory that a computer can't create original ideas beyond what it was programmed to do was first conceptualized by Ada Lovelace before the Turing test. However, Alan Turing objected to that theory arguing that AI can still surprise humans. It wasn't until 2001 that the guidelines for the Lovelace test were developed to tell apart an AI from a human—and, as per the[thekurzweillibrary](http://www.thekurzweillibrary.com/georgia-tech-professor-proposes-another-alternative-to-the-turing-test) the rules were later revised in 2014.
 
@@ -77,27 +77,27 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 ![person using chatgpt on their laptop](https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db6256e6386dbd78a8fb134b9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  How about the Turing test, but done in reverse? Instead of trying to find out if you're talking to a human, the objective of the[reverse Turing test](https://gist.github.com/rain-1/3bf56122b0ebeac929dff0f881ee8e4c) is to trick the AI into believing you're an AI. However, you also need another AI model to answer the same questions using text.
 
  For instance, if ChatGPT-4 is the interrogator, you could enroll Google Bard and another human as participants. If the AI model can correctly identify the human participant based on the answers, it has passed the test.
 
  The downside of the reverse Turing test is that it's unreliable, especially considering that sometimes[AI cannot differentiate AI-generated](https://www.makeuseof.com/ai-content-detectors-dont-work/) and human-written content.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. AI Classification Framework
 
 ![A man playing chess with an AI robot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/ai-chess.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  According to the AI classification framework developed by[Chris Saad](https://docsend.com/view/et7755yasfpj3iy6) , the Turing test is just one evaluation method to know if you're talking to an AI. More succinctly, the AI classification framework is based on the theory of multiple intelligence, which requires human intelligence to satisfy at least eight different criteria, which include: musical-rhythm, logical-mathematical intelligence, visual identification, emotional intelligence, self-reflective intelligence, existential thinking ability, and body movement.
 
  Since the AI is evaluated on eight different parameters, it's unlikely to pass for a human even if it performs better than average in certain benchmarks. For instance,[ChatGPT can solve math problems](https://www.makeuseof.com/can-chatgpt-solve-math-problems/) , describe images, and converse in a natural language like a human, but it would fail other categories defined in the AI classification framework.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Turing Test Is Not Conclusive
 
@@ -120,22 +120,21 @@ thumbnail: https://thmb.techidaily.com/3b3b313aac4422406d268b9ec86a52f71522ac5df
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-omni-angle-mounting-mechanisms-for-2024/"><u>[New] Omni-Angle Mounting Mechanisms for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uick-guide-on-converting-videos-into-dynamic-gifs-online/"><u>[New] Quick Guide on Converting Videos Into Dynamic Gifs Online</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-apowersoft-screen-recorder-testimony/"><u>[Updated] Apowersoft Screen Recorder Testimony</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-financially-flourishing-online-media-personality/"><u>[Updated] In 2024, Financially Flourishing Online Media Personality</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-prime-picks-for-live-tv-access-and-streaming/"><u>[Updated] Prime Picks for Live TV Access and Streaming</u></a></li>
-<li><a href="https://extra-information.techidaily.com/android-mastery-for-virtual-reality-and-panoramic-videos-for-2024/"><u>Android Mastery for Virtual Reality & Panoramic Videos for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/best-free-streaming-platforms-for-top-hindi-cinema-watch-bollywoods-finest/"><u>Best Free Streaming Platforms for Top Hindi Cinema: Watch Bollywood's Finest</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/download-free-video-clip-converter-and-downloader-tool-easy-guide/"><u>Download Free Video Clip Converter and Downloader Tool – Easy Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/download-turkeys-hits-get-the-top-36-free-turkish-music-mp3s-now/"><u>Download Turkey's Hits: Get the Top 36 Free Turkish Music MP3s Now</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/expert-insights-on-the-campfire-chronicles-dlc-for-minecraft-players/"><u>Expert Insights on The Campfire Chronicles DLC for Minecraft Players</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/free-ultimate-guide-to-downloading-high-definition-xvid-videos-in-2017/"><u>Free Ultimate Guide to Downloading High Definition Xvid Videos in 2017</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-to-capture-hls-video-content-using-m3u8-extractor-for-windowsmac-users/"><u>How to Capture HLS Video Content Using M3U8 Extractor for Windows/Mac Users</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-play-40c-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor Play 40C Phone FRP Lock</u></a></li>
-<li><a href="https://article-tips.techidaily.com/no-experience-big-income-try-these-13-reddit-methods-for-2024/"><u>No Experience, Big Income? Try These 13 Reddit Methods for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/support/"><u>Support</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-tutorial-on-how-to-save-youtube-content-via-url/"><u>The Ultimate Tutorial on How to Save YouTube Content via URL</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-an-easy-to-follow-guide-adding-youtube-playlists-to-your-online-platform/"><u>[New] An Easy-to-Follow Guide Adding YouTube Playlists to Your Online Platform</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-premium-pick-ios-sound-artisans-guidebook/"><u>[Updated] 2024 Approved Premium Pick IOS Sound Artisans Guidebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-an-insight-into-total-immersion-with-htc-vive-review-for-2024/"><u>[Updated] An Insight Into Total Immersion with HTC Vive Review for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-downloading-youtube-playlists-made-simple-and-easy/"><u>[Updated] Downloading YouTube Playlists Made Simple & Easy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-now-available-vr-hardware-specs/"><u>[Updated] Now Available VR Hardware Specs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-blitzing-sharing-easy-youtube-playlist-methods/"><u>2024 Approved Blitzing Sharing Easy YouTube Playlist Methods</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-essential-guide-to-fb-status-video-downloads/"><u>2024 Approved The Essential Guide to FB Status Video Downloads</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-creativity-in-video-editing-these-7-sources/"><u>Enhance Creativity in Video Editing - These 7 Sources</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-youtube-end-screen-templates-for-content-makers-for-2024/"><u>Essential YouTube End Screen Templates for Content Makers for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/experience-superior-performance-with-the-new-and-improved-istat-menus-ideal-tool-for-mac-tracking/"><u>Experience Superior Performance with the New and Improved IStat Menus - Ideal Tool for Mac Tracking</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/explore-the-outstanding-attributes-of-the-sony-xperia-z-ultra-an-express-guide-to-its-prime-aspects/"><u>Explore the Outstanding Attributes of the Sony Xperia Z Ultra – An Express Guide to Its Prime Aspects</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/explore-the-world-in-high-definition-on-youtube/"><u>Explore the World in High Definition on YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mold-and-share-custom-internet-comedy-pieces/"><u>In 2024, Mold and Share Custom Internet Comedy Pieces</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/large-display-medium-network-selection-tips/"><u>Large Display Medium Network Selection Tips</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209826508-9780008366377-virgo-2021-your-personal-horoscope/"><u>Virgo 2021: Your Personal Horoscope | Free Book</u></a></li>
 </ul></div>
 

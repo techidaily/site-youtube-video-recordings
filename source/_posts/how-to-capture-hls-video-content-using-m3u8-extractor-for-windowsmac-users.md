@@ -1,7 +1,7 @@
 ---
 title: How to Capture HLS Video Content Using M3U8 Extractor for Windows/Mac Users
-date: 2025-02-07T03:21:52.452Z
-updated: 2025-02-10T11:26:18.778Z
+date: 2025-02-15T22:06:05.092Z
+updated: 2025-02-19T22:22:59.422Z
 tags:
   - youtube-download
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## M3U8 Downloader for Windows and Mac to Save HLS Videos
 
  _Written by [Kaylee Wood](https://www.quora.com/profile/Amanda-Hu-21)_ | Last updated: July 30, 2020 
@@ -27,7 +31,7 @@ If you not only want to play M3U8 video from online sites, but also want to save
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Download M3U8 Video?
@@ -45,10 +49,6 @@ Step 2: On the user interface of 5KPlayer, click on "YouTube" button, then go to
 Step 3: Paste the copied URL on the box, and click on the download button behind the URL filed. If 5KPlayer requires you to update the analysis engine, just wait for the progress bar to run to the end.
 
 ![5KPlayer M3U8 URL analyze](https://www.5kplayer.com/youtube-download/img/paste-m3u8-url.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4: After finished analysis, check and select the video format and resolution as you want. Then, click "Done" to start downloading the video. You can choose MP4 format to directly save M3U8 video to MP4 format. 
 
@@ -68,13 +68,13 @@ Step 2: Click "Library" icon on the very upper center of the menu bar. On the le
 
 ![5KPlayer save M3U8 to mp4](https://www.5kplayer.com/youtube-download/img/5kplayer-interface-library.jpg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Click on the video you just lorded, and you can see the drop-down option box, then click "Convert" button. Select "MP4(H264): Convert to MP4(H264)". Also, you can [attract audio from the video](https://tools.techidaily.com/5kplayer/video-music-player/), and convert it to MP3 or AAC format.After then, 5KPlayer will automatically start converting the video, and just a few seconds you can get the converted file on your local drive.
 
 ![5KPlayer convert M3U8 to mp4](https://www.5kplayer.com/youtube-download/img/convert-ts-to-mp4.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Note: Besides transfer M3U8 to MP4, you can also convert video in other formats to MP4, such as MOV, MKV, AVI, FLV and other popular formats.
 
@@ -90,13 +90,13 @@ Step 2: Click on "Video" button to load the video clips, you can load more than 
 
 ![add m3u8 clips](https://www.5kplayer.com/youtube-download/img/winx-hd-video-converter-interface.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: Select "Merge" option on the left side under the preview windows, then click "Run" and you can start merging videos. If you want to adjust the order of videos, click on the video and you can see the icon consisting of two triangles, and click it to move up or down the video.
 
 ![merge m3u8 video clips](https://www.5kplayer.com/youtube-download/img/merge-video-clips.jpg) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 With very simple steps you can get M3U8 video clips merged. Besides, WinX HD Video Converter Deluxe is more powerful in converting video format. 5KPlayer allows you to convert any video to MP4 format, but if you want to convert the video to other formats, WinX HD Video Converter Deluxe provides more choices for you.
 
@@ -105,7 +105,7 @@ But if you do not want to install many programs on your PC to take storage space
 [![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/) [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -123,20 +123,22 @@ But if you do not want to install many programs on your PC to take storage space
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-the-ultimate-exclusive-windows-11s-media-importers/"><u>[Updated] 2024 Approved The Ultimate Exclusive Windows 11'S Media Importers</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-avoid-every-interruption-the-ultimate-guide-to-7-adblocking-tools/"><u>[Updated] Avoid Every Interruption The Ultimate Guide to 7 AdBlocking Tools</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists/"><u>[Updated] Crafting Compelling Combinations A Guide to Creating Your Own YouTube Playlists</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-path-to-polished-photo-borders-in-instagram/"><u>2024 Approved The Path to Polished Photo Borders in Instagram</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>Captivating Your Audience YouTube Intro Excellence with iMovie</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/closing-with-panache-free-youtubes-1-six/"><u>Closing with Panache Free YouTube's #1 Six</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings-for-2024/"><u>Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-guide-downloading-and-installing-sound-card-drivers-in-windows-aturins-war-and-peace/"><u>Easy Guide: Downloading & Installing Sound Card Drivers in Windows Aturin's War and Peace</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-realme-narzo-n53-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Realme Narzo N53 to iPad | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/innovative-editing-youtube-studio-edition-insights/"><u>Innovative Editing YouTube Studio Edition Insights</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-best-of-budget-a-guide-to-the-top-10-economical-video-design-schools-on-youtube/"><u>The Best of Budget A Guide to the Top 10 Economical Video Design Schools on YouTube</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/top-rated-avi-video-editors-for-cutting-and-trimming-multi-platform-support/"><u>Top-Rated AVI Video Editors for Cutting and Trimming Multi-Platform Support</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/trusted-sources-for-authentic-tiktok-fans-for-2024/"><u>Trusted Sources for Authentic TikTok Fans for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/ultimate-4k-desktop-screens-full-integration-and-touch-for-2024/"><u>Ultimate 4K Desktop Screens Full Integration & Touch for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-inspirational-homebuilds-for-snapshot-enthusiasts/"><u>[New] 2024 Approved Inspirational Homebuilds for Snapshot Enthusiasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-earning-edge-reached-for-subscribers-above-500-for-2024/"><u>[New] Earning Edge Reached for Subscribers Above 500 for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-discover-the-perfect-moment-timing-your-insta-posts/"><u>[Updated] In 2024, Discover the Perfect Moment Timing Your Insta Posts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-reviewing-the-gopro-hero5-session-series/"><u>[Updated] In 2024, Reviewing the GoPro Hero5 Session Series</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-charting-new-territory-strategies-for-youtube-keyword-research/"><u>2024 Approved Charting New Territory Strategies for YouTube Keyword Research</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-decoding-t-series-online-earnings-stream/"><u>2024 Approved Decoding T-Series' Online Earnings Stream</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unlocking-mov-recording-potential-win-11s-top-six-methods/"><u>2024 Approved Unlocking .MOV Recording Potential Win 11'S Top Six Methods</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/cosmic-beauty-captivating-hubble-photo-collections-perfect-as-pc-backgrounds-mobile-walls-and-inspirational-quotes-curated-by-yl-software/"><u>Cosmic Beauty: Captivating Hubble Photo Collections Perfect as PC Backgrounds, Mobile Walls, and Inspirational Quotes – Curated by YL Software</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/efficient-mac-video-resizing-to-fixed-ratio/"><u>Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/exclusive-catalogue-free-to-use-stock-media-sites/"><u>Exclusive Catalogue Free-to-Use Stock Media Sites</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/gain-currency-with-500-youtube-followers/"><u>Gain Currency with 500 YouTube Followers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-clip-narration-devisee/"><u>In 2024, Clip Narration Devisee</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/pro-youtuber-essentials-studio-choice-over-beta-alternative/"><u>Pro YouTuber Essentials Studio Choice Over Beta Alternative</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/proven-steps-for-effortless-creation-of-youtube-shorts-credits/"><u>Proven Steps for Effortless Creation of YouTube Shorts Credits</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Proven Ways in How To Hide Location on Life360 For Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/revolutionizing-marketing-with-interactive-tiktok-content-for-2024/"><u>Revolutionizing Marketing with Interactive TikTok Content for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>Updated In 2024, Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
 </ul></div>
 

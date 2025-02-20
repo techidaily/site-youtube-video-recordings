@@ -1,7 +1,7 @@
 ---
 title: "Top Ranking Films: Celebrating Leo's Triumph at the Oscars"
-date: 2025-02-08T16:30:19.894Z
-updated: 2025-02-10T05:32:21.423Z
+date: 2025-02-17T09:21:12.296Z
+updated: 2025-02-20T02:12:59.349Z
 tags:
   - youtube-download
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Free Download Top Leonardo DiCaprio Oscar Winning Movies
@@ -31,7 +31,7 @@ Here lists all Leonardo DiCaprio movies/films of which some deserve Oscar Award 
 **\[Warning\] YouTube music & copyright-protected contents are not supported for download.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Top Leonardo DiCaprio Oscar Winning Movies?
@@ -49,7 +49,7 @@ Maybe a bit overtly cliché, but if you are fond of American western film and ep
 ![Jolly LLB 2 Poster](https://www.5kplayer.com/youtube-download/img/leo-oscar-movies-zjy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Critters 3 (1991)**  
@@ -218,7 +218,7 @@ You can get 5KPlayer to free download the above **Leonardo DiCaprio Oscar winnin
 [![](https://www.5kplayer.com/youtube-download/../button/freedownwhitewin.png)](https://tools.techidaily.com/5kplayer/products/)[![](https://www.5kplayer.com/youtube-download/../button/freedownbackmac.png)](https://tools.techidaily.com/5kplayer/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for any commercial purpose and suggests referring to the copyright laws in your countries before doing so._
@@ -238,24 +238,22 @@ _**Disclaimer:** 5KPlayer does not advocate downloading copyright content for an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-leading-list-the-best-10-apps-for-live-racing-and-rugby-streaming-for-2024/"><u>[New] Leading List The Best 10 Apps for Live Racing & Rugby Streaming for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-securing-your-zoom-conference-room-audio-and-video-considerations-for-2024/"><u>[New] Securing Your Zoom Conference Room Audio & Video Considerations for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-discovering-the-top-8-truly-efficient-advancement-services/"><u>[Updated] Discovering the Top 8 Truly Efficient Advancement Services</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-enhancing-engagement-imovie-techniques-for-youtube-intros/"><u>[Updated] Enhancing Engagement IMovie Techniques for YouTube Intros</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-essentials-to-skyrocketing-video-views-on-youtube/"><u>[Updated] Essentials to Skyrocketing Video Views on YouTube</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-essentials-of-simple-straightforward-hdr-techniques-for-2024/"><u>[Updated] The Essentials of Simple, Straightforward HDR Techniques for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-avoid-draft-overload-on-tiktok-by-mastering-edit-techniques/"><u>2024 Approved Avoid Draft Overload on TikTok by Mastering Edit Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/achieving-audiovisual-excellence-with-srt-and-mp4-the-ultimate-guide/"><u>Achieving Audiovisual Excellence with SRT and MP4 - The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/conveniently-connect-with-others-via-your-playlist-for-2024/"><u>Conveniently Connect with Others via Your Playlist for 2024</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/exploring-the-concept-of-index-or-homepage-your-guide-to-browsers-main-file/"><u>Exploring the Concept of 'Index' Or Homepage: Your Guide to Browser's Main File</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-s17-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo S17 Pro</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-live-broadcasts-a-step-by-step-guide-for-fb-users/"><u>In 2024, Mastering Live Broadcasts A Step-by-Step Guide for FB Users</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/layout-layers-a-guide-to-organizing-online-videos/"><u>Layout Layers A Guide to Organizing Online Videos</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/maximize-your-income-through-strategic-use-of-youtube-shorts/"><u>Maximize Your Income Through Strategic Use of YouTube Shorts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/smart-strategies-for-entrepreneurial-video-marketing/"><u>SMART Strategies for Entrepreneurial Video Marketing</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-17-unbeatable-cyber-monday-offers-save-big-on-televisions-earbuds-and-sound-systems-exclusive-picks/"><u>Top 17 Unbeatable Cyber Monday Offers: Save Big on Televisions, Earbuds & Sound Systems - Exclusive Picks !</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/ultimate-compatibility-chart-updating-razer-drivers-on-various-windows-platforms/"><u>Ultimate Compatibility Chart: Updating Razer Drivers on Various Windows Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/ultimate-playbook-navigating-youtube-etiquette/"><u>Ultimate Playbook Navigating YouTube Etiquette</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-optimal-video-recorder-tiktok-downloads-as-high-quality-mp4s/"><u>[New] Optimal Video Recorder TikTok Downloads as High-Quality MP4s</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-unlock-visual-impact-understanding-the-power-of-luts/"><u>[Updated] 2024 Approved Unlock Visual Impact Understanding the Power of LUTs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-youtube-shorts-templates-understanding-the-fundamentals/"><u>[Updated] 2024 Approved YouTube Shorts Templates Understanding the Fundamentals</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-dynamic-gifs-from-video-an-illustrative-tutorial/"><u>2024 Approved Crafting Dynamic Gifs From Video An Illustrative Tutorial</u></a></li>
+<li><a href="https://windows11.techidaily.com/5-essential-tweaks-for-your-windows-11-search-settings/"><u>5 Essential Tweaks for Your Windows 11 Search Settings</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ambient-weather-ws-1002-wifi-device-evaluation-superior-accuracy-meets-high-investment-price-tag/"><u>Ambient Weather WS-1002 WiFi Device Evaluation: Superior Accuracy Meets High Investment Price Tag</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-choices-8-edits-suites-for-linux-users/"><u>Best Choices 8 Edits Suites for Linux Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/charting-a-course-youtubes-best-brands/"><u>Charting a Course YouTube's Best Brands</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comparing-ipad-air-4-and-ipad-air-cued-by-apple-which-one-deserves-your-upgrade-gadget-flow-insights/"><u>Comparing iPad Air 4 and iPad Air Cued by Apple, Which One Deserves Your Upgrade? | Gadget Flow Insights</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-youtube-income-how-much-does-each-1000-viewer-earn-in-2024/"><u>Decoding YouTube Income How Much Does Each 1,000 Viewer Earn, In 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-immediate-insta-friendship-status-check/"><u>In 2024, Immediate Insta Friendship Status Check</u></a></li>
+<li><a href="https://games-able.techidaily.com/nvidias-rtx-4060-ti-unveiling-matching-gpus/"><u>Nvidia's RTX 4060 Ti: Unveiling Matching GPUs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/strategic-monetization-for-game-streams/"><u>Strategic Monetization for Game Streams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-plan-for-streaming-google-meet-on-youtube/"><u>The Ultimate Plan for Streaming Google Meet on YouTube</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-microsoft-teams-microphone-problems-on-windows-11-and-windows-10-systems/"><u>Troubleshooting Microsoft Teams Microphone Problems on Windows 11 and Windows 10 Systems</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/worldwide-top-earners-in-the-streaming-sphere/"><u>Worldwide Top Earners in the Streaming Sphere</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/your-pathway-to-personalized-youtube-music-selections/"><u>Your Pathway to Personalized YouTube Music Selections</u></a></li>
 </ul></div>
 

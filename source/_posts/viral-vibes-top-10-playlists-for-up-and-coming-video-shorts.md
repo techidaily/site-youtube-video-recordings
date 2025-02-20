@@ -1,7 +1,7 @@
 ---
 title: "\"Viral Vibes  Top 10 Playlists for Up-and-Coming Video Shorts\""
-date: 2025-01-21T07:53:34.099Z
-updated: 2025-01-21T20:54:01.168Z
+date: 2025-02-17T07:24:50.739Z
+updated: 2025-02-19T20:18:37.711Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Recently released, YouTube Shorts is a dedicated feature in the app that lets us
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
@@ -175,10 +179,6 @@ Recently released, YouTube Shorts is a dedicated feature in the app that lets us
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Why your video editing isn't good enough? How about some creative inspo?
 
 * 100 Million+ Users
@@ -270,10 +270,6 @@ That’s it! This will automatically add the selected music for YouTube Shorts, 
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-music-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus Tip: Add Stunning Edits to Your Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Now, when you know how to add YouTube Shorts music to any video, you can easily come up with some great content for your channel. Though, if you want to make better edits and make your videos even more interesting, then you can use **Wondershare Filmora**.
@@ -314,9 +310,17 @@ Recently released, YouTube Shorts is a dedicated feature in the app that lets us
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -389,10 +393,6 @@ You can start by launching the YouTube application on your device and visiting t
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-music-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Search for Songs for YouTube Shorts
 
 Great! Once you have selected the video segment, you can just tap on the “Add Music” button from the top panel. This will automatically load all the trending music in different categories that you can preview in advance.
@@ -406,6 +406,10 @@ If you want, you can just enter the name of the song, genre, artist, or any othe
 After finding the right track for the video clip, you can tap on it, and it will automatically be loaded on the interface. You can further tap on the “Adjust” button on the side to make changes to the added music.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-music-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This will let you clip out the specific part of the song that you want to add to your video on YouTube. Once you have found the right segment of the track, you can preview it, and tap on the “Done” button to clip it.
 
@@ -431,10 +435,6 @@ Besides that, if you want to make better edits to your videos, then you can also
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -456,6 +456,10 @@ Recently released, YouTube Shorts is a dedicated feature in the app that lets us
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-music-1.jpg)
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
@@ -522,6 +526,10 @@ This is a copyright-free YouTube Shorts music that would let you add a peaceful 
 
 Lastly, you can also explore these YouTube Shorts trending songs as a background score for funny and cute videos. The track is often used for video content related to pets, slow dances, makeup tutorials, and so on. You can use this royalty-free music directly on YouTube Shorts without any conflicts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: How to Add Background Music to YouTube Shorts Videos?
 
 I’m sure that after going through these YouTube Shorts songs, you can easily find the perfect background music for your videos. Though, if you want to add music for YouTube Shorts, then you can do it via its native recording and editing feature. To add or edit YouTube Shorts BGM, you can just follow these steps:
@@ -537,10 +545,6 @@ You can start by launching the YouTube application on your device and visiting t
 Great! Once you have selected the video segment, you can just tap on the “Add Music” button from the top panel. This will automatically load all the trending music in different categories that you can preview in advance.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-music-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you want, you can just enter the name of the song, genre, artist, or any other keyword on the search bar to look for anything specific.
 
@@ -598,10 +602,6 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -624,6 +624,10 @@ _Lilly’s Creator Summit adventures._
 The Creator Summit is invite-only, and only 120 YouTubers attended including Grace Helbig, Lilly Singh, Matthew Santoro, Eva Gutowski, Jon Cozart, and Hannah Hart. We can really only imagine what went on based on what some YouTubers chose to share with us over social media. That’s how we know there were appearances from off-YouTube celebrities too, like Will Smith and Riz Ahmed.
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
 
@@ -655,10 +659,6 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
 
 ## 5\. Pins, pins, pins
@@ -672,7 +672,7 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -815,6 +815,10 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -885,7 +889,7 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A map of Dumbo
@@ -895,10 +899,6 @@ The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is 
 _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
@@ -957,16 +957,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-enrich-your-viewing-habit-with-essential-movie-channels/"><u>[New] Enrich Your Viewing Habit with Essential Movie Channels</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-initiating-engagement-start-your-live-on-instagram-for-2024/"><u>[New] Initiating Engagement Start Your Live on Instagram for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-guide-to-enabling-high-dynamic-range-auto-hdr-on-windows-11/"><u>[New] Step-by-Step Guide to Enabling High Dynamic Range (Auto HDR) on Windows 11</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-step-by-step-guide-to-iconic-youtube-beginnings-method-a-and-b/"><u>[Updated] In 2024, Step-by-Step Guide to Iconic YouTube Beginnings Method A & B</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-best-free-video-apps-on-multiple-desktops/"><u>2024 Approved Best Free Video Apps on Multiple Desktops</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-blueprints-for-making-youtube-intro-videos-that-stick/"><u>2024 Approved Blueprints for Making YouTube Intro Videos that Stick</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725283993710-vobmp4/"><u>最佳VOB轉成MP4程序 - 迅速、簡單的影片文件換型指南</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/discreetly-conceal-identity-photo-edit-tip/"><u>Discreetly Conceal Identity Photo Edit Tip</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-to-clear-youtube-watch-later-playlist/"><u>How to Clear YouTube Watch Later Playlist</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-earning-through-eyes-the-actual-youtube-view-count-needed/"><u>In 2024, Earning Through Eyes The Actual YouTube View Count Needed</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlocking-the-solution-for-failed-file-creation-30005/"><u>Unlocking the Solution for Failed File Creation - 30005</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-techniques-for-easy-video-recording-on-youtube/"><u>[New] 2024 Approved Techniques for Easy Video Recording on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-how-to-guide-elevating-gameplay-recordings-via-obs/"><u>[New] In 2024, How-To Guide Elevating Gameplay Recordings via OBS</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-best-stream-tech-innovative-hardware-and-software-guide-for-youtubers/"><u>[Updated] Best Stream Tech Innovative Hardware & Software Guide for Youtubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-critical-asmr-video-elements-to-note/"><u>[Updated] Critical ASMR Video Elements to Note</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-editing-essentials-a-comprehensive-guide-to-song-inserts-for-2024/"><u>[Updated] YouTube Editing Essentials A Comprehensive Guide to Song Inserts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/clear-youtube-watch-later-playlist-step-by-step-for-2024/"><u>Clear YouTube Watch Later Playlist - [Step-by-Step] for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/composing-channel-overview-teaser-clips-for-2024/"><u>Composing Channel Overview Teaser Clips for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conveniently-enjoy-nba-games-top-15-streaming-methods/"><u>Conveniently Enjoy NBA Games - Top 15 Streaming Methods</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/demystifying-t-series-income-streams-via-youtube-platforms/"><u>Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://driver-install.techidaily.com/effortless-setup-asus-usb-bt400-driver-guide/"><u>Effortless Setup: Asus USB-BT400 Driver Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-vivo-y100t-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-and-update-device-drivers-manually-on-windows-11-by-drivereasy-guide/"><u>How to install and update device drivers manually on Windows 11</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-pro-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Lava Blaze Pro 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary/"><u>In 2024, A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/maximizing-reach-youtubes-template-advantage-explained/"><u>Maximizing Reach YouTube's Template Advantage Explained</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/quick-editing-incorporating-jump-cuts-in-video-content/"><u>Quick Editing Incorporating Jump Cuts in Video Content</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unblocking-pc-speakers-after-hardware-changes/"><u>Unblocking PC Speakers After Hardware Changes</u></a></li>
 </ul></div>
 
